@@ -2,7 +2,7 @@
 
 Public Domain Works of Henri Graillot
 
-## Le culte de Cybèle, mère des dieux, à Rome et dans l'Empire romain
+## Le Culte de Cybèle, Mère des Dieux, à Rome et dans l'Empire Romain
 
 [French - Plain Text](culte-cybele/full-text-french.md)  
 French - PDF | Biolinum | Atkinson | Cursive | Auriocus  
