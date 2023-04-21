@@ -218,8 +218,8 @@ Les poètes de la jeune école, grands artisans de rythmes, grands admirateurs e
 
 Il est malaisé de distinguer ici la part personnelle et les éléments d'emprunt. Le thème n'appartient pas plus à l'auteur que ce type grécisé de l'Attis. La plainte de l'éphèbe est d'une telle couleur locale qu'à travers le texte latin on entrevoit l'original grec. Quant à la rencontre du Galle et du lion, elle avait déjà fourni aux petits poètes de l'anthologie la matière de nombreuses épigrammes. On a cru reconnaître dans les derniers vers de Catulle un sincère accent d'effroi :
 
-déesse grande, déesse Cybèle, déesse dame du Dindyme,
-  écarte tes fureurs, toutes tes fureurs, de ma maison, ô Maîtresse* !
+déesse grande, déesse Cybèle, déesse dame du Dindyme,  
+écarte tes fureurs, toutes tes fureurs, de ma maison, ô Maîtresse* !
 
 Mais cette supplique est-elle de Catulle ou de Callimaque ? Nous dit-elle l'épouvante d'un Romain ou celle d'un Grec ? Il ne faudrait pas être dupe d'un pastiche littéraire. Aussi bien, si Catulle est vraiment effrayé de la frénésie des Galles, de la sauvagerie de leurs rites orgiastiques, du danger de leur fanatisme contagieux, n'oublions pas qu'il a pu les voir ailleurs qu'au Palatin et dans les rues de Rome. Il connaît l'Orient. Il a été de la suite d'un propréteur de Bithynie. Il a visité les rivages où aborde son Attis et que dominent, à l'horizon, les cimes de l'Ida boisé. Quoi qu'il en soit, il n'a qu'un but, qui est de faire œuvre d'artiste. Mais par la peinture raffinée de cet exotisme à demi barbare, par les éclatantes descriptions de cette nature solitaire et sacrée, avec l'ombre de ses forêts de pins, la neige de ses montagnes, les antres de ses fauves et la présence invisible de sa Dame, par cette glorification de la puissance mystérieuse et fatale de la déesse aux lions, ne fournissait-il pas aux imaginations malades et déjà troublées un poison nouveau ? Il prête au culte phrygien le secours et la séduction de son talent. A la légende d'Attis il ajoute un élément de sentimentalisme qui en atténue le caractère farouche et qui pouvait avoir prise sur les âmes tendres. Il est vrai que ses poésies s'adressaient à une élite si restreinte !
 
@@ -229,8 +229,8 @@ Ce qui attriste et indigne Yarron, c'est que ce spectacle en impose à la multit
 
 On retrouve dans Lucrèce* la même identification de la Grande Mère et de la Terre. Il en tire d'autres conséquences. Il demande à la théologie des armes contre la religion. Mère des Dieux, mère et souveraine des fauves, mère et nourrice des hommes,* autant de poétiques allégories, qu'il faut laisser aux poètes, à ceux qui disent Neptune pour désigner la mer et Bacchus pour désigner le vin. Car la terre n'est pas une divinité ; c'est un combinaison d'atomes, « un amas de matière insensible ». Lucrèce sait comment les théologiens expliquent les attributs de la Mère et les rites de son culte. Il connaît même des interprétations morales dont ne parle point Varron et dont certaines avaient cours dans les mystères.* Mais lions, chars, couronne de tours, processions de l'idole, danses sacrées, tonnerre des tympanons et des cymbales, son menaçant de la corne, musique énervante de la flûte, tout n'a d'autre raison d'être, à ses yeux, que l'exploitation des foules par un clergé fanatique. « Pièces de bronze, pièces d'argent jonchent les rues que parcourt la déesse ; copieuse est l'aumône dont elle s'enrichit. On jette aussi des roses ; et c'est comme une neige de fleurs qui enveloppe la Grande Mère et son escorte.* » Il y a, dans les pompes de la religion phrygienne, une part de poésie gracieuse et toute féminine, qui contraste avec la sauvagerie des scènes orgiastiques et qui n'est pas l'un des moindres attraits du culte. Mais Lucrèce ne veut pas nous arrêter sur cette aimable et reposante vision. Voici, derrière la statue processionnelle, les Gorybantes de Cybèle, qui sont des compagnons danseurs. Coiffés d'un casque à longue aigrette, armés de glaives et de boucliers, ils exécutent des pas guerriers, agitent violemment la tête, se frappent, se blessent et s'excitent à la vue du sang.* Assistait-on à ce spectacle dans les rues de Rome, vers la fin de la République ? Lucrèce, à ATrai dire, semble plutôt n'en parler que d'après ses lectures. Il ignore le nom des Corybantes ; il les appelle Curètes phrygiens, « comme disent les Grecs.* » Il a lu les philosophes de la Grèce qui ont disserté sur la Mère des Dieux et les poètes qui l'ont chantée.* Par eux il a connu la Meter Oreia, la Meter Sôteira, qu'il ne nomme point, mais dont le souvenir transparaît à travers ses formules et ses périphrases.* Il évite d'autre part toute allusion à Rome et au temps présent,* comme s'il voulait conserver à son œuvre un caractère universel. Mais aurait-il, à propos d'atomes, tellement insisté sur le culte phrygien, s'il n'avait vu se propager autour de lui le fanatisme asiatique ? C'est de tous les cultes de la Terre divinisée le seul qu'il décrive, parce qu'il y trouve la matière d'un brillant tableau, parce qu'il admire en poète la beauté de fictions dont il n'est pas dupe. C'est aussi le seul qu'il combatte, parce qu'il en a constaté les néfastes effets sur les âmes crédules.
 
-Quae bene et eximie quamvis disposta ferantur,
-  Longe sunt tamen a vera ratione repuisa.*
+Quae bene et eximie quamvis disposta ferantur,  
+Longe sunt tamen a vera ratione repuisa.*
 
 Il se révolte au nom de la vérité et de la saine raison, dans le même temps que Varron protestait au nom de la tradition nationale. Cette coïncidence n'est point fortuite. Ils vivaient à une époque où Rome se laissait aller à la séduction des religions orientales.
 
@@ -317,7 +317,7 @@ Les successeurs immédiats de Claude ne manifestèrent pas, ce semble, un zèle 
 
 # Chapitre 4
 
-### Tauroboles et Mystères, Diffusion du Taurobole au 2e Siècle.
+### Tauroboles et Mystères, Diffusion du Taurobole au 2e Siècle
 
 _Meus iste sanguis verus est, non bubulus_. (Prudent., _Peristeph._ 10, 1007.)
 
