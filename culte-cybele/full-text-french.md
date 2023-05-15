@@ -1971,13 +1971,69 @@ Il y avait en effet un sacrement de communion. Purifié dans son corps, dans son
 
 *) Hahn, Demeter und Baubo, 1897.
 
+*) Cf. Cook, The Bee in greek Mythology dans Journ. of Hell. St. XV, 1895, pp. 1-24.
+
+*) Lactant., Divin. Inst. I, 22 ; cf. Porphyr., De antro Nymph. 18, où il est dit que l'on donnait le nom de Melissae aux âmes pures des initiés. La crétoise Melissa avait été, disait le mythe, choisie par son père Melisseus pour être la première prêtresse de Rhea. Sur les rapports de Meter Adrasteia et Melissa, cf. Gruppe, op. I., p. 301. Prêtresses dites Melissai dans les cultes de Demeter, Artémis d'Ephèse, Apollon Pythien, cf. ibid., pp. 136 et 909 ; Drexler dans Roscher, Mylh. Lex. II, 2639 s.
+
+*) Cumont, l. c., p. 320.
+
 Un autre rite est l'imposition des Stigmates.* Les chrétiens la comparaient à leur sacrement de confirmation. Mais il ne s'agit pas ici d'une onction, comme dans la liturgie chrétienne. Les stigmates sont de véritables tatouages, opérés par piqûres, au moyen d'aiguilles rougies au feu. Ils impriment sur la peau des signes mystérieux et indélébiles. Etaient-ils appliqués sur le front, comme le « signe du soldat » chez les Mithriastes, comme le signe de la noblesse chez les anciens Thraces* ? Sur le cou et sur les mains, comme dans les cultes syriens ? D'après Prudence, on en marquait plusieurs parties du corps. C'est le sceau divin de la consécration. En perpétuant le souvenir de la profession de foi, il témoigne que désormais le myste appartient au Dieu.
+
+*) Prudent., Peristeph. X, 1076 ss.
+
+*) Mithriastes : Cumont, l. c., p. 319. Thraces: Herodot. V, 6; cf. Hoernes, Urgeschichte der bild. Kunst, p. 210 s. Syriens : Lucian., De a Syr. 59. Dans les mystères de Dionysos, Ménades tatouées : Rapp, Beziehungen des Dionysos-kults z u Thrakien u. Kleinasien, p. 25. Epoque néolithique (idoles tatouées, déesses funéraires ?) : Déchelette, La peinture corporelle et le tatouage dans Rev. archéol., 1907, I, p. 38 ss ; cf. Bertholon, Origines néolithique et mycénienne des tatouages des indigènes du nord de V Afrique, 1904. Tatouages sacrés chez les chrétiens : cf. Hepding, Attis, p. 163, n. 2.
 
 La dernière partie de l'initiation semble avoir comporté, selon la tradition commune à la plupart des mystères, un mariage mystique avec la divinité. Ce rite avait lieu la nuit. Le myste pénétrait dans le « Pastos » de la déesse, qui est la chambre nuptiale.* Mais auparavant il était soumis à de pénibles épreuves, image de celles qui attendent l'homme sur la route des enfers, dans les noirs pays d'outre-tombe. Longtemps il courait dans les ténèbres. Obstacles, bruits étranges, apparitions monstrueuses, toute une mise en scène était habilement disposée pour lui inspirer un effroi sacré. Son imagination affolée peuplait l'ombre de fantômes et de démons. Accablé de fatigue, étreint d'angoisse, suant et frissonnant d'épouvante, il croit que sa dernière heure est venue.* « J'approchai des limites du trépas ; je foulai du pied le seuil de Proserpine, » affirme le myste isiaque d'Apulée. Mais, au moment où il pense succomber, une lueur le guide. Il se souvient des réconfortantes paroles du prêtre, lors de la résurrection d'Attis : « ayez foi, mystes ; pour nous aussi de nos épreuves viendra le salut. » Une ouverture se devine, petite et basse, comme celle d'une crypte; ou simplement une épaisse tenture ferme l'extrémité d'un couloir sombre.* Il se glisse par l'étroit passage, ou sous le rideau, en clamant avec la mélopée des incantations la formule confessionnelle : « dans le tympanon j'ai mangé ; dans la cymbale j'ai bu ; je suis devenu myste d'Attis.* » Et tout à coup à l'obscurité malfaisante succède une radieuse clarté. Il est dans le « Pastos » de Cybèle. La déesse l'attend, accompagnée de ses suivantes. Seules en effet avec les prêtres, ce semble, les femmes ont accès dans cette chambre de gynécée.* Au fond se dressent deux trônes, somptueusement préparés par les prêtresses. Tout autour sont rangées les suivantes, tenant des objets liturgiques, des vases sacrés et des lampes. L'un des trônes est celui de la Dame. Sur l'autre s'assied l'initié.* Peut-être lui met-on dans les mains les attributs d'Attis, bâton ou flambeau,* après l'avoir revêtu d'une somptueuse chlamyde et coiffé d'un bonnet phrygien. Il est possible aussi qu'il y ait eu, comme symbole d'union mystique, imposition de la couronne tourelée 3. Devant l'élu et devant la déesse qui le fait participer à sa gloire, les personnages sacrés dansent et chantent. Ils accomplissent les gestes rituels de la salutation et prennent les attitudes de l'adoration.* Dans l'éblouissement de cette _Thronôsis_, le myste pouvait s'imaginer qu'il était vraiment devenu dieu.*
 
+*) Le Pastos paraît être identique au Thalamos et au Cubicnlum. Thalamépoles de la déesse en Asie Mineure : Anthol. Pal. VI, 173 (femme), 220 (un Atys qui dédie à Kubélè, sur les bords du Sangarios, une Thalamè, sans doute une grotte) ; ce titre était aussi donné aux eunuques fie harem, cf. Plut., Alex. 30. Thalamoi de la déesse sur les monts Kubela : Hesych., cf. supra, p. 16, n. 2. Thalamoi de la Meter Lobrinè (grottes) : schol. ad Nicand. Alexipharm. 8. Cubiculum de Mater Deum au promontoire de Circeo : CIL. X, 6423. De même, Cubiculum d'Isis dans Apul., Met. XI, 17 ; Thalamos d'Atargatis dans Lucian., De a Syr. 31. Le Pastophorion était une chapelle secrète dans les temples sémitiques. Le Pastos était aussi un petit tabernacle portatif, renfermant une image de la divinité.
+
+*) Cf. Hesych., s. v. [GREC]. Sur le sens du mot moriturus dans le passage de Firmicus Maternus cité supra, p. 181, n. 2, voir Hepding, Attis, p. 194 s; cf. Apul., Met. XI, 23 : « Accessi confmium mortis et calcato Proserpinae limine, etc. ; nocte media vidi solem candido coruscantem lumine ; deos inferos et deos superos accessi coram et adoravi de proxumo ».
+
+*) Le mot Pastos indique un objet brodé ; c'est le rideau brodé du lit nuptial. Par extension il a pris le sens de chambre nuptiale.
+
+*) Sur les deux variantes citées supra, p. 181, cf. Dieterich, Eine Mithras-liturgie, p. 217, et Hepding, Attis, p. 184 s.
+
+*) CIA. II, 1, 624. Décret des Orgéonsdu Pirée, vers l'an 180 av. J.-C., cf. Poland, Gr. Vereinswesen, 1909, p. 548. Parmi les fonctions de la prêtresse : [GREC], _etc._
+
+*) Le texte précédent est expliqué par un passage de Platon, Euthyd. 277 D, relatif aux-miystères des Corybantes : [GREC]. Le myste de Sabazios s'asseyait sur le [GREC], celui d'Isis se tenait debout sur une estrade « ante deæ simulacrum », Apul., Met. XI, 24.
+
+*) Cf. Apul., l. c. : « Manu dextera gerebam flammis adultam facem », dit le myste d'Isis. On l'avait aussi coiffé d'une couronne de feuillage et revêtu de la stola Olympiaca.
+
+*) C'est ce que pourrait signifier le passage de saint Augustin cité supra, p. 181, n. 2, où il est question de la couronne tourelée de Cybèle. La couronne de la déesse est figurée sur un autel dédié par des mystes « de la Religion», CIL. XII, 405. Un rite signalé par Synesius (début du v° s. après J. C.), Ep. 3, p. 639 H, consistait à couronner de tours les fiancées, comme Cybèle ; sur les ressemblances entre rites de mariage et rites d'initiation, cf. S. Reinach, Cultes, etc., I, p. 309.
+
+*) Hypothèse suggérée par Prudence, l. c. 1048 : « Omnes salutant atque adorant », quand le taurobolié sort de la fosse, régénéré par le baptême.
+
+*) Farnell, Cuits of the greek States, III, p. 301 : « The solemn [GREC] was part of the mesmeric process winch aimed at producing the impression of déification in the mortal ».
+
 Désormais son salut est assuré. C'est alors qu'a lieu la Tradition des derniers Symboles, _Signa et Symbola_. Les autres lui avaient permis de franchir chaque degré de l'initiation.* Ceux-ci sont les instruments et les gages de l'éternel bonheur : signes de reconnaissance, amulettes qui le protégeront, instructions secrètes qui lui permettront d'arriver au but, paroles infaillibles, qui lui ouvriront l'entrée des béatifiques demeures. Pour nous faire une idée de ces instructions, il faut lire celles du rituel orphique au 6e siècle, écrites à la pointe sur des lames d'or et déposées dans les tombeaux des initiés. Aussi bien, Kybélè y figure-t-elle parfois avec Démeter et Gê Pammêtor, la Terre Mère universelle.* « Tu trouveras dans les demeures d'Hadès, à gauche, une source voisine d'un cyprès blanc ; garde-toi de cette source et n'en approche point. Tu en trouveras une autre, dont les eaux fraîches coulent du lac de Mémoire. Et des gardiens se tiennent devant. Dire : De la Terre et du Ciel étoilé je suis l'enfant ; mais moi (l'âme), j'ai une origine céleste* ; je suis desséchée et me meurs de soif ; donnez-moi vite de l'eau fraîche qui coule du lac de Mémoire. Et ils te donneront à boire de la source divine.* » Sur la route que suivaient les mystes de Cybèle, Dame des sources et des eaux vives, probablement aussi jaillissaient de pernicieuses ou bienfaisantes fontaines. « J'arrive pure et issue de pures, reine des Enfers, et vous tous, dieux immortels. Car moi aussi je me glorifie d'être de votre race bienheureuse. Maintenant me voici suppliante devant la sainte Perséphonè, afin que sa grâce m'envoie au séjour des âmes pures. » Ou bien, sûre du triomphe, l'âme disait : « J'ai pris mon vol, j'ai échappé au cercle terrible des pesantes douleurs ; je suis entrée dans la couronne désirée ; je suis descendue dans le sein de la Despoina, reine des enfers.* » Et l'initié sait à l'avance quelles seront les paroles de bienvenue : « Salut et joie, à toi qui as subi la souffrance* ; mortel tu es devenu dieu. Salut et joie ! prends la route de droite, vers les prairies sacrées et les bois de Perséphonè.* » Au me siècle de notre ère, les mystes d'Attis invoquent de même, avec Cybèle, Mère des Dieux, la Terre Mère et Aerecura, qui est l'un des aspects de Proserpine.* Ils invoquent aussi Mercure Evangelos, qui les conduit auprès des Grands Dieux.* Peut-être sont-ils guidés sur la voie des enfers par leur Bon Ange, comme les Sabaziastes.* Nous ne savons s'ils croyaient, comme ceux-ci, à un jugement des âmes. La conscience morale, élargissant de plus en plus son domaine, avait fini par transformer l'eschatologie de tous les mystères.
 
+*) Arnob. V, 26 : « Symbola quae rogati sacrorum in acceptionibus respondent ».
+
+*) Cf. supra, p. 35, et une inscription provenant de Crète : Joubin, dans Bull. Corr. Hell., 1893, p. 177 ; voir aussi H. Weil, Études sur l'antiquité grecque, 1900, p. 37 ss. A l'influence des Thraces, il faut ajouter celle de la mystique babylonienne, qui paraît avoir été considérable sur les cultes anatoliens de la Métèr, précisément vers ce vie s. ; cf. Gruppe, l. c., p. 15-14 ss.
+
+*) Cf. l'écho de ces croyances dans certaines formules gravées sur les tombeaux de mystes, à l'époque impériale ; CIL. III, 6384 : « Corpus habent cineres, animam sacer abstulit aer » ; V, 2160 ; VI, 9663: In hoc tumulo jacet corpus exanimis cuius spiritus inter deos receptus est ». A propos des mystes de Cybèle, Prudence, l. c., 1065, emploie l'expression « caelum meretur. »
+
+*) IGSI. 638.
+
+*) Ibid. 641.
+
+*) Cf. les paroles du prêtre au moment de la Résurrection d'Attis. Il semble bien qu'il y ait, dans cette notion phrygienne de la souffrance qui purifie, une influence de l'orphisme.
+
+*) Ibid. 642 ; cf. S. Reinach, op . I. Il, 1906, p. 123 ss.
+
+*) CIL. VIII, 5524 ; Cagnat, Ann. épigr ., 1895, 81. D'autre part, on a retrouvé des figurines de Cybèle dans un temple de Demeter et Persephonè, à Halicarnasse : Newton, Halic., Cnidas and Branchides, p. 328.
+
+*) Hermès porte cette épithète dans les mystères de Samothrace ; cf. H. Psychagôgos, Psychopompos : Hippolyt. V, 7 (à propos des Naasséniens, qui ont beaucoup emprunté aux mystères phrygiens). Rôle d'Hermès dans les mystères de Cybèle : Pausan. Il, 3, 4 ; Julian., Or. V, p. 179 B ; CIL. VI, 499 (supra, p. 167, liste B, 3). --- Sur les monuments figurés de l'époque impériale, Mercure apparaît à côté de Cybèle et d'Attis. Tablettes de bronze en forme de « naiskoi » :Ovid., éd. Burmann (Amsterdam, 1727), III, p. 247 ; Friederichs, Kleine Kunsl, 2005 b ; Jahrbuch d. Inst., 1892, Archaeol. Anzeiger, p. 111, n° 15. Lampe en terre cuite, à Borne, Palais des Conservateurs, salle des terres cuites, vitrine centrale : Cybèle assise entre Attis et Mercure. Pectoral de l'archigalle publié par Montfaucon : Cybèle debout, entre Zeus et Hermès. Stèle de Trajanopolis. Monnaie de Thyateira: Mionnet, IV, p. 166, n° 955 (Caracalla). Peut-être le caducée sur un autel taurobolique, CIL. XII, 1568.
+
+*) Cf. le tombeau d'un antistes Sabazis: Garrucci, Tre sepolcri con pitture d. superstiz. pagane , Naples, 1852, et dans les Mélanges d'archéol. de Cahier et Martin, IV, 1854, p. 1 ss ; Maass, Orpheus , 1895, p. 205 ss ; Cumont, Les mystères de Sab. et le judaïsme, dans C. r. Acad. Inscr., 1906, p. 72 ss).
+
 Pendant de longs siècles, en effet, ceux de Phrygie n'avaient contenu aucun enseignement moral. D'abord ils n'étaient destinés qu'à faire réussir les récoltes d'une communauté, d'une tribu, d'un peuple. Comment s'opéra la substitution des félicités d'outre-tombe aux prospérités delà vie présente ? Toutes les divinités chtoniennes sont en même temps des divinités infernales. Elles reçoivent dans leur sein les défunts comme elles reçoivent les semences ; elles peuvent donc leur préparer une semblable destinée. Dans les mystères d'Eleusis, la présentation de l'épi de blé, rite final de l'époptie, « ne constituait sans doute à l'origine qu'un rite agricole ; il n'y avait rien à y changer pour en faire un symbole de palingénésie humaine.* » Dans les mystères métroaques d'Anatolie, la nature même du mythe facilitait cette substitution. Mais, quel que fût l'objet des rites, ils gardaient une portée magique. Jusqu'aux derniers temps du paganisme, dans les symboles et formules des mystères phrygiens, l'antique magie ne perdit jamais complètement ses droits.* L'idée morale, toutefois, n'avait pas attendu l'empereur Julien ni les clarissimes du IVe siècle pour améliorer et spiritualiser la vieille doctrine. En Orient même, la notion de pureté rituelle, largement développée sous la double influence de l'orphisme et du sémitisme, lui en avait ouvert l'accès. Ce sont les Galles surtout qui, dans le monde occidental, nuisent à la réputation de ces mystères.* D'autre part, ce sont des adversaires, les polémistes chrétiens, qui dénoncent l'immoralité de ces nocturnes cérémonies. A dire vrai, en dehors de tout enseignement moral, par les seules préoccupations qu'elle suppose et les seules disciplines qu'elle impose, l'initiation était capable d'éveiller les consciences, d'exalter la vie intérieure, de réagir heureusement sur les âmes. « Ceux qui ont participé aux mystères, » rapporte Diodore de Sicile, « passent pour devenir plus pieux, plus justes et meilleurs en toutes choses. »
+
+*) Goblet d'Alviella, l. c., p. 351.
+
+*) La tablette de bronze reproduite dans V Archaeol. Anzeiger, l. c., forme diptyque avec une autre plaque où figure un dieu barbu (Sabazios ?) à bonnet phrygien, entouré d'une quantité considérable de symboles évidemment magiques.
+
+*) Saint Augustin, Ci v. Dei VII, 26, indique nettement que la consécration du Galle correspond aux mêmes idées que celle du simple myste : « Ut post mortem vivat beate ». Sur la participation des Galles à la tradition des mystères dans les cérémonies d'initiation, cf. Justinus Martyr, Apolog. I, 27, p. 70 E; Augustin., op. I. VI, 7.
 
 # Chapitre 5
 
@@ -1991,11 +2047,69 @@ Entre toutes les divinités venues d'Orient, la déesse phrygienne occupait depu
 
 Déjà Mâ-Bellone, l'Omnipotente et l'invaincue, qui possédait à Comana de Cataonie plus de six mille hiérodules des deux sexes,* avait dû s'effacer ici devant elle. La grande déesse* de la Cappadoce et du Pont se résignait au rôle de dame de compagnie. Les Romains la considéraient comme la suivante et la servante de la Mère des Dieux.* Aussi bien, les Bellonaires font-ils partie du cortège de l'Idéenne. On les voit processionner avec les Galles, se joindre à eux pour mendier dans les maisons,* se taillader les bras, comme eux, pour offrir des libations de sang humain. On ne les distinguerait pas des Galles s'ils ne portaient la robe noire. Rome confond les uns et les autres sous la dénomination commune de fanatiques. Parmi les statues de Cybèle retrouvées à Rome, il en est une qui lui fut consacrée par un fanatique de Bellona Pulvinensis.*
 
+*) Strab. XII, 2, 3.
+
+*) « Dea Magna », Tibull. I, 6, 50.
+
+*) « Dea pedisequa », CIL. VI, 3674 a ; Cagnat, Ann. épigr., 1898, n° 61. Sur la frise de Pergame, Enyo, autre aspect de Bellone, est rapprochée de Cybèle : Puchstein, Zur pergam. Gigantom ., dans Sitzungsber . Ahad. Berl., 1889, p. 330.
+
+*) Juven. VI, 512: « Bellonàe Matrisque deum chorus ». Le clergé de Bellone était organisé comme celui de la M. d. D. et comportait des prêtres des deux sexes ; cf. une grande prêtresse, Tibull. I, 6, 43.
+
+*) CIL. VI, 490. La statue est au musée des Thermes de Dioclétien.
+
 Une autre déesse mère,* l'égyptienne Isis, admise dans le panthéon romain au temps de Caligula, sut mieux sauvegarder son indépendance. Elle fut même une redoutable rivale de l'Anatolienne. Les prédications de ses prêtres, habiles théologiens, lui gagnaient de nombreux prosélytes ; et les séductions de son culte attiraient vers elle bien des âmes féminines. Cybèle et Isis vécurent cependant en bonne intelligence. Les deux déesses avaient déjà pris contact en Asie Mineure, au temps où les Ptolémées occupaient militairement une partie de la côte.* Elles eurent en Italie des chapelles communes.* Parfois la Grande Mère admet Isis à partager son temple municipal, l'un des plus importants de la ville, et son clergé officiel, où les meilleures familles s'honorent d'entrer.*
+
+*) Les dédicaces s'adressaient en général à Isis Regina , parfois aussi à Isis Mater. Sur les causes de l'attraction exercée par la religion égyptienne sur le monde romain, cf. Cumont, Religions orientales dans le paganisme rom., 1907, pp. 106-123.
+
+*) En Égypte même, cf. les rapports d'Isis avec la phrygienne Misé (v. supra, p. 13), importée à Alexandrie : Orph., Hymn. LII, 9 s.
+
+*) CIL. V, 4007, sur la rive droite du lac de Garde : « Matri Deum et Isidi... fanum et pronaum ex voto ».
+
+*) CIL. IX, 1153, à Aeclanum, au temps de Domitien.
 
 A plus forte raison les autres divinités orientales, transportées sur une terre étrangère où elles demeurent hors la loi, recherchaient-elles avec empressement l'appui de l'Idéenne. Leurs prêtres, sans cesse menacés d'expulsion, avaient tout bénéfice à se concilier un puissant clergé. De plus, certains cultes, qui se seraient mal adaptés à la religion gréco-romaine, pouvaient s'assimiler aisément au nouveau culte phrygioromain. Une affinité naturelle rapprochait de Cybèle et Attis tous ces émigrés. Sans renier leur foi, des Syriens et des Phéniciens pouvaient invoquer la Mère des Dieux, qui est reine du ciel, prier dans ses sanctuaires et lui consacrer des monuments votifs. En pénétrant dans un Metrôon, l'adorateur d'Atargatis croyait retrouver sa déesse syrienne. Assise sur le lion ou trônant entre deux lions, coiffée du calathos, vêtue du chiton et du péplum, tenant d'une main le sceptre royal et de l'autre le tambourin, la dame de Bambyce ressemble, à s'y méprendre, à celle de Pessinonte.* Ce sont deux sœurs, affirme un Galle dans le roman d'Apulée.* Toutes deux ont leurs Galles eunuques; et l'analogie des rites explique celle des images. C'est la même divinité, déclare un officier-poète, qui vivait au temps des Sévères.* A Héliopolis (Baalbek), la déesse locale a revêtu le double aspect de Cybèle et d'Atargatis.* Il en est de même à Ptolémaïs* et à Gabala,* pour les parèdres du Baal solaire au caducée. A Samarie, la Baalat du mont Garizim, entourée de lions, une patère dans la main droite, le bras gauche appuyé sur le tympanon, ne diffère plus de la Mère Phrygienne.* Il n'est donc pas surprenant qu'un Ascalonite transplanté en Dalmatie, un soldat probablement, ait dédié dans un temple de la Mère des Dieux un autel aux divinités d'Ascalon.* Par reconnaissance, il ajouta sur la dédicace le nom de la Mère hospitalière ; enfin, pour qu'à son Baal et à son Astarté correspondît un couple divin, il réunit à la Grande Mère le Grand Janus, seigneur latin du ciel et Père des Dieux.* Dans la ville cosmopolite d'Ostie, un Levantin de l'Asie sémitique, adorateur d'Aphrodite Astarté, choisit le Metrôon pour y consacrer une figurine de Vénus.* De même jadis, au Pirée, quand les Phéniciens de Citium n'avaient pas encore fondé le temple de leur Aphrodite Ourania, c'était dans le Metrôon qu'ils déposaient leurs ex-voto* ; et d'autres Orientaux y apportaient des offrandes à leur Artémis Nana, qui est une déesse chaldéo-babylonienne.* Sur les bords du Rhône, entre Tarascon et Arles, on a trouvé une patère historiée où figure l'Astarté aux colombes ; elle porte une dédicace à Magna Mater.* La théologie astrologique autorisait toutes ces confusions. Car la planète Vénus, qui est en rapport avec Atargatis et Astarté, comme avec Isis, est également consacrée à la Mère des Dieux.* Ainsi s'explique la divinité complexe de la Mère des Dieux Aphrodite,* que l'on adorait au Pirée dans le premier siècle de notre ère. La coutume sémitique des triades divines, importée dans certaines villes cosmopolites d'Occident, contribua aussi au développement de ce syncrétisme. Brindes possédait un temple de Mater Magna, Dea Suria et Isis.*
 
+*) Monnaies d'Hierapolis à l'effigie de Caracalla, d'Alexandre Sévère, de Mammaea, des deux Philippes et d'Otacilia ; l'identification de la divinité est assurée par l'exergue : [GREC]. Déesse accostée de deux lions : Mionnet V, pp. 141 et 142, n°851, 52, 54, 55, 58; Wroth, Catal. Galatia, etc., pl. XVII, 14 et 17 ; cf. un groupe de statuettes votives à Rome, CIL. VI, 115, 116, 399. Elle est décrite sous cet aspect par Lucien, DeaSyr., 31 (cf. Reinach dans Rev. archéol., 1902, I, p. 31) et Macrobe, Saturn. I, 23, 18. --- Assise sur le lion : Mionnet, l. c., n°“ 50,53, 56, 57 ; Wroth, l. c., pl. XVII, 15, etpp. 144, 145. Ce type existe déjà au iv» siècle avant notre ère, avec la légende « Até » en syriaque : Six dans Numism. Chronicle, 1878, p. 103; de Vogué, Mél. d'arch. or., p. 47 ; Babelon, Monnaies gr., Perse et Phénicie, p. lu, fig. 15 ; cf. Six, l. c., 1884, p. 112, n° 24, monnaie d'un satrape de Cilicie, au temps d'Alexandre. Sur de nombreuses monnaies de Phrygie et de Galatie, à l'époque impériale, Cybèle est aussi assise sur le lion ; v. en particulier Pessinonte (M. Aurèle, L. Verus, Caracalla).
+
+*) Met. IX, 10 : « Deum mater sorori suae deae syriae ». Sur les rapports de Cybèle avec les grandes déesses sémitiques : Baudissin, Stud. z. semit. Relig., II, p. 203 ss.
+
+*) CIL. VII, 759. Le type des lettres est du me s.
+
+*) CIL. VI, 423 (prise à tort pour Rhea). La Vénus Iléliopolitaine trouvée dans le temple rond du ni" s. de notre ère est également assise, mais accostée de sphinx : Frauberger, Akrop. von Balbek, 1892, p. 5, fig. 4 ; S. Reinach dans Rev. archéol., 1902, I, pp. 19-33 et pl. II-IV.
+
+*) Mionnet V, p. 481, n" 42 ; Cohen, 2e éd. V, p. 334, Valérien père, n° 369; derrière la déesse, prise à tort pour Cybèle, un caducée. Sur les Baals au caducée, cf. Dussaud, Notes de mythol. syrienne, dans Rev. archéol., 1903, I, p. 142 s.
+
+*) Déesses improprement dénommées Cybèles par Mionnet, V, pp. 234-238, n08 633 (Trajan), 639 (Commode), 646 (Julia Domna), 653 (Caracalla); Wroth, op. L, pl. XXVIII, 7-10, 13; cf. Dussaud, l. c., 1903, I, p. 365, et 1904, II, p. 247, fig. 26.
+
+*) Monnaie de Philippe père: De Saulcy, Numism. delà Terre Sainte, p. 266, n° 5, 6; Cohen, l. c., p. 3 31, noa 363, 364. A rapprocher d'un bronze d'Otacilia, Cohen, l. c., p. 157, n° 118 : déesse tourelée, debout, le pied droit sur un lion couché, la main g. sur la haste, la dr. tenant le mont Garizim. L'ancien temple du Garizim avait été détruit par Jean Hyrcan, au n° s. av. J.-C. ; il fut remplacé par un temple romain où l'on vénérait le Jupiter et la Vénus d'Héliopolis.
+
+*) CIL. III, 6428: « Dis Asca(lonitanis) et Matri Magn(ae) Iane (sic) M(agno)». La déesse représentée sur les monnaies d'Ascalon est une Astarté : De Saulcy, op. L, pl. X, 1, 5 et 11 (peut-être influencée ici par Isis). Hérodote I, 105, dit que la divinité locale est Aphrodite Ourania, et Pausanias I, 14, 7, qu'elle est d'origine phénicienne ; cf. Dussaud dans Rev. archéol., 1904, II, p. 242.
+
+*) Sur le rapprochement de Cybèle et Janus, CIL. VIII, 11797, et Augustin., Civ. Dei VII, 28 : « Dicitur caput deorum Ianus, caput dearum Tellus, Mater scilicet magna » ; de même, 3 : « Ianus omnium initiorum potens » ; cf. Graillot, dans Rev. archéol., 1904, I, p. 344 s ; ajouter Lyd., De mens. IV, 3, sur Janus, souverain des âmes.
+
+*) Visconti dans Monumenti IX, 1869, pl. vin, et Annali, 1869, p. 210 ss et 222 s : statuette de Vénus nue, à sa toilette, en bronze ; musée du Latran ; Helbig, Guide, 1893, I, n° 699 ; Reinach, Répert. de la Stat. II, 1, p. 359.
+
+*) Foucart, Assoc. relig., pp. 99 et 198. On voit aussi une prêtresse d'Aphrodite Syrienne offrir des sacrifices à sa déesse pour les Orgéons de la Mère des Dieux. Sur les rapports d'Aphrodite et de Cybèle à Chypre, cf. Dieterich dans Philologus LII, 1894, p. 12.
+
+*) CI Att. III, 131 (sous l'empire) ; sur cette déesse, cf. supra, p. 12.
+
+*) CIL. XII, 5697, 3.
+
+*) Plin., H. n. II, 37 : « Alii enim Iunonis, alii Isidis, alii Matris Deum appellavere ». Bouché-Leclercq, Astrol.gr ., p. 343. Noter que le Taureau, consacré à Cybèle, est pour les astrologues le véhicule d'une divinité lunaire, dont ses cornes symbolisent le croissant et qui répond au type d'Ishtar-Astarté-Aphrodite ; il est la maison astrologique de Vénus.
+
+*) CI Att. III, 136; Sybel, 436, et Arndt-Amelung, Einzelaufn. III, n° 724. Déjà Charon de Lampsaque dit que Kybébè est l'Aphrodite des Phrygiens et des Lydiens : Fr. Hist. Gr. IV. p. 627 ; cf. Hesychius, s. v. Cybebè : « C'est la Mère des Dieux, dit-il, et aussi Aphrodite ».
+
+*) CIL. IX, 6099. Sur une intaille, triade Sérapis, Cérès, Cybèle : Tassie et Raspe, Descripl. catal. of gems, 1496 ; Lafaye, Divin. d'Alexandrie, p. 315, n" 174. --- Sur une lampe, triade Sérapis, Isis, Cybèle : Lafaye, op. I., p. 304, n° 134. --- Triade syrienne sur une intaille de l'époque impériale : Furtwaengler, Geschnitt. Sleine im Antiq. Berl ., 7158, et pl. LIV ; triade syro-phénicienne dans un temple à triple cella, sur une monnaie d'Orthosia : Mionnet, V, p. 366, n° 187 (Eliogabal) ; cf. De Vogüé, Inscr. sémil., p. 77, n" 126. C'était une conception chaldéenne, que les dieux se groupaient par triades : Maspero, Hist. a ne. des peuples de l'Orient, I, p. 650.
+
 Quant au dieu perse Mithra, il avait, dès le temps des Achéménides, au 6e siècle, suivi en Asie Mineure ses mages émigrés. Des colonies de Maguséens, c'est-à-dire de mages, s'étaient en effet implantées en Cilicie, en Cappadoce, en Phrygie, en Galatie et dans le Pont, « conservant partout les lois de leurs ancêtres et les rites de leurs mystères.* » Pendant de longs siècles, le dieu avait paisiblement vécu au milieu des tribus phrygiennes. Entre les conceptions religieuses des deux cultes un rapprochement et des échanges s'étaient produits. La doctrine persique avait épuré les croyances indigènes. Mithra sut profiter, en Occident, de ces antiques relations avec la Grande Mère. Le plus ancien Mithraeum que nous connaissons en Italie, antérieur à l'année 142, est contigu à un Metrôon municipal.* A Milan, nous constatons des rapports entre les mystes du dieu iranien et les Dendrophores de la Mère Phrygienne.* Dans presque toutes les localités où nous rencontrons la déesse, nous retrouvons Mithra.* Il semble que, sur toute l'étendue de l'Empire, les deux cultes aient vécu en intime communion. Ils se complétaient l'un l'autre. Seuls, en effet, les hommes sont admis aux cérémonies secrètes du mithriacisme. L'austérité de ses dogmes religieux proscrit l'élément féminin. La religion métroaque, tout au contraire, sentimentale et sensuelle, faite pour les âmes tendres et passionnées, s'adressait de préférence aux femmes. Non seulement elle les initiait à tous ses mystères ; mais elle leur réservait aussi, dans la liturgie mystique comme dans le culte public, un rôle de protagonistes. Cybèle « accueillit les épouses et les filles des mithriastes. »
+
+*) Bardesane dans Euseb., Praep. evang. VI, 10, 37; v. les autres textes réunis dans Cumont, Mithra, I, pp. 9 et 10.
+
+*) A Ostie ; cf. Cumont, op. L, I, pp. 245, 265, 333 ; II, pp. 418 et 523.
+
+*) CIL. V, 5465.
+
+*) A l'aide des textes épigraphiques et des monuments figurés, j'ai pu faire la constatation pour ces villes d'Italie : Angera (Milan), Aquilée, Bénévent, Bergame, Bolsène (?), Brescia, Lanuvium, Ostie, Padoue, Pola, Praeneste, Sentinum, Syracuse, Tibur, Velletri, Vérone ; --- de Gaule : Lyon, Vienne, Vieux-en-Val Romey, Trêves et, sur les bords du Rhin, Bonn, Cologne, Mayence, Rheinzabern ; --- d'Afrique : Philippeville et Sétif.
 
 Le patronage de l'Idéenne fut certainement précieux pour toutes les divinités de l'Asie dont l'existence était illicite. Mais la déesse en retira pour elle-même un bénéfice considérable. D'abord son clergé tenait ainsi la haute main sur les cultes d'importation orientale. Il pouvait exercer sur ces autres cultes une véritable police, encouragée sans doute par l'administration municipale, qui le nommait, et par l'Etat, dont il dépendait en dernier ressort. C'était un surcroît d'autorité morale pour ce clergé qui, par ailleurs, prenait déjà tant d'importance dans la vie religieuse du monde romain. Il aArait, de plus, un avantage matériel à détourner vers ses propres temples la dévotion des Asiatiques. Cette foule d'émigrés comprenait des gens de toute classe, surtout des esclaves, il est vrai, mais beaucoup d'affranchis parvenus, de riches marchands, de fonctionnaires impériaux, dont la piété pouvait être généreuse. Il s'efforça donc d'élargir sa religion, pour satisfaire au plus grand nombre possible de dévotions. Aussi bien, au contact incessant de cultes similaires, cette transformation était-elle devenue fatale. La Grande Mère, qui laisse Isis et l'Ourania trôner à ses côtés, qui accepte dans son sanctuaire les ex-voto de leurs adorateurs, peu a peu s'approprie certains de leurs attributs et une part de leur puissance. Le couple phrygien finit même par s'assimiler complètement plusieurs divinités anatoliennes. Alliances, compromis, assimilations partielles ou totales, tels furent, pour le culte métroaque, les éléments d'une vie nouvelle et supérieure. L'évolution, commencée en Asie Mineure, s'achevait en Italie.
 
@@ -2003,23 +2117,277 @@ Le patronage de l'Idéenne fut certainement précieux pour toutes les divinités
 
 Cybèle n'est pas seulement déesse « de grand pouvoir* » ; elle est la Dame de toute puissance, parèdre de Zeus Pantocrator. Ainsi se l'imaginait-on, invisible et présente, sur la cime de l'Ida* et sur celle du Sipyle* ; ainsi l'invoquait-on à Délos dans le temple des Dieux Étrangers, où les Syriens venaient prier Hadad et Atargatis, couple divin de leur ville sainte.* Elle tient le sceptre* ; car elle partage avec Zeus la domination du monde, et « Zeus ne fait rien sans elle.* » L'aigle du dieu va se poser à côté de la déesse, dont il manifeste ainsi la souveraineté.* « Assise sur le trône du roi Zeus,* » elle est Reine : _Basileia, Anassa_.* En elle s'absorbe la personnalité de toutes les Junons de Syrie, de Grèce et de Romë. Elle est la reine de tout, _Pambasileia_ ; elle est celle qui soumet tout à son empire, _Pamdamator_.* Elle est la Dame suprême, _Despoina_,* _Domina_, comme Zeus est le suprême Seigneur ; etseule elle a le droit de porter ce titre.* Car elle est à l'origine des choses ; on l'appelle l'_Archegonos_.* Elle est « celle qui existe par elle-même » et qui n'a pas eu de mère.* Sœur de Cronos, disait-on, elle était devenue son épouse,* et elle avait engendré Zeus, qui devint aussi son époux. Mais, à vrai dire, le Zeus Idéen et Phrygien s'identifie lui-même à Cronos, à Saturne, à Janus, à ce dieu du temps et de la durée que d'autres cosmogonies déclaraient antérieur au dieu du ciel ; il est Cælus Aeternus Jupiter Optimus Maximus.*
 
+*) [GREC] : Apoll. Rh. I, 1151 ; cf. l'épithète Suvarij, Ramsay, Cities and Bis h., p. 154. [GREC], conjecture de Domaszewski clans Arch. ep. Mitt. VII, 18S3, p. 176, à propos d une inscr. de Phrygie ; mais il s'agirait delà Mère des Dieux du bourg de Cranos Mégalos : Mordtmann dans Ath. Mitth. X, 1885, p. 14; Radet dans Archives des Missions, 1895, p. 272, n" 21; cf. Ath. Mitth. XXII, 1897, p. 352.
+
+*) Ils y avaient tous deux un autel : Ps. Plut., De flum. 13; en Arcadie, sur le mont Azanion, on les adore tous deux more Idaeo : Lact. Plac., ad Stat. , Theb. IV, 292.
+
+*) Zeus Acraios et le lion de la Mère Sipylène sont réunis sur des monnaies de Smyrne : Mionnet III, p. 208, nos 1139-1141; Suppl. VI, p. 320, n° 1570; Macdonald, Hunterian Coll., greek coins, p. 370, n° 132 = British Mus. coins, pl. xxvii, 5. Ajouter : Cybèle et Zeus Hypsistos sur des reliefs mysiens, Bull. Corr. Bell., 1899, p. 598; Zeus et Meter Dindyménè à Cyzique, ibid. 1888, p. 187 ; Zeus Sôter et la M. d. D. Agdistis à Eumeneia, Phrygie : CIG. 3886 ; Zeus et Cybèle sur des monnaies de Maeonia, 1.3'die : Babelon, Coll. Wnddinglon, 5058. De môme, sur les monnaies d'Hierapolis de Syrie, on voit le couple de Baal au sceptre et d'Atargatis au lion.
+
+*) Hauvctte dans Bull. Corr. Hell., 1882, p. 502, n° 25. Sur l'union de Zeus et de Cybèle dans le culte phrygio-romain, monuments figurés : l'Attis d'Ostie appuyé sur le buste de Zeus Idéen ;Zeus avec le sceptre et le foudre, sur un pectoral que porte l'archigalle reproduit par Montt'aucon ; buste de Zeus sur la poitrine d'une « sacerdos maxima », au musée du Vatican, CIL. VI, 2257; id. sur la ciste votive de l'archigalle Modius Maximus à Ostie, C/Z.., XIV, 385 ; id. sur le manche du fouet de l'archigalle, au musée Capitolin.
+
+*) [GREC], Orph., Hymn. XXVII, 4 ; Fulgent., Myth. 111,5 : « sceptrum fert ». Attribut fréquent sur les monnaies d'Asie-Mineure ; cf. Pessinonte (M. Aurèle : Imhoof Blumer, Monn. gr., p. 415, n° 172; Mionnet IV, p. 394, n° 122), Ancyre (Sévère : Mionnet IV, p. 379, n° 29), Eucarpia en Phrygie (Gordien le pieux : p. 291, n” 556), Nacoleia (Trajan: p. 346, n° 870), Daldis-Flaviopolis, Lydie (Commode : Macdonald, op. L, II, p. 450, n° 2), Hermocapelia (Heliogabal : Mionnet IV, p. 46, n° 240), Magnésie du Sipyle (Otacilia, Philippe j. : p. 480 s, n0' 438, 441), Nicée (Antonin, Maxime, Trébonien : Mionnet II, p. 452, n° 219; Suppl. V, p. 144, n° 834, et p. 154, n° 898).
+
+*) Julian., Or. V, pp. 166 et 180. L'hymne orphique XXVII, 5, dit que son trône occupe le centre du Cosmos. Ce trône est la Terre, considérée comme centre de l'ui.ivers. D'autre part, Serv. ad. Aen. XII, 118 : « Mater Deum, cuius potestas in omnibus zonis est ».
+
+*) Intaille de l'époque impériale : Furtwaengler, op. L, p. 267, n° 7158. Aigle décorant l'autel sur lequel sacrifie une grande prêtresse : CIL. VI, 2257 ; éployé sur une sphère, symbole de Caelus (Cumont, Milhra , I, p. 88), sur un autel taurobolique : CIL., XII, 1827. Sur les rapports de l'aigle et du dieu Soleil, cf. Cumont, l. c., p. 120. v
+
+*) Julian., l. c., pp. 170 et 180. Pindare exprime la même idée, lorsqu'il dit qu'elle occupe « le trône le plus élevé » : Ol., II, 140.
+
+*) Meter Basileia, cf. supra, p. 40. Anassa : Orph., Arg., 604,611 et Ilymn., XLI, 1 et 9. Regina : Firm. Mat., De err. prof. rel. III, 1. Le titre de reine lui est commun avec Demeter, Persephone, Aphrodite, Nemesis, Artémis (cf. à Pergé), Isis, Astartè (Plut., De Iside et Os., 15). Mais, de même que Milkat, c'est-à-dire la Reine par excellence, est Astartè, de même la déesse adorée en pays de langue grecque sous le nom unique de Basileia paraît bien être Cybèle, d'après Diodore, III, 57 ; cf. Loeschke, Dorpat. Programm, 1884 et Roscher, Ueber Selene, 1890, p. 96.
+
+*) Orph., Hymn. XIV, 7. Sur toutes ces épithètes, ref. Bruchmann, Epi-Theta deorum quae apud poetas yraecos legnntur, 1893, s. vv. Kubelè et Rhea.
+
+*) Orph., Hymn. XXVII, 12; Nonn., Dionys. XXV, 322; cf. Pasikrateia, qui paraît être un vocable mystique de Persephonè en Sicile : IGSI. 268 (ve s. av. J.-C.).
+
+*) Aristoph., Al'. 877 ; cf. Iiuria, àlconium : J. of Ilell. St. XXII, 1902, p. 341, n° 64. C'est l'épithète ordinaire des déesses sémitiques. A la même idée se rattache l'épithète de Grande ; cf. Megalè Anaeitis, J. of Hell.St., X, 1889. p. 226 : Megalè Artémis : Ramsay, Sludies in the Hist. and Art of the East. Prov., 1906, p. 319; Magna Virgo Caelestis : CIL. VIII, 9796.
+
+*) Serv. ad Aen. III, 113 : « sane dominam proprie Matrem Deum dici Varro et ceteri adfirmant ». Sur ce titre, cf. Roscher, Myth. Lex., I, 1, 1197, s. v. Domina et II, 1, 1767, s. v. Kyria.
+
+*) Orph. Hymn., XIV, 8 (mais elle est dite aussi fille du Prôtogonos polymorphe, ibid., 1); Nonn. , Dionys. XIII, 291 ; Ps. Eudoc., Floril., éd. Flach, p. 370 : [GREC]. Dans Orph., Argon. 604, elle est nommée [GREC]. En Egypte, cf. la Nit de Sais, mère de Rà, « la première qui naquit au tempsoù il n'y avaitpas encore eu de naissance ».
+
+*) Julian., l. c ., p. 166. Certains mythes lui attribuent comme mère Gê, Basileia ou Dindymè, qui sont d'autres aspects d'elle-même.
+
+*) Nigidius dans Arnob. III, 32 : « Matrimonium tenuisse Salurni » : doctrine des théologiens de Rome à la (in de la République.
+
+*) CIL. VI, 81 ; cf. 404 : « Iovi Optimo Maximo Caelestino » par un « collegium sanctissimum » qui devait être composé d'Orientaux, adorateurs d'un Baal Shamin, « maître des cieux ». Le Baal de Baitocaicé devient Zeus Ouranios : Lebas-Wadd. 2720 a. De même, Jupiter Frugifer dans Apul., De mundo 37, est analogue au Saturne Frugifer de l'Afrique impériale, qui est l'ancien Baal des peuples syro-puniques ; cf. à Lambèse, CIL. VIII, 18219 un Jupiter O. M. deorum princeps, coeli terrarumque rector.
+
 L'_Optima Maxima_* est reine du ciel. Elle est VOurania. Comme Astartè, Atargatis et Isis, « elle gouverne les voûtes lumineuses.* » Sans douté, suivant la méthode astronomique d'exégèse qui était à la mode sous l'Empire, des théologiens prétendaient-ils que le nom même de Cybèle rappelait la coupole du firmament.* Quand elle chevauche le lion, principe igné, symbole astral,* pour parcourir triomphalement l'espace, son péplum qui flotte au vent se gonfle en demi-cercle et ressemble à la voûte céleste.* Les cymbales, qui lui sont consacrées, prenaient la même signification symbolique.* Elle préside à la révolution des astres.* Voilà pourquoi elle a pu gratifier Attis du bonnet étoilé, image du ciel visible.* Elle a pour doryphores les Corybantes, qui sont des dieux héliastes.* On lui associe les Dioscures, autres divinités astronomiques, dieux grands, que l'on confondait avec les Cabires syriens, et que nous retrouvons aux côtés d'Héra Ourania, d'Astartè, de Baal-Saturne.* Parfois le flambeau, emblème de la lumière astrale, remplace dans sa main le sceptre* ; ou bien elle tient la clef qui ouvre les célestes portes,* comme le Samas babylonien, « qui tire les verrous du ciel pour que le monde entier devienne resplendissant.* » Devant la couronne tourelée, elle porte le diadème, « dont se pare généralement seul, » affirme Lucien, « le front d'Ourania » ; on y voit même luire le croissant, surmonté du disque lunaire, insigne d'Isis.* Ailleurs son visage s'encadre des bustes d'Hélios et de Sélénè,* ou de deux étoiles, celle du matin et celle du soir,* ou des signes du zodiaque,* ou d'un nimbe lumineux.* La tête radiée du soleil se dresse au sommet de son trône,* ou au fronton des petites cha'pelles qu'on lui dédie en ex-voto.* La planète Vénus brille sur son tambourin.* Elle-même est la Brillante.* Et parce que le cours des astres et la marche des saisons s'accomplissent avec une immuable régularité, on l'invoque aussi sous le nom d'Isodromos.* Dans un temple de Galatie, elle est la Mère aux quatre visages, Mêter Tetraprosôpos,* c'est-à-dire la déesse des quatre saisons. Son quadrige en est le symbole.
+
+*) CIL. X, 4829 : Matri Deum Optimae Maxim. ; taurobole du 2e s.
+
+*) Apul., Met. XI, 5. Atargatis a pour symbole le croissant lunaire associé au disque solaire ; cf. Dussaud dans Rev. archéol., 1904, II, p. 228. De même l'égyptienne Nouit, personnification du ciel étoilé, est aussi Mère des Dieux.
+
+*) Cf. supra, p. 16, n. 2.
+
+*) Julian., l. c. 167 B et 168 B: Macrob., Satura. I, 21, 8 et 17 ; Mythogr. Vat. III, 8, tome II, p. 53. Le babylonien Nergal, dieu du soleil dévorant, est un lion ailé à tête humaine. Il y a là d'antiques croyances d'origine astrologique ; le soleil traverse le signe du lion au moment de la canicule et y possède même son domicile.
+
+*) Mionnet, Suppl. VI, p. 144, n° 424 (Ëphèse, sous Antonin), p. 537, n" 485 (Stratonicée) ; cf. à Clazomène, Mionnet, III, p. 74, n° 101, la déesse tenant dans chaque main les extrémités de son voile.
+
+*) Elles figuraient les deux hémisphères du ciel qui enveloppent la terre, six des signes zodiacaux se trouvant toujours au-dessus de la terre et six au-dessous (Manil. III, 240). Cymbales, bonnet phrygien et lion groupés comme symboles uraniens sur une intaille : Furtwaengler, op. I. 7032.
+
+*) Orph., Hymn. XXVII, 4.
+
+*) Julian., l. c., p. 165 B ; Sallust. phil., De diis et rttundo 4.
+
+*) Julian., l. c., p. 168 B (sur la signification astrologique du mot doryphorie,v. Bouché-Leclercq, Astrol.gr ., p. 253); Clem. Al., Cohort. 2 ; cf. Fraenkel, Inschr. v. Pergamon, 68 ; supra, pp. 8 et 133. Pour les monuments figurés, v. infra, à propos des acrotères du temple de l'Idéenne.
+
+*) V. les textes et monuments que j'ai réunis dans la Revue archéol., 1904, I, pp. 345-347.
+
+*) Monnaies de Kibyra, à l'effigie d'Heliogabal : Mionnet, IV, p. 261, n° 394; Babelon, Coll. Wadd. 5837, repr. pl. xv, 20 ; de Philadelphie, Babelon, op. I. 5128 et pi. xiv, 16.
+
+*) Froehner, T. cuites Gréau, pl. iv ; Serv. ad Aén. X, 252.
+
+*) Fragment d'hymne à Samas, cité dans Chantepie de la Saussaye, Manuel d'hist. des Religions, 1904, p. 138.
+
+*) Tête en marbre blanc sur buste en marbre jaspé, à Rome, au musée du Capitole, salle des Colombes, n° 25. C'est un portrait de femme, avec la couronne murale de Cybèle, influencée par la coiffure d'isis (les symboles lunaires sont accompagnés de serpents) ; antérieur à la seconde moitié du ne siècle, d'après la technique des yeux.
+
+*) Intailles antérieures à l'empire : Furtwaengler, op. I., p. 85, n° 1438 et pl. xvi (= Mueller-Wieseler, 2° éd, II, pl. i.xm, 808; Dar. et Saglio, s. v. Cybelé, fig. 2246) ; --- de basse époque : Furtw., p. 316, n° 8626. Cybèle, mère d'Hélios et de Sélénè, cf. supra, p. 40, n. 4.
+
+*) Intaille au Cabinet de France : Chabouiliet, Cat. 1408.
+
+*) Monnaie d'Adana, en Cilicie : Mionnet, III, p. 564, n° 133 (Gordien III). Médaillon contorniate : deux signes du zodiaque, bélier (équinoxe du printemps) et cancer (début de l'été), au-dessus du quadrige de lions qui emporte Cybèle et Attis; au-dessous du char, femme à demi-couchée, peut-être la Vierge (équinoxe d'automne), ainsi représentée sur des reliefs mithriaques (Cumont, Mithra, II, mon. 246 h et 251 d) : Robert dans Rev. numism. 1885, p. 47, pl. v, 6 (cf. p. 15, et pl. ni, 7) ; Dar. et Saglio, l. c., fig. 2252 (la femme indiquée à tort comme symbole de la Phrygie) ; Cohen, 2° éd. VIII, contorn. 362 (cf. 105 et 213).
+
+*) Plaque de marbre gravée, au Cabinet de France : De Longpérier, OEuvres, II, pp. 360-362 ; reprod. dans Dar. et Saglio, l. c., fig. 2250; cf. Stephani, Nimbus und Strahlenkranz, p. 47 s.
+
+*) Même plaque. Reliefs en bronze, v. supra, p. 1S6, n. 2 ; dans le tympan du naiskos, buste radié d'Hélios dominant le quadrige solaire. --- Monnaie de Briula, Lydie : buste d'Hélios et, au revers, Cybèle ; Mionnet, IV, p. 24, n" 123; Macdonald, op. I. II, p. 449, 1 et pl. lv, 14.
+
+*) Relief provenant d'Asie M., sans doute de Smyrne : Bullellino , 1829, p. 80. --- Croissant dans le champ, sur une plaque de bronze en forme de naiskos, reprod. par Burmann dans son Ovide, t. III, p. 247.
+
+*) Médaillon en bronze, à l'effigie de Lucilla (Cybèle, assise sur le lion, tient le sceptre) : Grueber et St. Poole, Roman med. in the British M., 1874, p. 12 et pl. XXVI, 2 ; Froehner, Méd. rom., p. 97. --- Plaque gravée, v. supra, n. i. L'étoile est à huit rayons. Ce type d'étoile est, dans l'écriture chaldéenne, le signe de la divinité : Heuzey, Oriçj. or. de l'art I, p. 8.
+
+*) Anthol. Gr., VI, 234, 3.
+
+*) Temple, sous ce vocable, dans la vallée du Caïstre : Strab. IX, 5, 19.
+
+*) A Kutchuk Hassan : J. of Iiell. St. XIX, 1899, p. 303, n° 237.
 
 Il est aussi le symbole des quatre éléments.* Maîtresse du monde sidéral, elle dispose en effet de toutes les forces de la nature. Elle possède le feu qui illumine le ciel, qui anime les êtres vivants, qui provoque la croissance des plantes, qui fond les métaux,* qui constitue le foyer du monde et de la maison,* qui brûle sur l'autel et dans les lampes perpétuellement allumées de son sanctuaire. De même que la déesse syrienne, elle emprunte au seigneur des cieux le oudre* ; et c'est elle qui lance sur la terre les météorites embrasés. L'air est en son pouvoir.* Le mythe lui donne pour suivante Aura, qui personnifie la brise.* Comme Isis et Caelestis, « elle gouverne les souffles de l'Océan.* » Elle envoie ou retient les tempêtes, comme Astartè. Elle est aussi la déesse des eaux éternelles,* de même que certains dieux sémitiques sont les « seigneurs des fleuves. » Dans l'iconographie métroaque, le dauphin et le cratère représentent l'élément humide,* comme les génies ailés et les oiseaux envolés figurent l'élément aérien,* comme le lion symbolise le feu. Ainsi que la Céleste punique, elle est « celle qui promet la pluie.* » Elle est dispensatrice de la rosée.* Elle fait jaillir les sources qui fertilisent et celles qui guérissent.* Son culte est lié à celui des Nymphes.* Elle protège les étangs, leslacs et les cours d'eau. Elle est la dame de la mer ; onia met en rapport avec l'Aphrodite Pontia,* qui rappelle l'Astartè maritime des Sidoniens, sans doute aussi avec l'Isis Pelagia. Sur les promontoires de la côte mysienne, ses temples se dressent comme des phares de salut. Les marins l'implorent comme leur patronne et déposent à ses pieds leurs ex-voto.* Enfin sa domination s'étend sur l'élément solide. Elle a parmi ses attributs le serpent, qui passait pour naître de la terre.* Au siècle des Antonins, dans ses sanctuaires d'Hiérapolis, en Phrygie, de Myra, en Lycie, d'Aphrodisias, en Carie, elle est encore la dame aux serpents.*
 
+*) Cf. le quadrige cosmique du soleil avec cette double signification : textes dans Cumont, Milhra, I, p. 126.
+
+*) Sur ses rapports avec l'art des forgerons, en Phrygie, v. infra, p. 202.
+
+*) Elle est mère d'Hestia-Vesta ; cf. Gruppe, op. L, p. 1406. Mais elle est aussi confondue avec elle : Orph., Hymn. XXVII, 9 ; Arnob. III, 32 ; Augustin., Civ. Dei IV, 10. Sur l'idée pythagoricienne qui esté l'origine de cette identification : Gruppe, op. L, p. 1406, n. 6 ; Gomperz, Les penseurs de la Grèce , I, 1904, p. 127.
+
+*) Aristophane, dans les Oiseaux, dit que Basileia = Cybèle) « dispose de la foudre de Zeus » ; cf. Basileia disparaissant dans un orage Diod. III, 57. L'orchestre phrygien imite le bruit de la foudre et les lampadophories rituelles symbolisent l'éclair, d'après le Ps. Eudoc., Florileg., éd. Flach, p. 619. Le nom de Cybele (Kubile) ne serait-il pas à rapprocher de Gibil, le dieu-éclair des Assyriens ? 
+
+*) Orph., Hymn. XIV, 11.
+
+*) Nonn., Dionys. XLVIII, 238.
+
+*) Apul., Met. XI, 5 ; cf. Lafaye, Di v. d'Alexandrie , p. 255. En Numidie, au in” s., dédicace à Caelestis : « Tu nimbos ventosque cies », CIL. VIII, 4635 = Buecheler, Carm. Lat. Epigr., 254, vers 2.
+
+*) D'après l'une des plus anciennes théogonies, elle est fille d'Okeanos ; cf. Gruppe, op. Z., p. 421. C'est de l'élément humide que la déesse syrienne « avait tiré les principes et les semences de tous les êtres » ; Plut., Crass. 22.
+
+*) Dauphin : stèle de Trajanopolis (Phrygie) au musée du Louvre :Bull. Soc. Antiquaires , 1901, p. 350, n° 54 ; dauphin et poisson : CIL. III, 13903 (Salone). Cratère: fronton du temple de l'Idéenne au Palatin, v. infra. Sur le symbolisme du cratère (= source) dans les mystères mithriaques : Cumont, Mithra, I, p. 101.
+
+*) Génies ailés : stèle de Trajanopolis. Oiseaux: ibid. ; patère du musée d'Avignon : CIL. XII, 5697, 3.
+
+*) Ps. Eudoc., op. L, p. 618 : [GREC] ; cf. une inscr. de Phrygie dans Ath. Mitt ., 1900, p. 421. La pluie joue un rôle dans le mythe ; cf. supra, p. 40, n. 4. En Afrique, Virgo Caelestis est « pluviarum pollicitatrix » : Tertull., Apol. 23. Sur une fête des Kabyles en l'honneur de la « fiancée des eaux » : Masqueray dans Bull. Corr. Afr. I, 1882, p. 11.
+
+*) Comme la planète Vénus, qui lui est consacrée en Phrygie. Il n'est pas nécessaire d'admettre que la Lune et, par suite, les seules divinités lunaires dispensent la rosée : P. Lagrange, Et. Belig. sémit., p. 127 s ; Dussaud dans Rev. archéol. 1903, I, p. 125 s.
+
+*) Dans le mythe rapporté par Arnobe, V, 6, il y a la source, « fons familiaris », d'Agdistis ; v. aussi supra, p. 9. Sur le lion gardien des sources, en Assyrie et en Egypte, cf. O. Relier, Die antike Tierwelt I, 1909, p. 48 .
+
+*) Cf. supra, pp. 11, 35 et 117. A l'époque romaine : Cagnat, Ann. épigr. 1905, n° 140, Matri dsum et matronis Salvennis (déesses des eaux salines de Moutiers).
+
+*) Relief de Cyzique : Mordtmann dans Ath. Mitt. X, 1885, p. 204 ; il croit à tort qu'il n'y a pas de relations entre la dédicace à Aphr. P. et le relief qui représente la M. d. D. Celle-ci est implorée pendant une tempête par l'Amazone Myrina, qui naviguait entre Lesbos et Samothrace : Diod. Sic., III, 54.
+
+*) Conze dansAl/i. Mitth., XVI, 1891, pp. 191-193; Perdrizet dans Bull. Corr. Ilell . , XXIII, 1899, p. 597 etpl. V, 1 : relief de Bryllium, sur la côte mysienne, avec les images de Cybèle, Hypsistos et Hermès ; derrière un promontoire, vaisseau de guerre.
+
+*) Les devins de Telmissos expliquaient déjà le symbolisme du serpent à Crésus : Herodot. I, 78; cf. Plin., II. n. VIII, 59.
+
+*) Mionnet, III, p. 439, n" 51 ; IV, p. 298 s, n°s 588, 597 ; Goblet d'Alviella, Migrations of symhols, 1894, p. 142 ; Philpot, Sacred tree , 1897, p. 87, fig. 24. EnLydie,cf. le médaillon publié dansles Mélanges Perrot, 1903, p. 141 ss.
+
 Son caractère chtonien primait tous les autres.* C'était comme déesse de la terre que les Piomains l'avaient d'abord connue et vénérée. Il ne semblait pas douteux aux théologiens de l'école symboliste que la forme de son tambourin reproduisait l'orbe terrestre.* Si elle habite de préférence les hauts lieux, elle aime à parcourir sur son char de lions la terre tout entière. Elle tient sous sa tutelle les forêts de la montagne et les cultures de la plaine. Elle fait pousser la verdure nouvelle des arbres et mûrir les fruits.* Aussi la voyons-nous parfois avec une corbeille de fruits posée sur sa tête ou sur ses genoux* ; et l'extrémité de son sceptre s'épanouit en fleur.* Elle répand ses bénédictions sur les champs.* Comme Ishtar, Isis, Déméter et Cérès, elle a enseigné à ses premiers adorateurs l'usage du blé. Elle est la dame des moissons, la _Cereria_, l'_Agraria_* ; sur plusieurs images cultuelles, en Asie Mineure, elle porte à la main un bouquet d'épis.* C'est elle encore qui fait prospérer les vignobles* ; à Cyzique, sa plus ancienne image était sculptée dans un cep de vigne.* Dionysos, roi des vendanges, romanisé sous le vocable de Liber Pater, est un dieu du cycle métroaque* ; sa statue prend place dans l'enceinte du Metrôon.* Cybèle enfin maîtrise le lion, parce qu'il est le démon des régions infertiles, que dévore le feu du soleil. Souveraine des fauves, elle défend contre leur férocité les troupeaux que la terre nourrit.* Couronnée de tours, comme la Tychè poliade, elle préside à la destinée des villes dont se peuple la terre. A sa divinité sont également soumises les forces souterraines. Dans les profondeurs de la terre, d'après une conception primitive, sommeille l'énergie créatrice qui éveille la nature à la vie. Qui possède ce mystérieux domaine est maître de toutes ces puissances, qu'elle met au service des hommes par l'intermédiaire de ses prophètes. C'est elle, nous l'avons vu, qui des entrailles du sol fait sourdre les eaux bienfaisantes. Les minerais que recèle la terre lui appartiennent aussi. C'est par elle que les Dactyles ldéens ont connu les premiers l'art d'exploiter et de travailler les métaux* ; c'est à elle que les Phrygiens doivent leur habileté de forgerons.* Des cavernes, entrées du monde infernal, lui sont consacrées. Il n'est pas rare, en Anatolie, qu'un Metrôon s'élève dans le voisinage immédiat d'un Plutonium.* La déesse, en Afrique, est associée ou identifiée à Aerecura, qui partage le trône de Dis Pater. Comme à Proserpine, on lui met en main la grenade et le pavot, symboles funéraires.* La reine du ciel et de la terre est aussi reine des enfers.
+
+*) Augustin., Civ. Dei IV, 10 : « Terrain matrem deum vocant » ; VI, 8 : « Mater deum terra est » ; cf. VII, 16 et 28. --- Tertull. Adv. Marcion. I, 13 : « Vulgaris superstitio. . . figurans magnam matrem in terram, etc. ». --- Arnob. III, 32 : « Terram... matrem esse dixerunt magnam ». --- Anonyme de 394, dans Baehrens, Poet. Lal. Min. III, p. 286, v. 94 : « Terra parens, mater formosa deorum » ; Macrob., Sat. I, 21, 7 : « Quis ambigat Matrem Deum terram haberi ? » --- Image de Terra mater, dans la schola des dendrophores d'Ostie : CIL. XIV, 67 (ann. 142) ; on connaît en Numidie la triade Terra Mater, Aerecura, Mater Deum Magna. Mais la M. d. D. n'est pas plus confondue avec Tcllus ou Terra qu'elle ne l'était jadis avec Gê (Rhea, fille de Gaia : Callim., Fragm. 258, éd. Schneider ; Orph., Argon. 554).
+
+*) Varr. dans Augustin., op. I. VII, 24 ; Serv. ad Georg . IV, 64. La comparaison de la forme de la terre avec celle d'un tambourin est déjà dans Anaximandre ; cf. Gomperz, Penseurs de la Grèce , I, 1904, p. 121.
+
+*) [GREC] : Orph., Hymn. LVIII, 6.
+
+*) Monnaies de Kibyra, sous Heliogabal : Mionnet IV, p. 261, n° 394 ; Babelon, Coll. Wadd. 5837 et pl. XV, 20 ; sous Gallien : Loebbecke, dans Zeilschrift f. Numism. XII, 1885, p. 344, n" 3 et pl. XIV, 6.
+
+*) Peut-être s'agit-il ici de l'éclair-fleur, symbole de la reine des cieux ; cl'. Jacobsthal, Der Blitz in der orient, u.gr. Kunst, 1906.
+
+*) Elle les désensorcelé : Augustin., l. c.
+
+*) CIL. III, 796, et supra, p. 118. Ishtar est « déesse des céréales, dispensatrice de l'aliment ». Sur l'unification des Mères du blé, cf. Goblet d'Alviella, dans Beu. Hist. Religions 1902, II, p. 190 s.
+
+*) Mionnet, IV, pp. 280 et 291, n°s 495 et 556; H. Weber dans Num. Chronicle , XII, 1892, p. 208, n* 38 et pl. XVI, 18; cf. sur des intailles : Furtwaengler, Geschnitl. Steine, pp. 267 et 319, nos 7158 et 8714 (basse époque); Tassie et Raspe, op. I. 797 ; Visconti, Opéré varié III, p. 401 ; sur un camée, supra, p. 112. On voit aussi des épis dans la main d'Atargatis ; et Virgo Caelestis est qualifiée de spicifera, CIL. VII, 759.
+
+*) Greg. Tur., Inglor. confess. 77 : « Pro salvatione agrorum ac vinearum ».
+
+*) Apoll. Rh. I, 1117 ss, et schol. (= Meineke, Analecta Alexandr., p. 150, cxlvi) ; cf. Roem. Mitt. XIV, 1899, p. 8. Sur un pithos de Béotie, lîhéa entre deuxlions; des pampres lui sortent de la tête : Milani, Studi e maleriali I, p. 8, fig. 8.
+
+*) Cf. supra, pp. 15, 45. Midas, fils de la M. d. D., thiasote de Dionysos • cf. Dieterich dans Philologus, LII, 1894, pp . 5 et 6. Strabon, X, 3, 13, insiste sur le lien qui unit les deux cultes. Au ne s., prêtre de la M. d. D. et de Dionysos Kathégémôn : CIG. 6206 = IGS1. 1449. A la fin de l'Empire, Julien, l. c., pp. 179 B et 180 A, signale la parenté mystique des deux divinités.
+
+*) CIL. VIII, 8457 et 13440 ; cf. Rev. archéol. 1904, I, p. 350. Participation des prêtres de Liber aux tauroboles : CIL. XII, 1567 (ann. 245).
+
+*) Dédicace pour le salut « des hommes et des quadrupèdes » en Asie Mineure : J. of Hell. St. XIX, 1899, p. 303, n° 237. Incantations « pour la naissance et le salut des fruits et des troupeaux», Dion. Chrys., Or. I, p. 61. Dans le mythe rapporté par Diodore, III, 58, Cybèle enfant enseigne des remèdes pour les bestiaux malades.
+
+*) Diod. Sic. XVII, 7, 5 : [GREC]. Strabon, X, 3, 22, déclare qu'ils on! les premiers travaillé le fer dans l'Ida et que, selon la tradition générale, ils se rattachent au cycle de la M. d. D. ; cf. les deux Dactyles Titias et Kyllenos, parèdres de la déesse sur le Dindymos de Cyzique, d'après Apoll. 'Rh., Argon. I, 1127, et leur culte dans le Metrôon de Milet, d'après le scholiaste, citant Maiandros. Strabon ajoute qu'on les croit quelque peu magiciens. L'art de forger les métaux dut garder longtemps un caractère surnaturel; aujourd'hui encore, au nord-ouest du Soudan, les forgerons forment une caste qui passe pour posséder des pouvoirs magiques : Réville, Religion des non-civilisés, I, p. 40. Wilamowitz, dans Naclirichten Gesellscli. zu Goettingen, 1895, p. 241 s, compare les Dactyles aux nains (Daümlinge) des bois. Voir aussi Rossignol, Métaux dans l'antiq. p. 27 s ; Milchhoefer, Anfange der Kunst, p. 26 ss. Sur le rôle des forgerons armés de la lance, dans le culte du soleil, v. les forgerons du dieu solaire Ilorus : Maspero dans V Anthropologie II, p. 401 ss et dans Bibliothèque éggptologique, II, p. 313 ss; et les forgerons ou chaudronniers en Irlande et dans le pays de Galles : Déchelette, Le culte du soleil, cf. supra, p. 4, n. 3.
+
+*) De très bonne heure les Phrygiens excellaient dans le traitement du minerai. Aussi Théophraste attribue-t-il la découverte du bronze au phrygien Délas : Plin., H. n. VII, 57, 6. Mais les Phr. étaient forgerons, et non bronziers. Dans le plus ancien tumulus fouillé à Gordion (environ 700 av. J.-C.), les bronzes paraissent être tous d'importation et ont été réparés avec du fer : G. et A. Koerte, Gordion, 1904, p. 91 s.
+
+*) Cf. en Asie Mineure, Hiérapolis de Phrygie, Synnada, la grotte Steunos; en Béotie, le Metrôon consacré par Echion : Ovid., Met. X, 686 ; en Campanie, supra, p. 34.
+
+*) Grenade ou pavot : grande lampe en terre cuite, à 3 anses, où Cybèle figure entreAttis ctMercure,v. supra, p. 186 n. 2 ; cf. Catal. du musée Fol, Anliq.. II, p. lli, n° 1905. Caractère funéraire de la Grenade: Boetticher, Baumkultus der Hellenen, 1856, p. 471 ss. Son rôle dans le mythe et dans le culte : v. supra, p. 120. --- Pavot, en général avec des épis, cf. p. 201 n. 5. Relief du musée de Berlin, dans Bonn. Iahrh. XXIII, pl. xxxi. Sur une antélixe enterre cuite, provenant d'un sanctuaire métroaque, un pavot orne la proue du vaisseau de l'idéenne ; Visconti dans Annali , 1867, p. 297 et tav. d'agg. G. Ce fruit apparaît aussi dans la main des Attis funéraires. --- Enfin, sur le caractère plus particulièrement funéraire du titre de Basileia, cf. Gruppe, op. L, p. 1521.
 
 L'Omnipotente est l'Omniparente. La déesse « sans mère » est par excellence la Mère, Ammas,* la mère universelle, la Pammétôr,* de même que Zeus est le Pappas,* père de tout.* Mais, par un divin mystère, la dispensatrice de fécondité reste la Vierge,* comme l'Ishtar des Babyloniens, comme P Allât nabatéenne, comme la Céleste des Phéniciens et des Carthaginois, C'est pourquoi on l'assimile à Pallas* et Artémis* ; ses dévots de Bénévent, aux 2e et 3e siècles, ne l'appelaient que la Minerve du Bérécynthe. « Première entre les habitants du ciel, » la Mère des Dieux réunit virtuellement en elle les puissances multiples de tous les dieux issus d'elle. Avec Z eus, elle « engendre et organise tous les êtres » ; comme les dieux sémitiques, « seigneurs des naissances, » elle est « maîtresse de toute vie,* cause de toute génération.* » Elle est donc l'Aphrodite éternelle. Hermès Epaphroditos est invoqué par ses mystes.* Eros voltige près de son char* ou se dresse sur un cippe, près de son trône.* A Tarse et sur la côte ionienne, dès l'époque hellénistique, Attis se métamorphosait lui-même en Cupidon.* Dans les temples romains de l'Idéenne, on dédie des Amours* ; et Mars, que la chorographie astrologique unit à Vénus-Cybèle, a son image dans la chapelle des Dendrophores d'Ostie.*
 
+*) Hesych., s. v. ; il attribue aussi ce titre à Demeter, identifiée à Cybèle, cf. Gruppe, op. L, p. 1542, n. 1.
+
+*) Orph., Aryon . 547 ; Apul., Met. VIII, 25: « omnipotens et omniparens »; Firm. Mat., De err. prof. rel. III, 1 : « Phryges hanc volunt omnium esse matrem » ; Augustin., Civ. Dei II, 4 : « Berecynthiae matri omnium » ; CIL. VI, 499 : n summa parens » ; 509 et 30780 = IGSI. 1018 et 1020 (IVe s.) ; Nonn., Dionys. XIII, 35. Le mythe de l'androgyne Agdistis suppose une croyance analogue; cf. Gruppe, op. I. , p. 1546.
+
+*) V. supra, p. 15; Pappas dans l'onomastique phrygienne, Bull. Corr. Bell. 1882, p. 515, et dans l'onom. thrace, Tomaschek, Wien. Sitzunysbe.r. CXXX, 1894, p. 42. De même, la M. d. D. est l'Ammas : Etymol. mayn., s. v. [GREC] ; c'est aussi le nom delà déesse-mère des Phéniciens; CISem. I, 177 (Carthage).
+
+*) Julian., l. c., p. 166 A.
+
+*) Parthenos : Julian, l.c. ; cf. supra, p. 5. Dans le mythe raconté par Arnobe, Zeus ne parvint pas à la posséder, quand il voulut lui faire violence sur le sommet de l'Agdos. De même la Vierge céleste est identifiée tantôt à Diane (CIL. VIII, 1421), tantôt à Vénus (V, 8137, 8138), tantôt à Junon (VIII, 1424) ou à Mater Deum (VII, 759) ou à Dea Nutrix (VIII, 8245-8247 ; cf. Audollent, Carthaye , p. 377). Il n'est cependant pas sûr quelle se confonde avec Tanit, laquelle fait expressément fonction de déesse -mère : Clermont-Ganneau, Et. d'arch. or. I, p. 152. Le mythe totémique des vierges-mères se retrouve dans de nombreuses légendes de l'ancien et du nouveau monde ; exemples cités par Frazer dans son commentaire à Pausanias VII, 17, 11 = tome IV, pp. 138-140 ; cf. Lang, Mythes, cultes elreliy., 1896, p. 486.
+
+*) Statuette de Cybèle (?) portant l'égide de Minerve et trônant entre deux lions : Matz et Duhn, Ant. Bildw. in Rom, 1881, I, 904. Julien, l. c., p. 179 A, insiste sur l'affinité des deux déesses. L'astrologie les rapprochait et les identifiait, en attribuant à Minerve le bélier zodiacal. D'autre part, si la mère est qualifiée de Vierge, on connaît une Athéna qui porte le vocable de Meter : Pausan. V, 3, 2 ; Clermont-Ganneau, L' imagerie phénicienne, p. 107, n. 3. La Minerve d'Ancyre a des rites identiques à ceux de la Pessinontide ; cf. supra, p. 137 s. La Dame de Gabala, tourelée et assise entre deux lions, tient une chouette : Mionnet V, p. 234, n° 633 (Trajan).
+
+*) Gruppe, op. L, pp. 1532-1540 : Kybele der Artémis gleichgesetzt.
+
+*) Julian., l. c., p. 166 A.
+
+*) Orph., Hymn. XXVII, 13.
+
+*) Paus. II, 3, 4 ; Julian., l. c., p. 179 BC ; cf. supra, p. 186, n. 2.
+
+*) De Wilde, Gemmae selectae antiquae, 1703, p. 4 et pl. II, 2.
+
+*) Smyrne, monnaie à l'effigie de Julia Titi : Mionnet, III, p. 225, n° 1261.
+
+*) Heuzey, Les fragments de Tarse au musée du Louvre , dans la Gazette des B .-Arts, 1876, II, p. 404 et figg. 4, 12 (--- Pottier, Statuettes de t. c., p. 188, fig. 61), 13 (= Cumont, Mithra. II, p. 437, fig. 381); Pottier et Reinach, Fouilles de Myrina, pp. 398 et 405, pl. XXXI, 210, 215; t. c. de Myrina au musée de Berlin, Arch. Anzeiger, 1889, p. 90. Autres types: Panofka, Terrakotl. zu Berlin , pl. XXV, 2 ; de Witte, Coll. Janzé, pl. VII, 2. En général, aux attributs d'Eros s'ajoutent des attributs dionysiaques.
+
+*) CIL. XIII, 2500.
+
+*) CIL. XIV, 33 (ann, 143); cf. supra, p. 125.
+
 Mère des hommes, la déesse est maîtresse de leur fortune, puisqu'elle est reine du ciel et que le sort des humains est réglé parle mouvement quotidien des astres.* Elle distribue à chacun son lot ; elle est la Némésis,* et elle est en même temps la suprême justice.* Elle veille sur tous et elle voit tout. « Pas un homme, bon ou mauvais, n'échappe à sa connaissance* » ; elle est l'inévitable, Adrasteia.* Il faut redouter sa colère quand elle se revêt de terreur; car elle est la Forte, l'impétueuse, l'Effrayante ; et « ses pieds sont rapides.* » Si elle est la Paix,* elle est aussi la Bellone « qui excite le tumulte de la guerre* » ; les Romains savent bien qu'elle est « reine dans les combats.* » Son pouvoir de destruction égale sa puissance de création. Aucune force ne lui résiste. Elle a pour emblème le lion tauroctone.* Mais elle est, avant tout, bonne et bienveillante. La Pandôra, « qui orne et remplit de ses dons tout le monde visible,* » se plaît à répandre sur les hommes ses bénédictions et ses bienfaits. Elle est la source et le fleuve intarissable de bonheur. Jamais on ne l'invoque en vain. Accessible à tous, toujours prête à donner assistance, elle est la dame de Bon Secours.* Sagesse, Prescience et Providence,* si elle nous envoie des peines, c'est pour notre salut. Car elle est celle qui sauve.* « Elle sauve ce qui naît et ce qui meurt.* » Elle sauve et conserve les hommes, les familles, les villes, les empires. Mère « et nourricière de vie,* » elle a des grâces particulières pour les nouveau-nés ; les mères lui vouent leurs enfants chétifs, vont les poser dans ses bras, et elle exauce leurs supplications.* Ceux qui souffrent peuvent aller vers elle avec foi. Car elle guérit les malades.* Elle leur indique les fontaines miraculeuses, les remèdes efficaces ; et ses prophètes d'Orient pratiquent la médecine, dont elle leur a transmis les secrets.
 
+*) Intaille de basse époque, Furtwaengler, op. l., 8626 = Mueller-Wieseler, taf. LXIII, 809 : Cybèle avec sceptre et tympanon ; devant elle, Fortune avec corne d'abondance et gouvernail ; pour préciser le caractère de la reine des cieux, buste d'Hélios radié et croissant de lune, entre les deux divinités. La Mère est parfois représentée avec la corne d'abondance qui est l'attribut de Tyché : Mionnet, IV, p. 368, n° 988 (Synnada, sous Hadrien) et p. 379, n" 29 (Ancyre, sous Septime Sévère). De même, Fortuna deae Caelestis: CIL. VIII, 6943 ; Philastr., De haeres. 15 : « fortunam Caeli quam et Caelestem vocant in Africa ». Sur la M. d. D. et la Fortune des Augustes ou des villes, cf. supra, pp . 161 s, 166.
+
+*) CIL. XIV, 34 : imaginem Malris Deum cum signo Nemesen, à Ostie, sous Marc Aurèle. A Smyrne, leurs deux cultes étaient associés, ainsi que leurs attributs : lion de la M. d. D. posant une patte sur le tambourin, griffon de N. posant une patte sur la roue: Cybèle assise, tenant deux images de Nemesis : Mionnet, III, p. 239, n° 1342. Le caractère funéraire de N. (fille de la Nuit, mythe smyrniote, Pausan. VII, 5 ; Nemeseia, fête des morts) contribue à la rapprocher de la M. d. L)., surtout à Smyrne, où celle-ci est gardienne des tombeaux. Mais N. est aussi une divinité cosmique : reine, CIL. III, 827, 1438, etc. ; « la grande N.-, souveraine du Cosmos », CIL. VI, 532 = IGSI. 1012 ; par suite elle est, eommela Grande Mère, maîtresse de la Fortune: CIL. III, 1125 : de ae Nemesi sive Fortunae ; Capitol., Max. et lialb. VIII, 6 ; Amm. Marc. XIV, 11,25; Mart. Cap. I, 88. Aussi la voyons-nous également unie ou identifiée à Isis. : Apul. Met, XI, 2 ; et même au soleil : Macrob., Sal. 1,22, 2.
+
+*) Artemidoros (époque antonine), Oneirocrit. II, 39, éd. Ilercher, p. 145, déclare qu'elle « cause la perte de ceux qui violent les lois » ; CIL. VII, 759 (sous les Sévères) : Virgo Caelestis ( eadem Mater divuni), iusli inventrix,... lance vitam et iura pensitans. Est-ce bien Cybèle qui tient une balance dans la main droite, sur une monnaie de Prymnessos, en Phrygie, Alh. Mitl., VII, 1882, p. 135 s ?
+
+*) Julian., I. e.,p. 160 ;cf. Artemid., l. c.
+
+*) V. supra, p. 13. Sur les rapports d'Adrasteia avec Nemesis, cf. Posnansky, Aem. und Adr., 1890 ; avec Cybèle : ibid., pp. 26, 68, 174. La frise de Pergame nous montre A. etla M.d. D. côte à côte. Lewy, Semii. Fremdw. im Griech., p. 248, ne croit pas que son nom soit d'origine grecque et y voit la forme grécisée d'un vocable sémitique ; il lui attribue le sens de « vengeresse » ou de « vigilante. »
+
+*) [GREC] : Orph., Hymn. XIV, 7 (cf. Demeter Brimô = celle qui gronde de colère) ; [GREC], Anth. pal. VI, 219, 1 ; [GREC], Nonn., Dionys. I, 20 ; [GREC], ibid., XIV, 1 ; [GREC], ibid., XXI, 33. Chez Agdistis, « robur invictum et ferocitas animi », Arnob. V, 6.
+
+*) CIL. VII, 759.
+
+*) [GREC], Orph., Hymn. XIV, 7 ; cf. supra, pp. 32, 36, 93. Furtwaengler, op. I., 2838 : « sur l'épaule g. s'appuie une lance » ; Mionnet, Suppl. V, p. 155, n° 899 : Cybèle avec un «javelot » ; mais dans les deux cas il s'agit sans doute d'un sceptre à longue haste.
+
+*) Cf. supra, p. 5 ; Ishtar présente ce même caractère complexe de « bienfaisante déesse, auteur de l'humanité », et de déesse guerrière, « fléau des combats ».
+
+*) On le trouve groupé avec l'effigie de la Mêter de Plakia : Babelon, Coll. Wadd., 994, 995. Sur les divers types du lion tauroctone dans l'art funéraire de Phrygie, v. Graillot dans Mélanges Perrot, p. 143 s ; sur le caractère astrologique delà lutte du lion et du taureau, cf. Dussaud dans Rev. arch., 1904, II, p. 235.
+
+*) Julian., l. c., p. 180. RheaPandôra dans Diod. Sic. III, 57 ; cf. [GREC], Orph., Hymn. XXVII, 9 ; [GREC], Orph., Fragm. 305, 1, éd. Abel.
+
+*) On l'adorait à Pessinonte sous le vocable d'IIea : Num. Chronicle, 1876, p. 79; B. Head, Hist. Num., p. 630 ; Babelon, Coll. Wadd. 6653. Faut-il rattacher à cette même idée l'épithète de [GREC], CIG. 3993 ? --- [GREC] : CI Att. III, 136 (ier s. de notre ère). --- [GREC] : ibid ., 134 (icr s.) ; Etymol. Magn., p. 388, 35 ; sur ce mot considéré au contraire comme un euphémisme, cf. Gruppe, op. I., p. 1539. --- [GREC] : Arch. ep. Mitt. VII, p. 180 ; Letronne, Inscr. de l'Egypte , I, p. 417, n° xxxvi ; épithète fréquente dans les cultes mystiques et pour les dieux guérisseurs, très usitée à Palmyre, où elle traduit un vocable des religions sémitiques.
+
+*) [GREC] : Diogen. Ath. (5e s. avant J.-C.), Erg. I, 5, dans Nauck, Trag. Gr. Fragm., 2e éd. ; Nonn., Dionys. XLI, 68. Sophia, Prometheia, Pronoia, dans Julian., I. c., pp. 166 et 179.
+
+*) [GREC] : Orph., Hymn. XIV, 7 et 12 ; Letronne, l. c. ; Salutaris, v. p. 151. Tous les dieux des mystères, Demeter et Coré, Dionysos, Hécate, Isis et Serapis, sont des dieux sauveurs ; cf. Wobbermin, Religionsyesch. Slud., p. 34. C'est aussi l'épithète d'Apollon, dieu guérisseur, d'Artemis, protectrice des eaux thermales, d'Asclepios médecin, d'Athéna (Paus. VIII, 44, 4). des Dioscures, de la Fortune, d'Héraclès Alexicacos, d'Hermès Psychopompe et de Zeus. Il existait en Phrygie un dieu sauveur (Sôzôn), qui parait bien n'être qu'une forme altérée du dieu Saoazos = Sabazios : Ramsay, Cities. I, 264 et 293. Intéressante comparaison de cette idée de salut chez les Païens, les Juifs et les Chrétiens, par Wcndland : StüTrjo,dans Zeitschr. f. d. Neutestam. Wissenschaft , 1904, p. 335 ss.
+
+*) Julian., l. c., p. 166 C.
+
+*) Orph., Hymn. XXVII, 13.
+
+*) Diod. Sic. III, 58, fait allusion àce rite quand il dit que Cybèle se plaisait à bercer les petits enfants dans ses bras.
+
+*) [GREC], CI Att. 134, 136, 137. [GREC] : Diogen. Ath.,L e. (elle est qualifiée en même temps d'[GREC] ; ; serait-ce une allusion à des chants-médecines ?) ; cf. Dionysos Hygiatès. Nous retrouverons le culte de la Grande Mère dans beaucoup de stations thermales.
+
 Procréatrice des âmes, elle en veut être la gardienne.* Elle les empêche d'errer dans les ténèbres ; elle est le phare qui luit pendant les tempêtes.* Elle rend l'âme forte contre l'esprit du mal; elle communique à ses fidèles le courage d'Hercule, qui triompha du dragon à cent têtes et sut conquérir les pommes d'or.* Ceux qui ont commis des fautes doivent espérer en elle ; car elle est la rédemptrice. Elle délie du péché ; elle efface « la tache de l'impiété.* » Elle a enseigné à ses prêtres les rites du pardon, comme ceux de la guérison. A l'âme purifiée selon sa loi, elle promet une félicité sans fin. Avec le pavot, symbole de mort, elle tend vers nous le rameau de pin, dont l'éternelle verdure est emblème d'immortalité.* Celle qui sauva de la mort Attis est la protectrice des trépassés. Sept siècles avant l'Empire, elle trônait déjà sur les nécropoles phrygiennes ; et chaque tombeau, dressé sur le sol ou creusé dans le roc, devenait un sanctuaire inviolable de la Kubilè. On avait coutume de déposer son image dans les sépultures, pour que la « reine des Mânes » n'abandonnât point le défunt. Jadis la divinité chtonienne régnait sur les morts parce qu elle les recevait, à proprement parler, dans son sein.* Mais, au contact de l'orphisme, du mazdéisme, du judaïsme, la conception phrygienne de l'au-delà s'était sublimée. L'influence directe des spéculations astrologiques avait déterminé une nouvelle conception de l'âme et de ses fins dernières. L'âme est d'essence aérienne et divine. « Mon corps est cendre, » lisons-nous sur la tombe d'un zélateur d'Attis ; « mais mon âme fut emportée par l'air sacré.* » Cette âme, qui aspire aux espaces d'en haut, prend son essor vers les régions supérieures d'où elle était descendue. Elle a hâte de présenter à la Mère de toute vie la moisson de vertus* qu'elle a cueillie sur cette terre et qui réjouit la divinité. Par delà les portes du ciel,* dans les habitacles de l'empyrée, la Grande Mère l'accueille comme un enfant qui revient d'un lointain voyage. « Accorde-nous, » lui demandent ses fidèles à la fin de leurs prières, « accorde-nous la douce espérance de parvenir jusqu'à toi.* »
+
+*) CIL. VI, 499 (ann. 374).
+
+*) Julian., l. c., pp. 169D et 174 C. Mais elle est aussi celle qui envoie les spectres et les revenants, cause d'épouvante ; sur ce sens de l'épithète Antaia, cf. Gruppe, op. L, p. 770.
+
+*) Ibid., pp. 167 A et 176 A ; cf . supra, p. 120, n. 3. Hercule comme Dactyle Idéen : supra, p. S, n. 5. --- Uni à Zeus Papias Sôter en Bithynie, CIG. 3817. --- Tenant « le simulacre de Cybèle assise », monnaie de Cotiaeum, Phrygie : MionnetIV, p. 274, n° 459 (Caracalla). --- Sur le sarcophage d'une prêtresse de Magna Mater, à Ostie, Hercule ramène Alceste qu'il a sauvée des enters; Vatican, musce Chiaramonti; cf. Helbig, Guide, I, 74. L'image est symbolique.
+
+*) [GREC], Orph., Hymn. XIV, 8 ; Julian., l. c., p. 180.
+
+*) Médaillons : v. supra, p. 134. n. 4 ; Mionnet, Suppl. V, p. 331, n" 318. Inlaille : Furtvvaengler, op. I. 2843. Lampe, à Rome, musée Kircher : Cybèle tend à Attis le rameau.
+
+*) Cf. « Dis Manibus et Terrae Matri» ; dans Bull, comunale di Borna, 1886, p. 281.
+
+*) Cippe avec l'image d'Attis, CIL. III, 6381 : « corpus habent cineres, animam sacer abstulit aer ». Dans un hymne orphique, X.IV, 11, Rhea-Cybèle est dite « semblable à l'air ».
+
+*) Julian., l. c., p. 169 B.
+
+*) Clef du ciel, que tient Cybèle, cf. supra, pp. 176etl97. Porte du ciel, par où passe Attis ressuscité : Hippol., Refut. omn. haeres., p. 111 s, et les sept portes du ciel mithriaque, selon la conception babylonienne, tradition suivie par les gnostiques.
+
+*) Julian., p. 180, fin.
 
 ## 3\.
 
 En même temps que se constituait la souveraineté universelle delà Mère des Dieux, grandissait la personnalité d'Attis. Elle grandissait au détriment d'autres dieux, dont celui-ci s'appropriait les attributs et le pouvoir.
 
 Attis avait à redouter en Orient la concurrence de Mên, qui était l'un des grands dieux d'Anatolie et l'un des plus populaires.* Dieu mâle de la lune, Mên régnait sur le ciel, sur la terre et sur le monde souterrain. Dieu « qui se fait lui-même, » fruit « qui croît de lui-même, » comme tous les dieux lunaires de l'Asie sémitique, comme le Sahar d'Harran et le Sin de Chaldée, il est le père de tous les êtres. Maître de la lune, il est par conséquent le maître de la fortune des hommes et de celle des rois. « Dieu qui n'a pas de juge au-dessus de lui,* » il est le flambeau de toute justice, le suprêmé justicier des vivants et des morts. Dieu guérisseur, il entretient dans ses temples les plus célèbres de florissantes écoles de médecine.* Seigneur des villes, il est aussi le dieu topique de nombreux villages.* Car il est par excellence le protecteur des campagnes. C'est lui qui fait croître les plantes, mûrir les raisins, se multiplier troupeaux et volailles ; et il est le gardien des propriétés rurales. Or, sous l'Empire, tandis que les dédicaces épigraphiques et les monnaies des villes signalent partout sa présence en Asie Mineure et qu'on le retrouve sur le Danube, en Macédoine, en Béotie, en Attique, il reste inconnu dans l'Occident latin. C'est qu'il s'j confond avec Attis. Leur assimilation avait commencé dans leur pays même d'origine. Déjà les terres cuites de Tarse et de Myrina nous montrent des figurines de types complexes, où se mêlent les attributs des deux divinités.* Les ailes recoquillées d'Attis-Eros ressemblent aux cornes du croissant lunaire qui se profile derrière les épaules de Mên ; elles en sont l'interprétation hellénique. D'autre part, à Juliopolis (Bithynie), à Syllion (Pamphylie), à Ancyre, le dieu nocturne porte un bonnet constellé comme celui d'Attis ; car « il guide le char de la nuit aux nombreuses étoiles.* » A Gordos, à Nysa, il est accompagné de deux lions.* Attis et Mên revêtent le même costume phrygien. L'un et l'autre sont jeunes, étant dieux de la végétation. Mên pose un pied sur la tête du taureau lunaire, comme Attis sur celle du bélier solaire ; et tous deux possèdent les attributs communs aux Seigneurs des morts, pavot, grenade et pomme de pin. Agriculteurs qui priaient pour leurs récoltes, parents qui priaient pour leurs défunts devaient souvent réunir leurs deux noms. A Euméneia, en Phrygie, Mên Ascaénos est rapproché des Agdistis, qui sont Cybèle et Attis.* A Rome, le caractère officiel du culte pessinontien assurait le triomphe d'Attis sur Mèn. Dès la première moitié du 2e siècle, celui-ci avait cédé à celui-là son attribut essentiel, le croissant.* Il lui abandonna son propre nom et son titre lydien de Tyran, c'est-à-dire de Maître souverain. L'Attis romanisé prit l'épithète nouvelle de Mên Turannos qui, mal interprétée, passa pour être un vocable du soleil, « Maître des Mois.* »
+
+*) Sur Mên, v. en particulier: Smirnoffdans [GREC] (Mélanges Soltoloff), Saint-Pétersbourg, 1895, pp. 81-133; Drexler dans Roscher, II, 2, s. v. Mên: Perdrizet dans Bull. Corr. Hell. , XX, 1896, pp. 55-106 (Mên en Asie M. ; --- diffusion hors de l'Anatolie ; --- surnoms ; --- origine ; --- nature, attributs, fonctions) ; Gruppe, op. L, 1906, p. 1533 ss. L'identité de Mên avec les dieux lunaires sémitiques a été mise en relief par Perdrizet ; Ramsay, dans J. of Hell. St. 1889, p. 229 ss, prétendait à tort que Mên était le dieu phrygien du Soleil = Manês.
+
+*) Les formules mises entre guillemets sont empruntées aux hymnes en l'honneur du Sin babylonien ; cf. Chantepie de la Saussaye, Hist. des Relierions , p. 136 s ; ce dieu est représenté, comme Mên, posant un pied sur une tête de taureau. En principe, les dieux sémitiques de la lune passaient avant ceux du soleil, de même que l'on comptait les jours à partir du coucher du soleil.
+
+*) Strab. XII, 8, 20.
+
+*) Cf. Papers Amer. School, II, n” 60, 61.
+
+*) Y. supra, p. 204, n. 6.
+
+*) Oracle dans Euseb., Praep. eu. III. p. 125.
+
+*) Mionnet IV, p. 41, n° 216 (L. Verus) et Suppl. VI, p. 521, nos 415, 416.
+
+*) CIG. 3886 add. Dans un hymne orphique, Prooem. ad Mus. 40, on trouve une invocation à la Mère des dieux, Attis et Mên.
 
 C'est l'action des rayons solaires qui dans la nature est prépondérante. Esprit de l'arbre et de la plante, fils de l'amandier, épi encore vert et pourtant moissonné,* fleur,* sang d'où naît la violette printanière, pin dont l'immortel feuillage proteste contre l'idée d'une mort réelle, Attis s'était transformé depuis longtemps en dieu solaire. Telle est la métamorphose normale des dieux de la végétation. Le bon sens des simples fidèles, comme la science des théologiens, remontait des effets aux causes. De plus, les grandes fêtes de la Passion et de la Résurrection d'Attis se célébraient à l'équinoxe du printemps, qui est aussi la fête du soleil. Le petit dieu était devenu le génie du soleil vernal, qui ramène sur la terre la flore luxuriante, y prépare les belles récoltes, mais doit céder aux forces destructrices du soleil d'été. Le lion totémique, devenu l'adversaire d'Attis,* symbolisa peut-être les torrides étés de Phrygie. Mais Attis avait fini par s'identifier complètement au dieu Soleil,* dans ses énergies multiples et opposées, tour à tour vivifiantes et consumantes. lia dompté le lion ; maintenant il le chevauche,* ou guide le quadrige des fauves.* Constante est l'assimilation des dieux de la fécondité, maîtres aussi du monde infernal, avec le soleil qui, le jour, fertilise la terre et, la nuit, parcourt les régions souterraines.
 
