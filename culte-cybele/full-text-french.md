@@ -2389,25 +2389,171 @@ Attis avait à redouter en Orient la concurrence de Mên, qui était l'un des gr
 
 *) CIG. 3886 add. Dans un hymne orphique, Prooem. ad Mus. 40, on trouve une invocation à la Mère des dieux, Attis et Mên.
 
+*) Statue d'Attis, provenant du temple d'Ostie, Museo Laterano ; Helbig, Guide, 1893, I, p. 522, n° 700; CIL. IX, 3146, à Corfinium : « Attini... lunam argenteam... » Attis prend aussi le croissant à Pessinonte : Imhoof-Blumer, Griech. Münzen dans Abhandl. Bayer. Akad., phil.-hist. Cl., XVIII, 1890, p. 750.
+
+*) CIL. VI, 499-501, 508, 511, 512 ; IGSI. 913. Sur l'épithète de Turannos donnée à Mèn, v. Perdrizet, l. c., p. 86 ss; Zeus porte aussi ce titre en Lydie.
+
 C'est l'action des rayons solaires qui dans la nature est prépondérante. Esprit de l'arbre et de la plante, fils de l'amandier, épi encore vert et pourtant moissonné,* fleur,* sang d'où naît la violette printanière, pin dont l'immortel feuillage proteste contre l'idée d'une mort réelle, Attis s'était transformé depuis longtemps en dieu solaire. Telle est la métamorphose normale des dieux de la végétation. Le bon sens des simples fidèles, comme la science des théologiens, remontait des effets aux causes. De plus, les grandes fêtes de la Passion et de la Résurrection d'Attis se célébraient à l'équinoxe du printemps, qui est aussi la fête du soleil. Le petit dieu était devenu le génie du soleil vernal, qui ramène sur la terre la flore luxuriante, y prépare les belles récoltes, mais doit céder aux forces destructrices du soleil d'été. Le lion totémique, devenu l'adversaire d'Attis,* symbolisa peut-être les torrides étés de Phrygie. Mais Attis avait fini par s'identifier complètement au dieu Soleil,* dans ses énergies multiples et opposées, tour à tour vivifiantes et consumantes. lia dompté le lion ; maintenant il le chevauche,* ou guide le quadrige des fauves.* Constante est l'assimilation des dieux de la fécondité, maîtres aussi du monde infernal, avec le soleil qui, le jour, fertilise la terre et, la nuit, parcourt les régions souterraines.
+
+*) Hippol., op. I. V, pp. 9, 168, éd. Duncker et Schneidewin.
+
+*) Euseb., Praep. evang., III, 11,17: [GREC] ; cf. 11, 12 ; Fulgent., Myth., III, 5, p. 713, éd. Staveren.
+
+*) Julian., I. c., p. 167 B et C ; cf. le rôle du lion dans l' Attis de Catulle, 76-89 et dans l'Anthologie grecque, VI, 217-220, 237, éd. Stadtmueller, 1894, I, pp. 338-343 et 355.
+
+*) Arnob. V, 42 : Anonyme de 394, Carmen contra pag. 109 ; Firm. Mat., De err. prof. rel. VIII, 2 ; Macrob., Saturn. 1, 21, 7 ss ; Mart. Cap., De nupl. Phil. et Merc. II, 192 ; Procl., Hymn. in Solem, 24 ss.
+
+*) Biardot, T. cuites gr. funèbres, p. 318etpl. XVI, 2.
+
+*) « Il commande aux lions », dit Julien, l.c., p. 168 B ; « il conduit le char de la Mère », p. 171 C. Médaillon contorniate, v. supra, p. 135, n. 4.
 
 Adonis-Tammouz, de l'autre côté du Taurus, avait subi la même évolution. Ses jardins vite flétris représentaient la splendeur brève du printemps ; le sanglier qui tue le dieu signifiait la brusque irruption des rayons dévorants. Mais Adonis est depuis longtemps le Soleil de l'année, dans sa course zodiacale et sa fonction calendaire* ; la bête figure désormais l'hiver meurtrier, « qui est pour le soleil comme une blessure. » Les deux beaux adolescents se ressemblaient comme des frères, dont l'un aurait grandi au milieu des populations sémitiques et l'autre parmi des tribus de race aryenne. Ils avaient eu toutefois des fortunes diverses. Adonis, par l'intermédiaire de Byblos, de Paphos, des marchands phéniciens et des courtisanes syriennes, avait rapidement conquis à son culte tout le bassin oriental de la Méditerranée, jusqu'à l'Egypte, jusqu'à la Sicile. Au 5e siècle déjà, sur les terrasses d'Athènes, les femmes psalmodiaient des cantiques funèbres en l'honneur du dieu étranger et sanglotaient éperdument dans la nuit en criant son nom. En Lydie, il avait imposé son propre mythe aux adorateurs d'Attis ; car l'Attis lydien meurt comme lui sous les coups du sanglier. Au 3e siècle, Théocrite, qui s'intéresse en artiste aux Adonies royales d'Alexandrie et qui compose une idylle sur la mort d'Adonis, ne différencie pas le dieu chasseur de Byblos du dieu berger de Phrygie.* Sous la domination romaine, grâce aux privilèges dont jouissait à Rome la Grande Mère Idéenne, Attis supplante en Occident son rival sémitique.* Il s'empare de l'arc et du carquois d'Adonis le chasseur.* Il se fait appeler parfois Adonis le Pur,* de même qu'il avait accaparé le nom de Mên-Roi, et comme s'il prétendait être l'unique Seigneur.
 
+*) Adonis, dit Macrobe, l. c., est à n'on pas douter le soleil. Mais Amm. Marc. XIX, 1 et Lydus savent encore qu'il était le dieu-fruit. Sur les différentes conceptions solaires d'Adonis, v. Vellay, Culte et fêtes d' Adonis-Thammouz dans l'Orient antique, 1901, p. 118 ss.
+
+*) Idyll. I, 105 et 109 (98 s, éd. Ahrens) : «va vers l'Ida, où le montagnard Adonis fait paître ses brebis ». Voir aussi les Idylles XV et XXXI.
+
+*) Parmi les mystères en vogue à la fin de l'Empire, il n'est pas question de ceux d'Adonis. Il semble qu'ils se soient confondus en Occident avec les mystères métroaques et dionysiaques : « je suis Bacchus chez les vivants, Adonis chez les morts », Auson., Epiqr. 28 ; cf. 29. On trou ve réunis Attis, Adonis et Dionysos dans un oracle aux Rhodiens : Socrat., Hisl.eccl. III, 23.
+
+*) Attis chasseur, sur le relief du rocher d'Hammamli (époque romaine): Le Bas, Itinéraire , pl. 55; Pottier et S. Reinach, Nécrop. de Myrina, p. 40". Attis funéraire àl'arc, provenant de Concordia Veteranorum, Musée de Portogruaro. On trouve aussi Mithra muni de l'arc et du carquois ; c'est avec l'arc qu'il combat, dans les hymnes avestiques ; les flèches qu'il lance sont les rayons de la lumière céleste : Cumont, Mithra, I, pp. 165 et 183. Les dadophores mithriaques sont parfois représentés avec l'arc et ont pu influencer le type d'Attis archer.
+
+*) Socrat., l. c. ; Hippol., op. I. V, 9.
+
 L'une des raisons de sa supériorité sur le dieu de Byblos, ce fut sa longue intimité avec Mithra.* Quand ils font leur entrée dans le monde latin, c'est en se poussant l'un l'autre, selon l'expression pittoresque de Lucien. Mais si l'un prêtait à l'autre l'appui d'un clergé officiel et puissant, Mithra, par une salutaire influence de plusieurs siècles, avait singulièrement rehaussé la fonction théologique et la valeur morale d'Attis. Les dédicaces romaines à Sol lnvictus Mithra prouvent que l'Occident l'a surtout connu sous l'aspect solaire. A l'origine, il était le génie de la lumière et du feu, accouplé à la déesse des eaux fertilisantes et très distinct de l'astre du jour.* Depuis longtemps, toutefois, on l'adorait en Orient comme le maître du Soleil ; et c'est en Phrygie même qu'il avait hâté l'assimilation d'Attis avec Hélios. Les nombreux mages établis dans l'Anatolie purent fournir au culte phrygien les éléments nouveaux d'un symbolisme astrologique. Plus tard, et jusqu'à la fin de l'Empire, l'imagination subtile des théologiens ne cessa de compliquer ce symbolisme. Macrobe explique gravement la signification sidérale du pedum et de la syrinx, attributs constants d'Attis le pâtre. Déjà Lucien savait que Corybantes et Galles reproduisent dans leurs ébats chorégraphiques les mouvements du soleil.* Ce sont là fantaisies de doctes, et non pas articles de foi. Elles devaient naturellement se multiplier en un temps où le monothéisme solaire tendait à se substituer aux religions du paganisme. Mais ce qui importe, c'est que dès ses débuts dans le panthéon romain Attis est couronné de rayons, comme Mithra.* Il est donc, selon l'astrolâtrie chaldéenne, le chef des planètes. Car leurs stations et rétrogradations se trouvent liées au cours du soleil, qui semble les guider comme un maître. « Le soleil est au milieu des planètes comme un bon aurige, conduisant avec sûreté le char du cosmos.* » C'est donc Attis, nouvel Hélios, qui prend en main les rênes du quadrige cosmique des lions, sur lequel trône la Mère Ouranienne. Parfois aussi, pour mieux préciser son caractère héliaque, on lui donne un quadrige de béliers ; car c'est dans le sig'ne du Bélier que le soleil recouvre sa force et reprend sa marche triomphale.* De même que Mithra porte un manteau « brodé d'étoiles, tissé dansle ciel,* » sur le bonnet phrygien d'Attis on sème des astres d'or ; et comme Attis n'est rien sans la Mère des Dieux, on dit qu'il a reçu d'elle le « pilos » constellé, image du ciel visible.* Ses statues sont dorées, parce que l'éclat de l'or symbolise le rayonnement de l'astre du jour.* Enfin, dieu pastoral, ancien protecteur des troupeaux et des bergers, Attis est salué seigneur mystique des vastes pâturages du ciel. Il est « le berger des blanches étoiles.* »
+
+*) Voir supra, p. 192 ; Cumont, l. c., pp. 212 s et 235.
+
+*) Cf. ibid., p. 200.
+
+*) Macrob. I, 21, 7 ; Lucian., Desall. 17.
+
+*) Statue d'Ostie. Sur les monnaies de Pessinonte, au dernier siècle avant notre ère, la tète d'Attis, coiffée du bonnet, est surmontée d'un astre : Mionnet, IV, p. 391, n° 101 ; Barclay Head, II. num., p. 630.
+
+*) Hermipp. II, 16, 116 ; cf. Bouché-Leclercq, Astrol. gr., p. 118. Les lampe que l'on suspendait autour des images d'Attis (Julian., p. 179 C) représentaient peut-être les planètes autour du soleil.
+
+*) Cf. supra, p. 178, n. 1.
+
+*) Darmesteter, Zend-Avesta II, p. 507 ; Cumont, l. c., I, pp. 183 et 201 ; sur certains reliefs, le manteau du dieu porte sept étoiles et le croissant. Le manteau et le bonnet de l' Attis d'Ostie ont encore des traces de dorure, mais on ne peut dire s'ils étaient complètement dorés ou simplement ornés d'étoiles.
+
+*) Julian., p. 165 B C ; cf. 168 C, où il est dit qu'Attis se couvre du ciel comme d'une tiare ; 171 A : « Sa tiare est tachetée d'étoiles ». Le philosophe Salluste, De diis et mnndo, 4, précise ce symbolisme en déclarant que la M. d. D. a donné à Attis les puissances célestes.
+
+*) Sur ce symbolisme dans les religions syriennes, cf. C. r. Acad. Inscr., 1910, p. 397.
+
+*) Hippol., l. c.
 
 Mais le soleil, roi des cieux, est en même temps « l'arbitre suprême de la terre, » ainsi qu'il est dit dans les hymnes antiques de la Chaldée et de l'Egypte.* Par sa chaleur et sa lumière, n'est-il pas « celui qui développe toute vie, » qui féconde et anime la nature ? L'eunuque Attis devient donc, comme Mithra, le maître de la génération.* Il préside à la croissance des êtres, Deus Almus.* On lui donne le titre de démiurge.* Un mythe racontait que du sang du dieu mutilé naquit l'amandier, père de tout et de tous.* De même, dans le mazdéisme, l'immolation du taureau mythique fut l'origine de toute végétation terrestre et de toutes les espèces d'animaux terrestres. La naissance du premier homme, selon certaine doctrine iranienne et certaines croyances des Phrygiens, qui prétendaient être le plus ancien peuple de la terre,* paraît se rattacher à cette même idée de sacrifice.* C'est ainsi que la mort salutaire, voulue par les dieux, avait engendré une vie nouvelle, merveilleusement plus riche avec plus de beauté.* Dans les deux religions, les deux drames sanglants représentent le grand drame delà création, au commencement des âges. Mais il est manifeste que, dans sa fonction de démiurge, Attis subit profondément l'influence de la théologie mazdéenne. On avait même vu se répandre en Asie Mineure un type d'Attis tauroctone* ou crioctone,* à l'imitation du prototype mithriaque.
 
+*) Cf. les idées solaires contenues dans les hymnes à Ammon : Maspero, Hist. anc. des p. de l'Orient, II, p. 5 13.
+
+*) En Asie Mineure, Attis semble avoir porté les titres mystiques de Métis, Phanès, Erikepaios, que Malala, IV, p. 74, traduit par Boulé, Phôs, Zôodotêr, Sagesse, Lumière, Donneur de vie; v. Gruppe, op. L, p. 1544. Le nouvel orphisme aurait emprunté ces vocables aux mystères anatoliens.
+
+*) Publil. Optât. Porfyr., Carm. XXVII, 9.
+
+*) Julian., l. c., pp. 161 C, 165 B, 166 D; Sallust. phil., l. c.
+
+*) [GREC], Hippol., l. c., p. 166. Sur le rôle de l'amandier dans le mythe, cf. Hepding, Attis, p. 106. Cet arbre est généralement considéré comme originaire de l'Anatolie centrale et du Pont ; il pousse à l'état sauvage en Afghanistan. Son nom grec, « amugdalos », n'a rien à voir avec l'hébreu êm gedôlâh Grande Mère, contrairement à ce que croyait Movers, I, 578, 586, suivi par Hehn, Kulturpflanzen, etc., note 81 ; cf. Schrader dans Hehn, 6e éd., 1894, p. 387, citant Muss-Arnolt, Semitic words in Greek and Latin dans Transactions of the American philol. Assoc., XXIII, p. 106 s.
+
+*) Apul., Met. XI, 5 : « primigenii Phryges ».
+
+*) La légende mazdéenne de Gayômart rappelle de très près celle d'Attis : quand le héros est dévoré par Ahriman, deux gouttes de sa semence tombent sur la terre et y font pousser deux arbustes, d'où naît le premier couple humain ; cf. Cumont, l. c., p. 190, n. 5 ; Bousset, dans Goetting. gelehrten Anzeigen, 1905, pp. 698 et 702. Sur Attis considéré par suite comme l'homme primitif et rapproché d'Adam, v. infra. C'est également en Phrygie, à Pessinonte, que serait née la seconde race d'hommes, après le déluge. Les pierres jetées par Deucalion et Pyrrha auraient été prises sur le rocher Agdos : Arnob. V. 5.
+
+*) Julian., p. 179 D : Attis a organisé le monde en beauté, dit-il, au point que ni l'art ni l'intelligence des hommes ne sauraient jamais l'imiter.
+
+*) Terres cuites trouvées à Panticapée, mais probablement de fabrication asiatique : Cumont, op. I., II, mon. fig. 5-6, avec la bibliographie.
+
+*) Peut-être sur un vase du musée de Naples, n° 2843, datant du ive ou du 3e s. ; cf. Cumont. op. L, I, p. 180, n. 10 ; de même sur une terre cuite de Myrina, un Eros immole un bélier ; ibid., p. 181, fig. 12.
+
 Les théologies mystiques, d'autre part, ne s'intéressent au problème de la création que pour expliquer la destinée de l'homme. Un lien étroit rattachait les légendes cosmogoniques des mages à leurs idées sur la fin du monde. Ils croyaient que Mithra, en tuant le taureau, avait préparé pour la consommation des siècles une seconde rénovation de l'univers. Les Iraniens, comme les Sémites, admettaient la résurrection finale des corps. Nous ignorons quel devait être le rôle d'Attis dans le dernier acte du drame cosmique. Mais on enseignait aux mystes que l'essence éternelle d'en haut ne comportait plus ni élément masculin, ni élément féminin. Les élus réuniraient les deux sexes,* comme l'Agdistis de la légende pessinontienne, sans doute comme Attis ressuscité, que l'iconographie représente parfois avec tous les attributs de l'hermaphroditisme. Le passage à cet état définitif et parfait, telle était la signification dernière de l'éviration d'Attis.
+
+*) Hippol., op. I., V, 7, p. 138, à propos des Naasséniens.
 
 C'est ainsi que le vieux mythe naturaliste s'accommodait à l'eschatologie des temps nouveaux. Il se prêtait facilement à cette adaptation. Il s'était combiné depuis longtemps avec des idées de rédemption et d'immortalité. Si les Phrygiens, qui l'empruntèrent aux tribus indigènes ou à leurs voisins de race sémitique, se l'étaient approprié volontiers, c'est qu'ils croyaient eux-mêmes, comme tous les Thraces, à une survivance. Au contact de la religion persique, ces croyances d'abord vagues et confuses se précisèrent. Sous l'Empire romain, les images d'Attis qui décorent les tombeaux de nombreux mystes sont les symboles caractéristiques de cette foi. Mais leur évidente ressemblance avec les dadophores mithriaques prouve une fois de plus les relations intimes des deux cultes et l'assimilation des doctrines. Elle nous aide à mieux comprendre de quelle manière on concevait, dans les mystères métroaques, la fonction protectrice du jeune dieu.
 
 Par ce qu'il est le génie de la lumière, que l'air semble porter, Mithra passait pour habiter la zone mitoyenne entre le ciel et la terre. Aussi le qualifiait-on de Mésitès, c'est-à-dire d'intermédiaire. Il mérita doublement ce titre quand il fut identifié avec le soleil, image visible des dieux invisibles. « Il est le médiateur entre le dieu inaccessible et inconnaissable, qui règne dans les sphères éthérées, et le genre humain qui s'agite et souffre ici-bas.* » Tel est aussi le rôle d'Attis. Chargé par le couple primordial Zeus-Mêter de créer et d'organiser l'univers, il a conséquemment pour attribution d'y maintenir l'ordre et de veiller sur ses créatures. Il sert d'intermédiaire entre les dieux suprêmes et l'humanité. Il est le Ministre de la Grande Mère* et son Messager rapide. On le dénomme l'Ange de Rhéa.* C'est pourquoi l'on disait qu'il fut son premier prêtre et apôtre, et que le premier il enseigna ses mystères. Dieu de toute sagesse,* ainsi qu'il convient au démiurge, il montre le chemin de la sagesse aux hommes de bonne volonté. Il leur apprend qu'il faut vivre selon la loi métroaque, fuir le mal et chercher le mieux, détruire en soi l'impureté et se mutiler des appétits déraisonnables, toujours regarder vers le ciel « et par delà le ciel.* » Dieu de lumière, dont le flambeau dissipe les ténèbres, il est toujours vigilant ; il voit tout. Par suite, il règne avec justice. Mais il règne aussi avec bonté. Comme Mithra, comme tous les dieux héliaques, « il fait du bien par son regard. » Il protège les dévots de la Mère des Dieux contre les puissances impies et malfaisantes ; et parfois on lui donne pour compagnon, comme à Mithra, le chien qui met en déroute les mauvais génies. Il est le dieu secourable et propice,* le bon pasteur,* de même qu'il est le dieu beau « comme les rayons solaires.* » Eternellement jeune et toujours victorieux,* il est le tuteur et le défenseur,* qui soutient le juste dans les épreuves de la vie, l'assiste à l'heure fatale et guide son âme au divin séjour. Si des Romains, et non point dans la plèbe, peuvent l'invoquer comme le gardien de leur âme et de leurs pensées,* c'est à Mithra surtout qu'il est redevable de ce privilège. En convertissant la religion phrygienne à une morale supérieure, le mazdéisme l'avait rendue digne de figurer avec honneur dans la lutte qui s'engageait pour la domination des âmes.
 
+*) Cumont, op. L, I, p. 303.
+
+*) Prospolos, dans Harpocration, Lex., s. v. Attès ; Bekker, Anecd. graeca, I, p. 461 ; Suidas, s. v. Attis ; cf. Julian., p. 171 C.
+
+*) Nonn. Dionys. XXV, 313 : [GREC].
+
+*) Hippol., op. I ., p. 168; Julian., p. 179 C. Le texte d'Hippolyte paraît douteux à Wilamowitz-Moellendorf dans Hermès , XXXVII, 1902, p. 328, suivi par Hepding, Attis, p. 34. Cependant Attis semble avoir porté le titre mystique de Métis, dont le sens est voisin de celui de Sophia ; et. supra, p.213, n. 8.
+
+*) Cette expression est dans Julien, qui développe longuement cette interprétation morale du mythe.
+
+*) Deus propilius : Arnob. 1, 41 ; conservator : CIL. VI, 500.
+
+*) Les épithètes relatives à ses fonctions pastorales sont réunies dans Hepding, Attis, p. 206 s.
+
+*) Julian., l. c., p. 165 C.
+
+*) Invictus. CIL. VI, 499. Epithète des dieux solaires. Les astres divins ne meurent pas; chaque fois qu'ils semblent s'affaiblir, ils renaissent à une vie nouvelle, toujours invincibles. Le vocable est emprunté, par l'intermédiaire du grec [GREC], à la terminologie religieuse de l'Orient sémitique ; sur son caractère liturgique à Babylone, cf. King, Babyl. Magie and Sorcery, p. 111.
+
+*) Tutator : CIL. VI, 512.
+
+*) CIL. VI, 499.
+
 Toutefois, le titre d'Ange que nous voyons donner au dieu, et qui sans doute était une épithète liturgique, révèle une autre influence. Attis subit aussi l'ascendant des idées sémitiques, et plus particulièrement judaïques. Ce vocable, en effet, tout à fait rare dans les dédicaces païennes de l'âge impérial, n'appartient pas en propre à la terminologie du mithriacisme.* On l'appliquait à certains Baals syriens, considérés comme dieux psychopompes.* Il est possible que l'orphisme ait favorisé, dans le monde orientalo-grec, la croyance aux bons anges et aux anges malfaisants.* Mais là où nous trouvons le culte des Dii Angeli,* l'action du sémitisme est généralement manifeste. Dans les mystères sabaziens, un Angélus Bonus est l'introducteur des morts au festin des bienheureux.* Deux autels de Stratonicée, en Carie, associent le Bon Ange ou Ange Divin à Zeus Hypsistos.* Sur un groupe d'inscriptions de l'île de Rhéneia (Cyclades), qui datent du 2e siècle avant notre ère, Théos Hypsistos est également nommé avec ses Anges.* Or Sabazios et Zeus Hypsistos sont des dieux judaïsants ; et le « Dieu Très Haut » n'est autre qu'un Jéhovah quelque peu paganisé. Son culte s'était répandu en Asie Mineure dès l'époque hellénistique, après que les Séleucides y eurent établi des colonies juives. C'était précisément en pays lydien et phrygien qu'Antiochus le Grand, pour tenir en respect les tribus indigènes et favoriser par delà le Taurus la politique syrienne, avait implanté deux mille familles juives de Babylone.* Ces colonies, fixées dans les villes fortes, dotées de terres, jouissant des mêmes droits que les Hellènes, formaient un élément considérable et puissant de la population urbaine. Elles se développèrent encore sous l'Empire, quand se produisitla dispersion dernière. Si elles n'avaient pu sauvegarder, au milieu des idolâtres, toute l'intégrité de leur foi nationale, leur esprit de prosélytisme avait conquis de nombreux gentils à l'idée monothéiste . En dehors du judaïsme orthodoxe, il se constitua des communautés mi-juives et mi-païennes d'Hypsistariens, qui rendaient un culte exclusif au Très Haut.* La religion phrygienne se ressentit nécessairement de leur contact et de leur propagande. C'est ainsi que le Sabazios thraco-phrygien, identifié jadis par les Grecs à leur Dionysos, haussé plus tard à la dignité d'un Zeus, s'était confondu avec le Sabaoth d'Israël. Une analogie fortuite de noms avait déterminé cette assimilation,* qui transforma Sabazios en Seigneur Suprême, Très Haut, Tout Puissant, Très Saint. Aussi l'action du Iahvisme sur les mystères du dieu paraît-elle avoir été profonde. Nous en avons d'autres témoignages que cette intervention de l'ange, qui supplée Hermès comme conducteur des âmes. Il y eut adaptation de certaines doctrines, adoption de certaines pratiques. Au 2e siècle de notre ère, dans le monde gréco-romain, les profanes ne différenciaient guère les deux cultes ; et les chrétiens eux-mêmes considéraient moins les Sabaziastes comme des païens que comme des dissidents de la Synagogue.*
+
+*) Sur le rôle des anges dans la théologie des mages, v. les textes réunis par Cumont, Relig. orientales dans le paganisme romain, p. 306.
+
+*) I(ovi) O(ptimo) M(aximo) Angelo Heliop(olitano) : CIL. XIV, 24; Lévy dans Rev. des Études Juives, XLIII, 1901, p. 5.
+
+*) Maas, Orpheus, 222, qui paraît exagérer le rôle des doctrines orphiques. Il est question d'anges catachtoniens, qui sont des anges malfaisants, dans les Tabellae defixionum de l'Attique : Audollent, nos 74, 75.
+
+*) En Mésie : Iahresh. d. Oeslerr. a reh. Instit. 1905, Reibl., p. 6 : à Théra: IGIns. III, 933.
+
+*) Cf. supra, p. 186.
+
+*) Lebas-Waddington, III, 515 ; Bull. Corr. Ilell. V, 1881, p. 182.
+
+*) Wilhelm dans Iahresh. d. Oesterr. arch. Instit. 1901, Beihl., p. 13 ; Deissmann dans Philologus LXI, 1902, p. 252.
+
+*) Sur ces faits, cf. en particulier Ramsay, Cities II, 667 ss, et Isidore Lévy dans Rev. des Études Juives , 1900, p. 14 ss ; Cumont, Les mystères de Sabazius et le judaïsme , dans C. r. Acad. Inscr., 1906, p. 63 ss.
+
+*) Sur ce culte, Cumont, Hypsislos (supplément à la Rev. de l'Instr. publ. en Belgique, XL, 1897).
+
+*) Identification constante dès le 11e s. avant notre ère.
+
+*) Cf. la présence du tombeau d'un « antistes Sabazis » dans les catacombes de Prétextât.
 
 Dans un sanctuaire mysien, nous voyons Cybèle associée à Zeus Hypsistos, c'est-à-dire au dieu d'Israël.* Les doctrines judaïques avaient également pénétré la théologie métroaque. Sur bien des points elles y renforcèrent l'apport du mazdéisme. Mais elles l'enrichirent aussi d'éléments nouveaux, qui hâtèrent son évolution. Complexe est en effet l'influence qu'elles ont exercée surAttis. Tantôt, parce qu'il préside à la génération et qu'il est le père du genre humain, l'Adamas*-Attis se rapproche de l'Adam des Juifs. Entre sa faute et le péché du premier homme biblique, cause de souffrance, de corruption et de mort, le rapprochement s'imposa. Sans doute alors les antiques purifications des mystères prirent une efficacité nouvelle, de même ordre que celle du baptême chrétien.* Tantôt, représenté comme l'émissaire des dieux suprêmes et invisibles auprès des mortels, Attis est semblable à l'ange de Iahveh.* Mais ses fonctions solaires de démiurge le préparaient à de plus hautes destinées. Le dieu créateur et conservateur tend à s'identifier avec le dieu transcendant dont il émane et à la toute puissance duquel il participe. Dieu héliaque, Attis était déjà roi.* Il était déjà très puissant; car, d'après les principes de l'astrolâtrie, phénomènes delà nature, dispositions des hommes et événements de ce monde sont déterminés par les énergies planétaires . Ses accointances avec le Roi des Rois* Sabazios, désormais aussi juif que phrygien, facilitèrent son exaltation au souverain empire selon la formule sémitique. Il devient à son tour le Pantocrator, l'Omnipotent,* le Seigneur de pouvoir infini. En lui s'absorbe la personnalité de Zeus Pappas, dont il prend le sceptre et le nom.* Il est donc, non plus le soleil visible, mais le maître du soleil et de toutes choses, celui qui trône par delà les planètes et les étoiles fixes, au plus haut des cieux, l'Hypsistos,* _Deus Summus_.* Il est donc aussi l'Eternel.* Toutes ces notions se complètent et s'appellent les unes les autres. Nous les trouvons réunies dans cette définition du Très Haut, que donnaient au temps des Antonins les théologiens sémitisants de l'Ionie, inspirateurs des oracles encore célèbres de Claros et de Didymes : « il est celui qui n'a pas eu de commencement et qui n'aura pas de fin, le tout puissant qui s'est engendré lui-même, celui qui a créé l'enveloppe du ciel, étalé la terre et repoussé la mer, celui qui a fait alterner l'hiver et l'été, l'automne et le printemps, celui qui conduit toutes choses à la lumière et qui constitue l'harmonie de l'univers.* »
 
+*) V. supra, p. 200, n. 2.
+
+*) Nom d'Attis, ou du dieu équivalent, dans les mystères de Samothrace : hymne cité par Hippolyte, l. c. ; les mss. donnent [GREC]. D'après Hesychius, s. v. [GREC], ce serait un nom phrygien, synonyme de [GREC] ; cf. Tomaschek dans Wien. Sitzungsber., CXXX, 1894, p. 43.
+
+*) Cf. un phénomène analogue dans les mystères de Sabazios : Cumont, op. I. , p. 9. La croyance relative aux conséquences de la chute d'Adam pour l'humanité est entièrement développée dès le 1er siècle. D'autre part, la doctrine du péché originel était déjà enseignée par l'orphisme : le genre humain , né de la cendre des Titans, qui sont fils du Ciel et de la Terre Mère, est d'origine divine : en lui subsiste un élément céleste ; mais le crime irrémissible des Titans y a mêlé un élément de péché et de corruption ; cf. S. Reinach, Cultes, Mythes et Religions , III, 1908, p. 346 ; sur Cybèle et les Titans, v. Gruppe, op. L, p. 1286.
+
+*) Sur la personnalité de l'ange de Iahveh, cf. Chantepie, Hist. des Religions, p. 229. Le patron des Palmyréniens était Malakbel, « le messager du Seigneur u ; cf. Dussaud, Notes de myth. syrienne, 1903, p. 24 ss.
+
+*) Julian., pp. 168 C, 169 C; cf. Buresch, Aus Lydien, p. 114.
+
+*) [GREC], dans Orph., Hymn. XLVIII, 5.
+
+*) CIL. VI, 502, 503 ; VIII, 8457, 20246 ; Graillot, dans Rev. archéol. 1904, I, p. 325 s.
+
+*) V. supra, p. 15 ; cf. Tomaschek, l. c . , p. 42, et sur le nom de Pappas dans l'onomastique thrace, CXXXI, 1895, p. 18.
+
+*) IGSI. 1018 = CIL. VI, 509 ; cf . Buresch, Klaros, 1889, p. 50.
+
+*) Firm. Mat., De err. III, 3.
+
+*) Deux autels tauroboliques de Turin, CIL. V, 6961, 6962, sont dédiés Viribus Aeterni. Il est possible qu'il y ait eu assimilation d'Attis avec le deus aeternus d'importation syrienne; cf. Hepding, Attis, p. 209, n. 5.
+
+*) Réponse de l'Apollon de Claros ou de celui de Didymes, insérée dans une Théosophie qui fut composée à la fin du ve siècle par un certain Aristocritos et dont il existe un extrait publié pour la première fois par Buresch, Klaros, 42; cf. Cumont, Hypsistos, p. 10.
+
 Aux idées connexes de domination et d'éternité s'associe l'idée de sainteté.* A vrai dire, la sainteté est par excellence l'attribut des dieux sémitiques. Elle résume tous les autres. Car elle signifie que le dieu est dieu dans l'acception la plus complète du mot. Ce qu'elle exprime avant tout, c'est la sublimité inaccessible et ineffable de l'être divin. Elle implique secondairement l'idée de pureté, qui donne au dieu son caractère moral. L'infîmmentHaut est le souverainement Pur. Attis ajoute à ses épithètes rituelles les titres de Pur* et de Très Saint.* Cette conception hébraïque de la divinité modifiait les rapports d'Attis avec ses mystes, qui se sentaient plus loin de lui. Elle exigeait des fidèles une dépendance plus servile à l'égard du maître absolu, une préoccupation plus minutieuse encore de se maintenir en constant état de grâce. Dans la pratique, elle correspondait à une aggravation de la loi morale et du code religieux. Mais Attis, sous l'action du judaïsme, avait pris en réalité les allures d'un Baal. Les Baals syriens, « Seigneurs de l'univers » et « Seigneurs de l'éternité, » restent toujours accouplés à une déesse parèdre, la Baalat, c'est-à-dire la Dame, toute puissante comme eux et très sainte. L'un représente le principe mâle, l'autre le principe féminin, et ils sont les auteurs de toute fécondité. Nous avons vu que la grande déesse phrygienne se confond souvent avec l'Atargatis de Bambyce, qui est devenue sous l'Empire la grande déesse de Syrie ; de même Attis rappelle de très près Hadad, qui fut également assimilé à Hélios et dont les Latins traduisaient la titulature orientale par les qualifications de Summus Maximus Potentissimus.* L'influence directe des cultes syriens n'est pas moins manifeste que l'influence juive. C'est par elle que s'explique la préséance accordée au dieu dans certaines dédicaces métroaques.* Le Baal précède toujours la Baalat.
+
+*) Sur le développement de l'idée de sainteté chez les Sémites, cf. Robertson Smith, Religion of the Semites, 2° éd. 1894, p. 446 ss ; Lagrange, Etudes sur les rel. sém., 2e éd. 1905, p. 141 ss. Sur l'épithète rituelle de Sanctus : Baudissin, Stud. zur sem. Religionsgesch., 1876, II, 33; Clermont-Ganneau, Études d'archéol. or., I, 1896, p. 104 ; Cumont, Relig. or., p. 289.
+
+*) [GREC] : Socrat., Hist. eccl. III, 23.
+
+*) CIL. VI, 501; VIII, 7956; Arnob., I, 41. De même, Mater Deum Sancta, VIII, 19981.
+
+*) Macrob., Suturn. I, 23, 17 ; cf. CIL. III, 3292, une dédicace aux « Dii Magni Majores et Sanctissima Sanctitas ».
+
+*) A Bénévent, dans la première moitié du 3e s. : CIL. IX, 1538-1542. A Rome, en 377 : IGSI. 1019. De même, dans Clément d'Alexandrie, Prolrept. 11,15.11 est à remarquer que l'initié s'intitule « myste d'Attis » : Firm. Mat., De err. XVIII, 2; cf. les Attabocaoi de Pessinonte.
 
 Les épithètes judéo-syriennes de Cyhèle et d'Attis n'apparaissent que tardivement dans l'histoire. Elles nous sont connues pour la première fois aux dates suivantes :
 
@@ -2418,13 +2564,35 @@ Dii Omnipotentes, vers 230 ;
 Mater Deum Sancta, entre 222 et 235 ;  
 Attis Sanctus, au 3e siècle.
 
+*) Date de l'opuscule de Julien sur la Mère des Dieux.
+
 Il ne faut pas conclure qu'avant le uic siècle ces vocables n'étaient pas entrés dans la terminologie métroaque. Depuis longtemps déjà Cybèle et Attis étaient les Tout-Puissants ; car, vers 230, ce titre seul les désignait clairement, sans que l'on eût besoin de préciser leur identité. Les appellations mystiques prennent place dans les oraisons et dans les chants de la liturgie bien avant de figurer sur les dédicaces. Un scrupule religieux en interdit la divulgation. Elles peuvent être en usage depuis plusieurs siècles quand elles tombent dans le domaine public. De même, l'épithète solaire d'Invictus ne se rencontre qu'en 374, celle de Menotyrannus qu'en 319. Cependant, il y a longtemps qu'Attis est pour ses fidèles le maître du soleil et de la lune. Tel en effet nous le montre, à l'époque d'Hadrien, la statue de marbre qu'un dévot lui consacra dans leMetrôon d'Ostie. Le dieu, couronné de fruits symboliques, est aussi diadémé de rayons. Sur la pointe de son bonnet, jadis constellé d'or, se dresse le croissant lunaire, d'où surgissent des bouquets d'épis. Attributs agraires et attributs astronomiques se superposent et cherchent à se combiner, comme ont fait les deux mythes. Mais c'est à peu près sous le même aspect que, trois siècles auparavant, les Syriens représentaient leur Baal-Schammin, Seigneur des cieux.* A Pessinonte même, au dernier siècle avant notre ère, Attis était en possession déjà de ses attributs sidéraux.*
+
+*) Il a le front surmonté du croissant et porte un soleil à sept rayons ; monnaies d'Antiochus VIII (125-96) ; Babelon, Rois de Syrie, 1890, p. 178 ss etp. clix. Ailleurs ce Baal Shamin (= Zeus Ouranios : Clermont-Ganneau, Etudes d'archéol. or., I, p. 53; Cumont, Relief, or., pp. 154 et 295) est accosté des deux Dioscures, personnifications des deux hémisphères célestes; de même, sur les monnaies de Pessinonte, les symboles d'Attis sont accompagnés de ceux des Dioscures, confondus avec les Corybantes.
+
+*) Cf. supra, p. 212, n. 5. Dès ce temps-là, il est identifié à Zeus Pappas : Diod. III, 58.
 
 ## 4\.
 
 Rome n'a donc fait qu'adopter des traditions qui s'étaient formées en Orient. Il n'en reste pas moins vrai que sa part fut grande dans l'élaboration définitive de la doctrine. Rome a désormais remplacé Pessinonte comme capitale du culte phrygien ; elle en est à la fois la ville sainte et le centre administratif. Attis est devenu un dieu de la cité et de l'Empire. Ses zélateurs le croient appelé au rôle de dieu universel. Les nouvelles destinées du culte devaient nécessairement influer sur le caractère de la divinité. Les théologiens se préoccupèrent de mettre en valeur, dans la complexité du mythe, ce qui pouvait rehausser la dignité d'un dieu si longtemps méprisé des vrais Romains. Mais il importait aussi de ne point exagérer sa puissance et de réagir contre la tendance des mystes à amplifier leur dieu jusqu'à la souveraine majesté. Ils trouvèrent dans le mythe sidéral d'Attis la raison d'être de son culte. Ils spéculèrent à leur tour sur la notion de l'Attis solaire. Elle leur permettait de concilier des éléments en apparence incompatibles : la barbarie de certains rites et leur noble signification morale, l'éviration répugnante du dieu et sa vertu merveilleuse de fécondité, sa situation inférieure auprès de la Mère des Dieux et son grand pouvoir. Leur Attis est un Médiateur, mais qui n'aspire pas à l'omnipotence. Dieu intermédiaire, il reste un dieu secondaire, un petit dieu, presque un demi-dieu.* Aussi, dans l'iconographie officielle du 2e siècle, Attis conserve-t-il encore la petite taille et l'attitude du Prospolos. Mais cette notion simpliste de l'Attis médiateur, qui pouvait satisfaire aux exigences religieuses de la Rome antonine, devenait insuffisante et caduque dans la Rome des Sévères. D'une part, c'est une loi constante que le concept d'une divinité s'élargit à mesure qu'augmente le nombre de ses fidèles. Attis tend à se métamorphoser en dieu panthée.* Comme Cybèle, il cumule les fonctions et concentre en lui les vertus de toutes les divinités similaires. De l'ensemble des puissances qu'il accapare se constitue sa toute-puissance. Les provinces contribuent à cet enrichissement et apportent leur contingent. Mais c'est à Rome, rendez-vous de tous les dieux et de toutes les races, que se coordonnent les efforts de ce syncrétisme. D'autre part l'action du sémitisme, qui fut si considérable en Anatolie, se continuait sans interruption dans Rome. Car les Syriens ont envahi la capitale de l'Empire. Ils colonisent l'Occident. Progressivement ils lui imposent la civilisation et les croyances de l'Orient. Cette conquête pacifique du monde latin par leurs marchands et leurs esclaves, résultat d'un irrésistible mouvement économique, avait commencé dès le début de notre ère.* Au temps des Flaviens et de Trajan, Juvénal se plaint de ne pouvoir sortir dans les rues de Rome sans entendre parler syriaque.* Il y l'encontre aussi trop de prêtres syriens. Les cultes sémitiques se sont multipliés très vite sur les bords du Tibre. Ils ne se confinent point dans le quartier populaire du Transtévère. Ils ont pris possession du Capitole, où trône une Caelestis. A l'avènement des Sévères, dont la famille et la cour sont plus qu'à demi syriennes, les Baals triomphent. Par reconnaissance, les Césars favorisent le culte de ces dieux, maîtres du destin, qui leur ont donné la couronne. Quatre dévotes et ambitieuses princesses, filles et petites filles d'un prêtre de Phénicie, se font auprès des fonctionnaires et de l'armée les propagandistes de leur religion nationale. Lorsqu'enfin le jeune Heliogabal, élevé du sacerdoce au trône, prétend imposer son Baal solaire comme dieu suprême de l'Empire, il est logique dans sa déraison. Car un Baal est, par essence, souverain du monde. Dieu éternel, il est universel ; son pouvoir est infini dans l'espace comme dans le temps. Il est le plus puissant et l'unique Tout-Puissant. Mais il partage cette toute puissance avec une déesse parèdre, la Dame des cieux. A son Elagabal Invictus d'Emèse, l'empereur associa la Magna* Caelestis de Carthage.
 
+*) La notion d'Attis [GREC] survit dans Julien, 168 A, qui essaie de la concilier avec la notion d'Attis [GREC]. Sur la différenciation entre les dieux premiers (Mêter) et les dieux seconds (Attis), cf. Sallust. phil., l. c.
+
+*) Cf. l'hymne que nous fait connaître Hippolyte.
+
+*) Cumont, Rel. or., p. 128 ss ; bibliographie, p. 282 s.
+
+*) Juv. III, 62.
+
+*) Dea magna Virgo Caelestis : CIL. VI II, 9796.
+
 Entre ce couple syro-punique et le couple phrygien la différence n'était pas grande. Aussi princes africains et impératrices syriennes avaient-ils pratiqué pieusement et protégé le culte de la Mère des Dieux, si proche parente de leur grande déesse. Julia Domna continue à Rome la tradition des Faustines.* Pour préparer les Romains à sa tentative, Heliogabal mit à profit la situation officielle et la popularité du culte métroaque. Il se fit initier aux mystères de Cybèle. Il voulut recevoir tous les sacrements, même la consécration sanglante du taurobole. Il tint à se rapprocher davantage encore des dieux de Pessinonte. Il devint non seulement leur serviteur, mais leur prêtre, et non point selon la loi romaine, mais selon la coutume orientale. Les rites des Galles, presque semblables dans les deux religions de Phrygie et de Syrie, lui étaient familiers. II entra dans le clergé des « fanatiques de la Mère des Dieux » ; on prétendait même que ce César, qui dans certains moments d'exaltation mystique s'identifiait à Magna Mater et réclamait un attelage de lions, lui avait sacrifié sa virilité. Il fit transporter ensuite dans le temple de son dieu noir la dame noire du Palatin.* Ce fut la suprême maladresse, qui acheva de révolter la conscience romaine. Mais en rapprochant ainsi les deux fétiches, que l'on disait tombés du ciel, il prétendait rendre plus manifeste l'analogie de ses dieux avec ceux de Rome ; et sans doute espérait-il attirer vers le nouveau sanctuaire la foule des adorateurs qui se pressaient au temple de l'Idéenne. Cette manœuvre, que Rome indignée considéra comme un acte de barbarie, ne porta point bonheur au Baal d'Emèse.* Par contre, Attis semble en avoir tiré quelque bénéfice. Il n'avait certainement pas attendu si tard pour s'égaler aux dieux sémitiques. Depuis longtemps l'instinct de la foi et la science des théologiens l'avaient grandi à leur taille. Mais la première fois que nous le voyons affirmer à côté de Cybèle sa toute-puissance, n'est-il pas intéressant de constater que c'est au lendemain de la tentative de l'empereur syrien ?
+
+*) Les médailles de consécration de Julia Domna la représentent parée des attributs de Cybèle, sur le char de lions. Le type est emprunté à la numismatique des Faustines.
+
+*) Lamprid., Ileliog. VII, 1, 2. Naturellement les historiens romains, hostiles au César de race étrangère, ont en partie dénaturé la réalité des faits.
+
+*) La réforme tentée par Heliogabal n'était en somme que prématurée et trop violente. Un demi-siècle plus tard, Aurélien s'inspirait de la même pensée en créant un nouveau culte du Soleil Invincible.
 
 # Chapitre 6
 
