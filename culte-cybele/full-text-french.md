@@ -2610,9 +2610,31 @@ Rome, au contraire, est vraiment la capitale administrative du culte. Celui-ci d
 
 L'Amplissime et Très Saint* Collège des 15virs est l'ancien collège décemviral, dont l'effectif fut augmenté entre 640/114 et 703/51, sans doute par Sylla. Le nombre des membres s'accrut encore plus tard, quand les empereurs créèrent des 15virs hors cadre.* Cette dignité sacerdotale n'était du reste pas incompatible avec les fonctions civiles ni avec les autres sacerdoces. Fort recherchée, elle imposait des charges qui ne laissaient pas d'être absorbantes. Les XVvirs restent les théologiens officiels de la religion gréco-romaine, de même que les Pontifes sont les théologiens de la religion indigète. Interprètes d'une tradition sans cesse accrue, ils constituent l'autorité compétente en matière de cultes grecs. L'Empire ajoute au programme le culte phrygien, qui devient l'un des plus importants services de leur département. Désormais, en effet, bien qu'ils aient toujours la garde des livres sibyllins, bien qu'ils conservent pour insignes le trépied prophétique et le dauphin, Cybèle les occupe autant, sinon plus qu'Apollon.* Selon toute vraisemblance, le culte de l'Idéenne, introduit par l'intermédiaire des Xvirs, ne s'était jamais passé de leur concours ; d'anciennes prérogatives ont déterminé les nouvelles attributions.* Quand Rome adopte la liturgie phrygienne, les 15virs ont seuls compétence pour élaborer la réglementation du culte phrygio-romain, assimilé aux cultes d'origine hellénique. Chargés de constituer le sacerdoce, ils restent les directeurs du personnel. La nomination des prêtres et des prêtresses doit leur être soumise et demeure subordonnée à leur approbation.
 
+*) Cic., Verr. IV, 49 ; CIL. VI, 508.
+
+*) Textes dans Marquardt, Culte II, p. 84 ; sur le recrutement. I. p. 80.
+
+*) Stat., Silv. I, 2, 176 : « certc iam nunc Cybeleia novit [ limina el Euboicac carmen legit ille Sibyllae ».
+
+*) Cic., De har. resp. 13, 26 : « sacerdotimn (le Xvirat) quo est haec tota religio (le culte de Magna Mater) constituta ».
+
 Ce sont eux qui donnent l'investiture. Celle-ci consiste dans la remise d'un diplôme par lequel on autorise le port des insignes rituels (_ornatus_). Le diplôme est signé par le vice-président (_promagister_). à qui est attribuée l'expédition des affaires courantes. Nous en avons conservé un exemplaire qui est adressé au conseil municipal de Cumes, en réponse à l'envoi d'un procès-verbal d'élection. La formule consacrée était la suivante : « Les 15virs préposés au culte, aux préteurs et aux magistrats de..., salut. Votre lettre nous a fait connaître votre choix de... comme prêtre de la Mère des Dieux, en remplacement de..., décédé. Conformément k votre volonté, nous lui avons permis de porter l'occabos et la couronne, mais seulement dans la limite du territoire de votre colonie. Nous vous souhaitons bonne santé. En foi de quoi moi..., au nom et à la place du président, ai signé ce... jour des (Kalendes, Ides ou Nones) de..., sous le consulat de.... » Le prêtre muni de ce bref prenait le titre de quindécemviral. Mais tous ne sont pas cités avec ce titre. Quelques-uns s'en prévalent-ils comme d'une supériorité sur d'autres prêtres de leur ville, élus simplement par le conseil municipal ? D'autres le considèrent-ils comme un certificat d'honorabilité et de romanité, qui évite toute confusion possible avec les Galles eunuques et méprisables ? Voici les localités où l'investiture quindécemvirale est signalée : Lyon en 160, Forum Popilii (dans l'ager Falernus) en 186, Bénévent en 228, Orange en 245, Cumes en 289, Brescia, Gompsa (Lucanie), Potenza, Suessula (Campanie).* Elle était donc obligatoire au moins en Italie et dans les Gaules.* Sans doute ce régime s'appliquait-il en principe à toutes les colonies romaines.* Les confréries de Dendrophores et de Cannophores, indispensables au fonctionnement normal du culte, sont aussi placées sous la dépendance et curatelle du sacré collège.
 
+*) CIL. V, 4400 (Br.) ; IX, 981 (Compsa), 1538, 1541 (Ben.); X, 129 (Pot.), 3698 (Cumes), 3764 (Suess.), 4726 (F. P.) ; XII, 1567 (Or.) ; XIII, 1751 (Ljon). Sur le texte de Cumes, cf. Bouché-Leclercq, Hist. delà divinalion IV, p. 310.
+
+*) Nous voyons de même l'action des Pontifes s'exercer hors de Rome, mais seulement dans les limites de la Péninsule. « Il n'existe pas dans tout oppidum italique, écrit Tacite (qui fut XVvir), de cérémonies religieuses, de temples, d'images des dieux qui ne soient sous la juridiction romaine ».
+
+*) Cf. supra, p. 143.
+
 Ce type d'organisation cultuelle est-il unique dans la religion romaine, à l'époque des Empereurs ? Ou bien s'appliquait-il également aux cultes de Cérès, d'Esculape, et, d'une façon générale, à tous ceux que le collège fit pénétrer dans la cité ? Aucun témoignage n'autorise la seconde hypothèse. Il est fort vraisemblable que des conditions spéciales furent imposées à Cybèle. C'était une mesure de sage politique. L'État ne savait que trop quelle était la puissance des prêtres dans les religions mystiques de l'Orient. Il maintient ses garanties par le droit d'investiture. Car ce droit rend toujours possible une enquête préalable, de même qu'il suppose un contrôle permanent, par conséquent une autorité disciplinaire ; et qui accorde un privilège peut le retirer. Aussi bien, la délivrance du brevet devaitelle devenir avec le temps, sauf à Rome, une simple formalité, une tradition bureaucratique. A Rome, la nomination du haut clergé conserva toujours son importance. Les 15virs entretiennent des rapports constants avec le clergé de la métropole. Ces administrateurs sont eux-mêmes des prêtres, _sacerdotes et antistites caerimoniarum_.* A ce titre ils assistent aux cérémonies publiques de mars et d'avril, aux processions solennelles, aux jeux, aux fêtes d'actions de grâce. Mais nous ignorons quels actes religieux ils accomplissaient par eux-mêmes. Après le rite du Bain, ce sont eux qui prononcent la formule d'oraison invitant la déesse à rentrer dans Rome. Ils ne participent pas seulement aux fêtes du Palatin. Lorsque le taurobole devient une institution officielle, ils interviennent dans les grandes taurobolies du Vatican pour le salut des empereurs et de la Maison Divine. Ils y vont en corps, couronnés de laurier,* font parfois l'offrande du sacrifice et ne se bornent pas à honorer de leur présence la cérémonie; ils jouent un rôle liturgique dans la célébration du mystère. Personnellement ils dédient des autels tauroboliques aux Tout Puissants et, dans les derniers siècles, tiendront à recevoir le baptême rouge, seuls ou en famille.* Ils peuvent être appelés aussi à taurobolier hors de Rome.*
+
+*) Liv. X, 8, 2 ; cl. Cic., l. c. : « sibyllinus sacerdos ».
+
+*) Cf. Liv. XXVII, 37 : « Decemviri coronati laurea praetextatique » ; Arnob. IV, 35 : « sedent (au théâtre) XVviri laureati ».
+
+*) V. supra, p. 167, liste B,t, 2, 3, .5, 12, 13, 17, 18, ‘20 . Toutes ces inscriptions datent du iv” siècle.
+
+*) Ibid. 25. Mais rien ne prouve que ce sacrifice n'avait pas un caractère privé.
 
 ## 2\.
 
@@ -2622,30 +2644,216 @@ L'Archigalle est un pur produit de l'Orient. En principe, il est le premier des 
 
 Si Juvénal connut certain Archigalle de Rome qui méritait l'épithète méprisante de _semivir_,* il faut admettre que l'organisation définitive de l'archigallat romain est postérieure aux Flaviens. Elle serait contemporaine de celle du taurobole, laquelle attribue précisément à l'Archigalle un rôle considérable ; et peut-être en fut-elle la conséquence. D'autre part, Firmicus Maternus, Prudence et Servius prétendent que les Archigalles sont eunuques.* Il est possible en effet que, vers la fin de l'Empire, l'eunuchisme ait reconquis ses droits. Mais il ne constitue plus l'ordination obligatoire. On ne saurait même affirmer que, sous la République, les prêtres phrygiens de l'Idéenne aient été nécessairement des eunuques. Aussi bien, l'éviration sacerdotale pouvait n'être, dans la mystique anatolienne, qu'une importation relativement récente du sémitisme.* Le mythe lydien d'Attis, blessé et tué par un sanglier, laisserait croire que « l'autocastration « ne fut point, en L}die, le principe fondamental du sacerdoce. Dans l'Anatolie grecque, où cependant le culte métroaque comportait l'orgiasme, l'hellénisme ne se laissa pas trop entamer, ce semble, par ces pratiques barbares. A Pessinonte même, où l'influence hellénique fut puissante au temps des Attalides, les Attis ont renoncé à cette ressemblance avec leur dieu.* Qu'à l'origine ils aient sacrifié leur virilité, comme le dieu pessinontien, leur nom théophore ne permet guère d'en douter. Mais, lorsque Clodius met à l'encan le sacerdoce suprême de la ville sainte, ils ne sont plus des prêtres eunuques. De même le Battakès, qui partage avec P Attis la grande prêtrise et les insignes royaux, n'est pas un castrat. Lorsque l'un d'eux vint à Rome en 652/102, ses insulteurs n'eussent point manqué de lui prodiguer cette injure. A plus forte raison, sous l'Empire, les dix membres du sacré collège des Attis n'ont-ils que le nom de commun avec le dieu émasculé. Les Galles représentent seuls désormais l'ancien clergé. Ce ne sont pas seulement les prêtres municipaux de la Mère des Dieux qui ont conservé tous leurs droits au nom d'hommes; le sacrifice du sexe a cessé d'être la condition primordiale de l'archigallat. Un Archigalle de Tusculum est marié.* Même en Asie Mineure, au cœur de la Pisidie,nous constatons cette dérogation à la loi religieuse.*
 
+*) Juv., Sat. VI, 513.
+
+*) Firm. Mat., Mathes. III, 6,22 : « abscisos archigallos » ; Prudent., Contra Symm. II, 51 (mais il n'est pas sûr que le « Berecynthiacus sacerdos » désigne l'archigalle) ; 858 s : « Megalesius hinc spado diris | incensus furiis caeca ad responsa vocatur » ; Serv. ad Aen. IX, 115 : « Mater Magna. . . efïecit ut cultores sui sibi viriles suas partes amputarent, qui archigalli appellantur ».
+
+*) Cf. Gruppe, Gr. Mythol. u. Relig., p. 1542 ss.
+
+*) Cf. un phénomène analogue dans le culte de l'Artemis d'Ephèse. A l'élément purement oriental des prêtres eunuques, dits Mégabyzes, ayant à leur tête un prêtre roi, dit Myzos, s'est surajouté d'abord, ce semble, puisa succédé un clergé de type hellénique, prêtres et hiéropes, sous la direction d'un « archiereus ».
+
+*) Not. Scavi 1895, p. 104 : « coniugi be[ne merenti] cum quo vi[xit ann..] archigallo Tus[culanorum] et sibi ».
+
+*) Sterret, Wolfe Expediiion , clans Papers of Amer. School III, 1888, p. 165, n° 380 ; Ramsay, Studies, p. 343, n° 22 : statue élevée à Zeuxis, archigalle d'Artemis, par Aurélia Venu s ta (sa femme ?).
+
 A vrai dire, beaucoup semblent s'être voués au célibat.* Peut-être le vœu de chasteté avait-il remplacé tout d'abord l'éviration volontaire. Toutefois ce vœu ne pouvait suffire. Ce qu'il fallait surtout aux dieux, c'était un sacrifice de substitution. Ils acceptèrent en dédommagement les « vires » du taureau et du bélier. L'Archigalle se rachetait par un taurobole. Le sacrifice taurobolique devint la cérémonie de consécration, qui accompagnait la prise de possession du titre et des insignes. Ne pourrait-on rapporter à cette fête le fameux passage de Prudence* ?
+
+*) Monuments funéraires de Camerius, à Rome : « vivus sibi fecit et libertis » ; de Barbunteius, à Salone, par une de ses affranchies ; de Publicius, à Capo d'Istria,« vivus fecit sibi ». Er. Lycaonie, cf. Dada, « alumna » d'AUalos.
+
+*) Prudent., Peristeph. X, 1011 s.
 
 _Summus sacerdos_ nempe sub terram scrobe  
 Acta in profundum _consecrandus_ mergitur.
 
 Le personnage dont parle Prudence porte sur la tête une couronne d'or, posée, ce semble, sur un bonnet phrygien à longues bandelettes.* Ce sont là des attributs de l'Archigalle.
 
+*) Ibid., 1013 ss : « mitrà (Dressel, éd. 1860, préfère la leçon mire, moins intéressante) infulatus, festa vittis tempora nectens, corona tum repexus aurea, etc. » ; cf. Virg. , Aen. IX, 616 (à propos du costume oriental des Troyens) : « habent redimicula mitræ ». Enfin n'est-ce pas le bonnet phrygien, à larges fanons couvrant les joues, que décrit Juvénal, VI, 515, comme coiffure de l'archigalle ? « Et Phrygia vestitur bucca tiara » ; cf. la scolie : » tiara est frigium quod dicunt ». La tiare papale est qualifiée de frigium ; Duchesne, Orig. du culte ehr., 5e éd., 1909, p. 403.
+
 Dans ces conditions, l'archigallat est accessible aux citoyens romains. Q. Caecilius Fuscus, Archigalle d'Ostie vers la fin du 2e siècle ou le début du 3e, C. Camerius Crescens, Archigalle de Rome au 3e ou 4e siècle, portent des noms tout romains. Le plus souvent, le cognomen trahit la qualité d'affranchi : L. Barbunteius Demetrius, à Salone, est d'origine libertine ; Fl. Antonius Eustochius, qui occupait le siège de Rome en 319, paraît être un affranchi de l'empereur Constantin ou de son père Constance. Il y a aussi d'anciens esclaves publics, ou fils d'esclaves publics, affranchis de leur ville : tels Publicius Mysticus, en Lusitanie, à la fin du 11e siècle, et L. Publicius Syntropus, en Istrie.
 
 Prophète et prêtre,* l'Archigalle conserve officiellement sous l'Empire sa double fonction. Par la théopneustie, il reste l'interprète de l'Omnipotente. C'est pourquoi il n'a point perdu son nom théophore. Quand il vaticine, sa personnalité disparaît ; il est Attis Gallus. Aussi, sur les monuments dédiés _ex vaticinatione Archigalli_, la mention des noms personnels est-elle anormale. Il mêle ses révélations aux cérémonies mêmes du culte, le jour du Sang, lorsque les jeûnes antérieurs, les blessures du moment, les cris, les ululements, les mélopées plaintives, le rythme sourd du tambourin, les stridulations de la flûte ont surexcité ses sens et provoqué en lui l'enthousiasme prophétique. A toute époque de l'année on pouvait le consulter, dans des conditions que nous ignorons ; et il transmettait les volontés de la Dame. Celles-ci se manifestaient par des réponses souvent obscures* ; mais en général la déesse imposait des expiations, surtout des tauroboles et des crioboles. L'Etat romain, dont l'ancienne divination ne laissait point de place au fanatisme inspiré, ne se borne pas à autoriser l'oracle phrygien ; il le favorise. 11 le tient en si haute estime qu'il accorde, en certains cas, des privilèges juridiques à ceux qui en usent.* Mais il se réserve les avantages spirituels du sacrifice ordonné. Aux tauroboles que nous voyons accomplir à la suite d'une vaticination d'Archigalle correspond toujours, sur la dédicace, la même formule précatoire; leur raison d'être est d'assurer le salut des empereurs et de la famille impériale, c'est-à-dire la continuité de l'Empire et l'éternité de Rome. Le culte phrygien payait ainsi son droit de cité.
 
+*) Ce sont les Phrygii vates ; Ambr. , Ep. I, 18, 30.
+
+*) Prudent., Contra Symm. 864 : « caeca responsa ».
+
+*) Supra, p. 153. Sur les rapports de l'État avec les prophètes orientaux, cf. à Carthage les proconsuls, à partir d'Antonin, interrogeant officiellement l'oracle de Caelestis, dès leur arrivée dans la province : Capitolin., Macr. 3.
+
 En tant que prêtre, l'Archigalle a des devoirs à la fois envers le municipe et envers la communauté métroaque. Dans le culte public il célèbre certains offices solennels. Le 15 mars, jour de la Cannophorie, c'est lui qui préside à la fête agraire et sacrifie le taureau de six ans pour la prospérité des champs situés dans les montagnes. Le 24, jour du Sang, c'est lui qui commence les libations de sang humain en se tailladant les bras ; le même jour, dans un mandement à son clergé et aux fidèles, il ordonne des prières pour la conservation de l'empereur et de l'Empire. Le 27, jour du Bain, c'est lui qui baigne l'image sainte. Mais il est aussi le pasteur d'un troupeau mystique. Chef spirituel de son église, il préside aux initiations et administre les sacrements.* Il est le bienfaiteur des confréries en même temps que du sanctuaire. L'un d'eux, M. Modius Maximus, à Ostie, offre un ex-voto qui reproduit ses armes parlantes : un modius en marbre, orné d'attributs cultuels ou symboliques, et surmonté d'un coq (_gallus_). Un autre, dans la même localité, donne des statuettes de Cybèle et d'Attis aux Cannophores pour décorer leur « schola. » Tel autre enfin, à Capoue, consacre dans le temple une statue de la déesse, en marbre.
+
+*) Le nom de l'Archigalle figure avec celui du prêtre sur une ara taurobolu natalicii redditi, à la fin du 2e s. ; CIL. II, 5260.
 
 Mais toutes les villes qui rendent un culte public à la Mère des Dieux ne possèdent pas un Archigalle.* Le choix des sièges fut sans doute déterminé par l'importance des temples et la prospérité des églises. C'est ainsi que, dans le voisinage immédiat de Rome, il y eut des Archigalles à Tusculum et à Ostie. Dans son église, le prêtre-prophète exerce une sorte de suprématie de droit divin. Car il est le Très Grand,* l'Éminence. Il est le Très Saint,* que la déesse a marqué du signe d'élection. Il est en quelque manière une incarnation d'Attis ; et parfois il s'attribue le nom même de son dieu. Cette primauté spirituelle s'étendait-elle sur un véritable diocèse ? En Italie, rien ne laisse supposer qu'elle dépassât les limites de la colonie ou du municipe. La titulature officielle comporte une restriction qui est tout à fait conforme aux traditions administratives et religieuses de l'État romain. L'Archigalle qui siège à Ostie prend le titre « d'Archigalle de la colonie d' Ostie. » Comme les simples prêtres, il ne peut donc revêtir ses insignes ni remplir ses fonctions liturgiques en dehors d'un territoire déterminé. Celui de Rome, _Attis Populi Romani_, n'est pas un métropolitain de la religion ; il n'est que T Attis de la population romaine. Dans les provinces, le nombre des Archigalles paraît être beaucoup plus restreint que dans la péninsule. Nous n'en connaissons en Gaule, jusqu'à présent, qu'à Lyon et à Narbonne,* qui sont deux capitales. En Dalmatie, le seul dont il soit fait jusqu'ici mention est également celui de la capitale, Salone. On venait les consulter de toute une province et même, selon la facilité des communications, de provinces voisines. En 184, un taurobole fut célébré à Tain, dans la vallée du Rhône, entre Valence et Vienne, à la suite d'une vaticination de l'Archigalle de Lyon. Tain appartenait à la Narbonnaise, mais se trouvait dans le cercle d'attraction de l'autre capitale, dont quatre-vingt kilomètres seulement la séparent. Rien ne prouve toutefois que ce sacerdoce n'ait pas conservé le même caractère municipal qu'en Italie.
 
+*) Liste des Archigalles signalés par les textes épigraphiques et les monuments figurés :  
+Roma. C. Camerius Crescens, Archigallus Matris Deum Magnae et Attis populi romani. 111e s ? CIL. VI, 2183.  
+Fl. Antonius Eustochius, Sacerdos Pliryx Maximus. Année 319. Ibid. 508.  
+Inconnu. Portrait vu par Montfaucon à Rome et publié en 1719 dans son Antiquité expliquée, I, pl. iv et p. 14. La tête et les bras manquent. Visconti, Op. Vil, Museo Pio-Clementino 102, croit qu'il s'agit d'une prêtresse.  
+Ostia. Q. Caecilius Fuscus, Archigallus coloniae Ostiensis. Fin du 11e s. CIL. XIV, 34, 35.  
+M. Modius Maximus, id. ;ii”-mes. Ibid. 385.  
+Lanvvivm ? Portrait d" Archigalle en relief et à mi-corps (h. 1 m. 12, larg. 1 m. 08) ; marbre trouvé près de Civita Lavinia, conservé à Rome au Musée Capitolin. ier-ne s. --- Bibliogr. dans Helbig, Guide 1,425.  
+Tvscvlvm ? Inconnu, Archigall(us) Tus(culanorum). Not. Scavi 1895, p. 104.  
+Capva. Virianus Ampliatus, Archigallus M(atris) D(eum). CIL. X, 3810.  
+Lvgdvnvm. Pusonius Iulianus. Années 184, 190. CIL. XII, 1782 ; XIII, 1752.  
+Emerita (Lusitanie). Publicius Mysticus, Arc(h)igall(us). CIL. II, 5260. Mysticus est ici un cognomen et non pas, comme il est dit au Corpus, un titre sacerdotal.  
+Tergeste ('? l'inscr. provient de Capo d'Istria). L. Publicius Syntropus, Archigallus. CIL. V, 488.  
+Salona (l'inscr. provient de Zara). L. Barbunteius Demetrius, Archig(allus) Salonitan(us). CIL. III, 2920 a, et p. 1037.  
+Milev ou Cirta (Numidie). Inconnu, Archigallus. Entre 222 et 235. CIL. VIII, 8203.  
+Hierapolis (Phrygie). M. Aurelios Eutychianos, Archigallos. La « Boulé » et le « Démos » l'ont jugé digne d'une statue pour avoir bien servi les dieux. Fin du iic s. ou début du me. Humann, Cichorius, etc., Altertümer von Hierap., 1898, p. 83, n° 33.  
+Savatra (Lycaonie). Attalos, Archigalle de la Meter Zizimménè ; J. of Hell. St. XIX, 1899, p. 280, n° 163.  
+Dans la prétendue épitaphe d'un Archigalle à Tournai, le titre est une restitution arbitraire : CIL. XIII, 3566. L'Archôn Iereus de la Mère des Dieux et de l'Agapet (Antonin le Pieux ou Septime Sévère ?), à Athènes, CIA. III, 173, n'est pas un Archigalle. Zeuxis Cleustianos, à Saghir (Pisidie), est Archigalle d'Artemis ; Sterret, op. I., 380.
+
+*) Le Sacerdos Maximus de Rome paraît bien être l'Archigalle, à cause de l'épithète Phryx ou Phrygius.
+
+*) Tertull., Apol. 25.
+
+*) Dans cette ville, en admettant que les formules ex inssu et ex imperio supposent une vaticination de l'Archigalle.
+
 Qui nommait l'Archigalle ? Peut-être était-il désigné par l'assemblée des fidèles,* élu par le sénat du lieu, agréé et titularisé parle collège des 15virs. Encore que le seul dont nous possédions l'effigie semble assez jeune, de préférence on choisit de vieux serviteurs de la Dame, des prêtres aux cheveux blancs.* On tient compte aussi des aptitudes physiques. Il est bon que l'Archigalle impose le resjiect non seidement par sa piété et par son âge, mais aussi par sa taille et sa prestance.* Il est nommé à vie. Nous retrouvons le meme à Lyon en 184 et en 190. Nous en connaissons un qui mourut à 73 ans et qui depuis sa dix-septième année était au service de la Mère des Dieux.*
 
+*) Cf. supra, p. 160, liste A, y, z , deux Antisliies, « sulîragio ordiniscoloniae suae comprobati » ; mais l 'Autistes est ici une sorte d'archiprêtre et ne peut être confondu avec l'Archigalle, Encore que Juvénal, II, 113, désigne ce dernier sous le nom de sacrorum autistes.
+
+*) Ovid., Fast. IV, 337 ss.
+
+*) Juv., Sat. VI, 512 : « ingens ».
+
+*) CIL. III, 2920 a : « qui annis XVII usq. ad ann. LXXVinlegr. sacra confecit » ; l'ablatif annis ne permet pas de traduire « pendant 17 ans ».
+
 Costume et insignes ont gardé leur caractère franchement oriental. On en peut juger par un relief d'apparence funéraire,* trouvé sur le territoire de Lanuvium et conservé au Musée Capitolin de Rome. Robe talaire à manches longues, serrées au poignet par un bourrelet, large ceinture, pallium qui était de couleur pourpre,* comme les chapes de l'Archiprêtre de Dea Syria et de l'_Antistes_ de Sabazios. La couronne d'or* imite les feuilles de l'olivier, ou plutôt du laurier prophétique. Trois médaillons y sont plaqués. Sur celui du centre se détache le buste de Zeus Idaios ; sur les deux autres est représenté le buste d'Attis.* Le bonnet phrygien fait ici défaut ; sans doute l'Archigalle ne s'en coiffait-il que dans les cérémonies mystiques. Symbole de consécration, un voile, passé sous la couronne, couvre la nuque et descend sur les épaules.* Des bandelettes, perlées de fusaïoles, tombent le long des tempes et des joues, jusque sur la poitrine.* D'autres perles ornent les oreilles, en signe d'asservissement aux dieux.* Un collier, sans doute en or, enchâsse une gemme ou un camée entre deux têtes de serpents.* Enfin un pectoral, en manière de pendentif, affecte l'aspect d'un petit « naiskos, » où apparaît encore l'image du dieu berger ; c'est le prostêthidion, insigne de tous les Galles.* Les cheveux ondulés et calamistrés, la face glabre, où l'on devine les artifices du fard, achèvent de donner au personnage un air efféminé qui rend suspecte sa virilité. Il est vrai que le monument n'est pas postérieur au principat d'Antonin* et remonte peut-être aux origines de l'archigallat romain. Par contre, le prêtre que connut Prudence portait toute sa barbe* ; la mode est quelquefois plus forte que les plus anciennes traditions. Sur le relief capitolin, l'Archigalle tient dans la main droite un fruit rond, qui pourrait être une grenade, et une tige à trois rameaux* ; est-ce un aspersoir pour les libations ? De la main gauche il présente une patère en forme de conque, où se trouvent des fruits sacrés, pomme de pin et amandes ; est-ce une variété du kernos rituel? Mais ses attributs les plus caractéristiques sont ceux qui figurent à ses côtés. C'est d'abord la ciste cylindrique,* fermée, ceinte d'une branche de grenadier, châsse des mystiques symboles qui ne se révèlent qu'aux seuls initiés. C'est, d'autre part, le fouet à trois lanières garnies d'osselets, au manche décoré de têtes barbues de Zeus. A l'origine, ce fouet fut sans doute un attribut du commandement, un insigne de l'autorité que l'Archigalle exerçait sur les hiérodules ; il n'est plus qu'un instrument rituel d'exorcisme et de pénitence.*
+
+*) A cause de l'attitude, qui est celle des Attis funéraires : main dr. sous le menton, main g. sous le coude droit. Visconti, l. c., croit sans raison que l'image était consacrée dans un temple. A la bibliogr. donnée par Helbig, ajouter : Duruy, Ilist. rom. II, p. 528 ; Perrot et Chipiez, II. de Hart, V, p. 35 ; Dar. et Saglio, Dict. d. Anl., s. v. Gallus , II, 2, p. 1457, fig. 3482.
+
+*) Varr., Eumenid. V (121) : « aurorat ostrinum hic indutus supparum » ; Ovid., Fast. IV, 339 : « purpurea cum veste » ; cf. le vêtement rouge d'exorcisme, à Babylone: Schrank , Bahyl. Sühnriten , dans Lei]>z. Semit . Slud. III, l.
+
+*) Varr., l. c : « coronam ex auro et gemniis fulgentem ». Ne serait-ce pas à la couronne d'or que faitallusion l'épithète de chrysophore, appliquée à un Galle de Cybèle ? Anthol. Gr. VII, 709, 3.
+
+*) Cf. un fragment de diadème en bronze doré, provenant de Rome et conservé au Musée de Berlin : Iahrb.d. Instii. 1892, Arch. Anzeiger , p. 111. La décoration consiste en feuilles de laurier ; deux médaillons, séparés par une rosace, portent les bustes de Cybèle et d'Attis en haut relief. Un cistophore de Bellone à Rome, CIL. VI, 2233, porte également une couronne de laurier avec trois médaillons. Sur ce type de couronnes dans le culte impérial, cf. Sueton., Domit. 4;en Asie Mineure, prêtre d'Ephèse : Jahreshefte d.Oesterr. arch. Inst. II, 1899, pl. vm et p. 245, fig. 131 ; type fréquent sur les portraits de Palmyre. L'épicurien Diogène demandait à Alexandre une couronne d'or décorée d'une image de la Vertu, dont il voulait, disait-il, être le prêtre : Athen. V, 13, p. 211.
+
+*) On a pu supposer aussi que c'était un pan du pallium qui formait voile; mais l'imposition du voile ou amict ( Phrygius amictns, dit Virgile) est un rite essentiel de la consécration aux dieux ; cf. Reinach, Cultes, I, p. 299 ss.
+
+*) Cf. dans Prudence le Summus Sacerdos « festa vittis tempora nectens ». Mêmes bandelettes à fusaïoles dans la coiffure de Laberia Felicla, Sacerdos Maxima Matris Deum, et dans celle du personnage publié par Montfaucon.
+
+*) V. le chapitre consacré aux Galles. --- Sur le rôle magique de la perle, cf. celle que l'on suspend au cou du jeune brahmane après son initiation, et les textes cités par V. Henry, La magie dans l'Inde, 1904, p. 90.
+
+*) Sont-ce bien des têtes de serpents ? Même collier, avec têtes d'animaux (chiens ou loups), au cou du cistophore de Bellone. Collier de même type aussi sur le portrait publié par Montfaucon. Le serpent est l'un des attributs des divinités chtoniennes ; cf. la Mère aux serpents de la religion crétoise.
+
+*) Le personnage de Montfaucon porte également sur la poitrine deux médaillons, avec bustes d'Attis, et une large plaquette carrée, à fronton triangulaire, avec les images de Cybèle debout, tenant le tympanum, de Zeus tenant le foudre et le sceptre, d'Hermès tenant le caducée. Dans le fronton, Attis, à demi-couché comme sur la slatue d'Ostie, appuie sa tête sur son bras g. qui repose sur le pedum.
+
+*) Les yeux ne sont pas incisés.
+
+*) Prudent, l. c. 1044.
+
+*) Branche de grenadier, ce semble. Le cistophore de Bellone tient de même une branche (laurier ?). Cf. supra, p. 134, n. 4.
+
+*) Avec courroie de suspension. Ciste en osier, à droite du Bellonaire. Ciste votive, en marbre, d'un archigalle d'Ostie, au Musée du Latran. La ciste apparaît aussi, suspendue à un pin, sur un autel taurobolique, CIL. VI, 505 (cf. Zoega, Bassirilievi ant. di Roma, pl. xm), et sur le couronnement d'un tombeau, où elle est surmontée d'une pomme de pin, à Pettau, cf. Conze, Denksçhr. XXIV, p. 65. Sur le contenu de la ciste, cf. supra pp. 134 et 179, n. 4.
+
+*) En Egypte, le fouet est un insigne des dieux et des rois ; en Syrie, il est aux mains du Baal-Zeus d'Hierapolis, « dexlra elevala cum flagro » : Macrob., Sal. I, 23. Il servait à punir les Galles délinquants : Plut., Ado. Colot. 33. Textes relatifs au fouet rituel, cf. infra, chapitre VIII.
 
 ## 3\.
 
 Prophète, l'Archigalle est comme le mandataire de la Mère des Dieux auprès des hommes. Le prêtre n'est que l'intermédiaire des hommes auprès de la divinité. Chaque temple suppose un personnel sacerdotal. Très souvent un seul prêtre suffit pour desservir le sanctuaire. Le Metrôon de Trieste paraît n'en avoir exigé qu'un. On en connaît deux à Lectoure en 176 et un seul en 241, deux aussi à Bénévent dans la première moitié du 3e siècle, à Mactaris (Afrique) vers la fin du même siècle, à Laurolavinium, à Lisbonne et dans une ville du Norique. Dès qu'ils sont deux, il existe nécessairement entre eux une hiérarchie, selon la tradition orientale.* A Lectoure, c'est toujours le même qui est nommé avant l'autre ; parfois il est nommé seul. Celui qui est le plus élevé en grade porte le titre de prêtre en premier, _Sacerdos primo loco_, ou encore d'_Antistes_.*
 
+*) Cf. des prêtres en premier, en second (deutérostates) dans les cultes puniques : Clermont-Ganneau, Recueil d'archéol. or. V, 1903, pp. 66, 69.
+
+*) Pour ce titre, cf. deux prêtres de Mactaris, en Afrique. On dit en général autistes sacrorum ; Arnobe, V, 7, dit sacerdotiorum antistites.
+
 Ce clergé n'appartient pas à une caste fermée ni à un organisme cosmopolite. Il est exclusivement municipal. Représentant de la cité auprès de la déesse, il est choisi par la cité, pour la cité et dans la cité.* Il est élu par le conseil municipal, qui a toute autorité sur les cultes publics. Nous possédons le procès-verbal d'une élection faite à Cumes en 289. Il s'agissait de désigner un titulaire au sacerdoce de la _Mater Deum_ de Baies, lequel était vacant par suite de décès. Les préteurs, qui sont les premiers magistrats municipaux, ont convoqué le conseil pour le 1er Juin. La réunion a lieu dans le temple de Vespasien. On commence par tirer au sort trois secrétaires. Puis les préteurs lisent le rapport sur l'ordre du jour. On procède au vote : Licinius Secundus obtient l'unanimité des suffrages. Nous avons vu que, du moins en Italie et en Gaule, ce procès-verbal était expédié à la chancellerie du Quindécemvirat, pour la confirmation des titres et l'octroi des insignes. La lettre d'octroi est datée du 17 août ; il avait donc fallu deux mois et demi pour régulariser la situation. Licinius n'a pas le droit de porter ses insignes ni par conséquent d'exercer son sacerdoce en dehors du territoire de la colonie de Cumes ; cette interdiction est spécifiée dans le bref quindécemviral. Aussi le titre officiel comprend-il toujours la mention de la colonie, du municipe ou du « vicus » auquel appartiennent les prêtres. Ils étaient donc astreints à la résidence. Mais ils n'étaient pas tenus de demeurer à proximité du sanctuaire. Le prêtre de Baies pouvait habiter Cumes. Celui d'une _Mater Deum Transtiberina_, dont le temple était en face d'Ostie, habitait Ostie. Le prêtre des Aquae Albulae résidait à Tibur, et celui du Vicus _ad Novas_ à Suessula, dont la distance est d'environ sept kilomètres. En des circonstances extraordinaires, les ministres de villes voisines pouvaient obtenir l'autorisation d'officier ensemble. En 245, à Die, cité sainte et lieu de pèlerinage, dont la déesse vénérée s'était confondue avec la Grande Mère, le prêtre matronale d'Orange est convoqué à un triple taurobole ; c'est lui qui préside à ce sacrifice, offert par le pontife perpétuel de la cité de Valence, sa femme et sa fille. D'autres prêtres de la région l'assistent, dont l'un est venu d'Aps.
+
+*) Liste des prêtres connus (époque impériale).  
+Roma.  
+Antiochus, sacerdos MatrisD.., sous Auguste. CIL. VI, 2211.  
+Onesimus, sac (erdos) M(atris) D(eum) M(agnae) I(daeae), sous Auguste. Ibid., 496.  
+M. Plaetorius Herculanius, sacerdos M.D.M.I. --- ne siècle. Ibid ., 2258.  
+Aurelius Antonius (mort à 7 ans), fils d'Aurelius Onesimus et d'Aurelia Antonia, [GREC] (Bonae Deae), [GREC]. --- CIG. 6206; IGSI , 1449.  
+Fl. Antonius Eustochius, sacerdos phryx maximus, en 319 ; v. supra la liste des Archigalles.  
+Latium.  
+Ostia. --- Valerius Pancarpus, sacerdotes (?) en 199. CIL. XIV, 39.  
+C. Maeclasius Primitivos, sac(erdos), vers 200. Ibid., 281.  
+C. Atilius Bassus, sacerdos M. D. M. --- ne s. Ibid., 53.  
+L. Valerius L. fil. Fyrmus, sacerdos Isidis Ost(i)ens(is) et M. D. Trastib (erinae). na s. Ibid., 429.  
+Aqvae Albvlae. --- C. Iulius Sp. f. Iulianus Proculus, sacerdos M.D.M.I. ad Aquas Albulas. Ibid., 3534.  
+Nomentvm. --- ... V)erulanus Phaedrus, sacerdos Nomentanorum Matris D. M. Ibid., 3956.  
+Lavinivm. --- ... Phryg?]ius Max[imus..., sacerdos ? M.] D. M. I. L(aurentium) L(avinatium) ; en 212. Gagna t, Ann. epigr. 1895, 120.  
+Italie. Région I  
+Liternvm. --- At?]hamas, sacerdos Matris Dcum. --- Epli. epigr. VIII, 455.  
+Gvmae. --- Claudius Restitutus, sacerdos Matris Dcae Baianae ; mort en 289 CIL. X, 3698.  
+Licinius Secundus, id. ; élu en 289. Ibid.  
+L. Ampius Stephanus, sac(erdos) M. [D . ] ; en 251 (sur une liste de dendrophores dont il est le patron). Ibid., 3699.  
+Ad novas (vicvs novanensis, près de Suessula). --- L. Pompeius Felicissimus, immunis dendr (ophorus) Suessul(anus) et sacerd(os) M.D. XVvir(alis) in vico Novanensi. Ibid., 3764.  
+Région II.  
+Larinvm. --- L. Raius Félix, sacerdos Matris Deum. CIL. IX, 734.  
+Compsa. --- Inconnu, de la tribu Galeria, [sacerdos] XVvir(alis) Matrifs Deum], Ibid., 981 .  
+Beneventvm. --- Septimius Primitivus, augur et sac(erdos M. D.); en 228. Ibid., 1538.  
+Mamius Secundus (préside à un taurobole en 228). Ibid.  
+L. Sontius Pineius Iustianus, vir principalis, II vir, sacerdos Matri(s) Deum M. I. --- ne s. Ibid., 1540.  
+Brvndisivm. --- L. Pacilius Taur(us), sac(erdos) Matr(is)Magn (ae) et Suriae deae et sacror(um) Isidis. Ibid., 6099.  
+Région IV.  
+Teate marrvcinorvm. --- Petronius Marcellus, sacerd(os) ; entre 235 et 238. Ibid.. 3014 et 3015.  
+Corfinivm. --- P. Marius Pharetra, sacerd(os)./btd., 3146.  
+Région V.  
+Interamnia (Teramo). --- T. Attius T(iti) l(ibertus) Atianus, sac(erdos) Matr(is) Mag(nae) Vestinar(um civitatum?). Ibid., 5061 (un Attius, fils d'Attianus, est prêtre de la Mère des Dieux à Dea Vocontiorum, CIL. XII, 1568-69).  
+Région VII.  
+Falerii. --- C. Iulius G. f. Hor(atia tribu) Severus, sacerd (os) Isid(is) et Matr(is) Deum. ier-ne s. CIL . XI, 3123.  
+Centvmoellae (Givita Vecchia). --- C. Procul(eius), Mag(nae) D(eum) M (atris) s(acerdos). CIL. XI, 3550.  
+Région X.  
+Pola. --- C.Laecanius Thcodorus, Sacerdos M. D. M. I. --- CIL. V, 81.  
+Tergeste. --- Q. PubliciusCharito, sacerdos M. D. M. --- Ibid.. 519.  
+Région Xt.  
+Meiholaxvm (Milan).--- C. Varius Elpidephorus, sacerd(os) Matr(is) Magn(ae) Deum Ideae. Ibid., 5862.  
+G. Poblicius Olympus, sacerdos M. D. --- Ibid., 5881.  
+Gaules.  
+V int ia' m (Yence). --- CassiusPaternus, sacerdos. CIL. XII, 1.  
+Vasio (Vaison). --- Aul. Titius Phronimus, sacerd(os). --- Ibid., 1311.  
+Aravsio (Orange). --- Iuni(us) Titus sacerdos XV vir(alis) Arausens(is) : en 2-15. Ibid., 1561.  
+Allia Aps). --- Castricius Zosimio, sacerdos Civitat(is) Albcns(is : en 245.  
+Dea vocontiorvji (Die). --- Blatlius Paternus, sacerdos Civitatis Yoc ontiorum) ; en 245. Ibid.  
+Attius Attiani fil(ius) sacerd os). --- Ibid., 1569, 1568 ? cl'. 2776, épitaphe de Sextus Attius Attianus).  
+Fl. Talusius ? sous Seplime Sévère. --- Gagnai, Ann. épigr. 1888, 81.  
+Valentia (Valence). --- C. Valerius Ur[ban?]us, sacerdos ; entre 209 et 211. CIL. XII, 1745.  
+Nariio. --- Q. Paquius Chrestus, sacerdjos'.- Ibid., 4322 (cf. un Paquius M(arci) 1 ibertus) Dama, fabarius, 4472).  
+Iulius Euprepes sacerdos. Ibid., 4326.  
+Lactora (Lectoure). --- Sminthius Proculiani (servus, --- libertus), sacerdos M(atris) M(agnae) ; en 176 et suiv. CIL. XIII, 505-509.  
+Pacius Agrippae (servus , sacerdos M.M. ; en 176. Ibid., 505, 506.  
+Traianius Nundinius, sacerdos M. D.. Années 239-241. Ibid., 510-519.  
+L. Accius Rem (us?), sacerdos M.M. Ibid., 521.  
+Lvgdvnvm (Lyon). --- Q. Sammius Secundus, .sacerdos ab XVviris occabo et  
+corona exornatus, cui sanctissinius ordo Lugudunensis perpetuitafcem sacerdotii decrevit.En 160. Ibid ., 1751.  
+Aelius Castrensis. Années 181 et 190. CIL., XII, 1782 ; XIII, 1752-53.  
+Aelius Anthus, sacerdos. En 197. CIL. XIII, 1754.  
+Lusitanie et Bétique.  
+Olisii'o (Lisbonne). --- M. Iu(tius) Gassfianus ?). En 108. CIL. II, 179.  
+Emerita (Merida). --- Docyricus Valerianus, sacerdos. Fin du n° s. /7nV/.,5260 (sur ce nom Docuiricus ou Docquiricus, et. 360, 431, 448, 551, 2862).  
+Cordvba (Cordoue). --- Aurelius Stepbanus, sacerdos. En 238. Ibid., 5521.  
+Noiuque .  
+N ohe ia (YVieting). --- Aur (elius) Aquila et Aur(elius) Flavianus, sacerdotes. Première moitié du iii's. --- CIL. III, 5021.  
+Dalmatie.  
+Salonà. --- Inconnu, [sajeerdos M(atris ?) I daeae ?) M(agnae ?). Ibid., 8810.  
+Provinces d'Afrique.  
+Sicca Veneria Le Kcf, Afrique proconsulaire). --- Q. Valerius Severus Platiensis, sacerdos Matris Magnae. CIL. VIII, 1649 = 15831.  
+Mactaris (Maktar, Bvzacène). --- Q. Arellius Optatianus,. eq(acs) r(omanus), sacerdos,.. sull'ragio ordinis col(oniac) suae Mactaritan(ae) comprobatus autistes. Entre 276 et 282. Cagnat, Ann. épiyr. 1892, 18.  
+Claudius Faustus, sacerdos Ibid.  
+Q. Minthonius Fortunatus, sacerdos,.. sull'ragio ordinis cul oniae) suae  
+Mact(aritanae) comprobalus autistes. Entre 286 et 305. Ibid. , 1897, 121 (sur l'origine africaine du nom de Minthonius, cf. Toutain, Cités , p. 181).  
+Claudius Bonus, sacerdos. Ibicl.  
+Mascvla (Khenchela, en Numidic . --- C. Sittius Ianuarius, sacerd(cis). Entre 198 et 208. CIL. VIII, 2230 = 17668.  
+Mii.ev. --- C. Aemilius Saturninus. Entre 222 et 235. Ibid., 8203 = 19981.  
+Sigvs. --- L. Clodius L. f(ilius) Q(uirina tribu) Ilonoratus, sacerdos M. M. --- CIL. VIII, 5707.  
+Tii'asa (Tifcch). --- 1J. Caecilius Félix, sac(erdos). Entre 222 et 235. Ibid., 1846, complété par Gsell, dans Bull, archéol. du Comité, 1896, p. 179, n° 60.  
+Caesarea (Gherchell, Maurétanie). --- ..] enius C. l'(ilius) Fatalis, decurio religiosus autistes sanctissimi numinis Malris Deum. Ibid., 9401 et p. 1983.  
+Mésie.  
+Tomi (IÂustendje. --- Pôlliôn, lils de Pôlliôn, hiereus (dans une liste de dendrophores). En 210-211. Arch. ep. Mitt., XI, 1887, p. 44 s.  
+Achaie.  
+Athenae. --- Aurelios Dionusios, fds de Callipos, de la tribu de Lamptrai, [GREC] (Sévère ? cf. Goehler, p. 19). CIA. III, 1062.  Epidavros. --- Diogénès, hiereus (se qualifie ailleurs d'hiérophante, de prêtre do Paieôn, de propolos de Déo). Fin du uic s. CIG. Pel., I, 1034.  
+Province d'Asie.  
+Attovda. --- Carminios, lils de Carminios Claudianos, prêtre de Meter Adrastos, me siècle. Sa mère, Flavia Apphia, était grande prêtresse d'Asie. Ibid., p. 189 ; Bull. Cor. Hell. 1887, p. 349, 15.  
+Evmeneia. --- Aurelios ? Monimos, fils d'Aristôn, prêtre de Zeus Séiter, Apollon, Mèn Ascacnos, Mère des Dieux Agdistis, CIG. 3886 add. ; Ramsay, Ciliés, p. 246, 88 .  
+Proconnesos. --- Sôsigénès, fils de Ménéphrôn, [GREC].  
+Codratos (même titre), ii“ s. --- J. of Ilell. St. XXVI, 1906, p. 29 s.  
+Gai.atie et Lycaonie.  
+Pessinvs. --- Iléras, lils de..., tribu Quirina, le dixième Attis après l'Archiereus, le cinquième des Galatcs, prêtre à vie de la Grande Mère des Dieux à Pessinonte et à Midaion. Fin du icr siècle. Cagnat, Ann. épigr. 1897, 123.  
+Tiberius Claudius, Attis hiereus, fils d Héras, tribu Quirina, Dejotarus, le neuvième après l'Archiereus, le quatrième des Galates. IJnd., 1901, 160.  
+Icoxivm. --- Meleagros, jfils de Diomédès, Archiereus de la Ivuria Meter Zizimménè. J. of. Hell. St. XXII, 1902, p. 341, n° 64.  
+Théoxénos, prêtre de Meter Zizim... Ibid., 65 ; cf. Arch. ep. Mitlh. XIX, 1896, ‘p. 31, n° 10.  
 
 Le recrutement de cés prêtres est local. Leurs noms se retrouvent dans l'onomastique de leur ville ou de leur province. Celui de Q. Minthonius, à Mactaris, révèle une origine africaine. De même ceux de C. Sittius Januarius, à Mascula, de C. Aemilius Saturninus, à Mileu, reparaissent très souvent en Numidie. Docuiricus, d'Emerita, porte un nom fréquent en Lusitanie. Beaucoup sont de notables citoyens, qui appartiennent aux meilleures familles du pays. A Bénévent, L. Sontius Pineius se proclame arrière-petit-fils de chevalier romain ; il est de l'aristocratie bénéventine. Il a de la fortune ; quand on fête l'anniversaire de la fondation de sa colonie, il prend à ses frais les combats de gladiateurs. Il avait parcouru toute la carrière municipale. A Faléries, C. Julius Severus, fils de Caius, de la tribu Quirina, fut administrateur des fondations charitables de l'empereur et passa par les principales fonctions publiques. Orgueil de ses concitoyens, il leur manifeste par des bienfaits sa reconnaissance ; en l'honneur de son édilité, il a dépensé environ 7.000 francs à restaurer un portique. Un prêtre de Compsa, chez les Idirpins, est aussi arrivé à la magistrature suprême de son municipe. Il a rendu de tels services à sa petite patrie, que ses concitoyens lui élèvent une statue par souscription, sur un emplacement offert par le conseil municipal. Un « autistes » de Cherchell, en Maurétanie, est décurion de sa « splendidissime » colonie. A Mactaris, en Byzacène, Q. Arellius Optatianus est chevalier. Généralement, les prêtres d'Afrique sont des ingénus. Quant aux cités grecques, l'ingénuité des prêtres y était de tradition pour les cultes publics.
 
@@ -2653,19 +2861,94 @@ Mais en Italie, en Gaule, dans les provinces du centre, ce sont les affranchis q
 
 Le clergé primitif, compatriote de Cybèle et d'Attis, sans racines dans la cité, n'avait eu d'autre ambition que de servir dévotement ses dieux et de se créer dans le temple, autour des images divines, une famille et une cité nouvelles. Aussi beaucoup de ces prêtres d'origine servile sont-ils restés célibataires. Leurs tombes sont élevées par des amis et des fidèles. Ou bien ils ont pris eux-mêmes la sage précaution d'édifier de leur vivant leur monument funéraire, soit pour eux seuls, soit en même temps pour l'affranchie aimée, ou pour la petite esclave de prédilection, née dans la maison. C'est le clergé postérieur qui achève de donner au culte son caractère vraiment municipal et romain. Composé d'enfants du pays, il est préoccupé d'intérêts temporels, autant, sinon plus, que des intérêts de la religion. Le ministère des autels n'absorbe pas tout son temps ; peut-être même Cybèle n'exige-t-elle pas la présence quotidienne de ces prêtres au temple. Ceux-ci n'ont en général ni la garde ni l'administration du sanctuaire ; il existe des _Aeditui_ et des _Curatores_. La déesse, qui, loin de les enlever à la cité, leur laisse le loisir d'exercer des fonctions civiles, ne les enlève pas non plus à la famille. La plupart sont mariés ; nous en connaissons qui sont pères d'autres prêtres ou de magistrats. Enfin Cjbèle n'est pas une divinité jalouse ; et les dieux d'Orient, une fois qu'ils sont transportés en Occident, se. prêtent volontiers assistance mutuelle. A Brindes, il n'v a qu'un seul prêtre pour Mater Magna, Dea Suria et Isis. A Faléries, la Grande Mère et Isis n'ont également qu'un seul et même prêtre; àOstie, un prêtre d'Isis dessert un sanctuaire de la Mère des Dieux sur l'autre rive du Tibre. Mais avait-on le droit de participer aux grands sacerdoces officiels, pontificat, augurât, qu'entretenaient à l'instar de Rome les villes de province ? Ces sacerdoces ne devaient pas être plus exclusifs en province qu'à Rome. Un prêtre de la Grande Mère, à Bénévent, est en même temps augure municipal. Aussi bien, pontifes et augures se trouvent-ils en relations avec le clergé de l'Idéenne. Chargés, selon la vague expression d'une charte coloniale,* « de célébrer le culte public, » ils ne pouvaient rester étrangers aux tauroboles d'intérêt public. Tantôt le pontife coopère au sacrifice, tantôt c'est lui-même qui en prend l'initiative. A Bénévent, la présidence d'une cérémonie est offerte au premier haruspice. Par suite, il est naturel que ces personnages se fassent un devoir de patronner les confréries métroaques.* De même, l'institution taurobolique s'était liée trop étroitement à la conservation de l'Empire, pour ne pas gagner à sa cause les prêtres du culte impérial, Flammes et Augustaux. A Narbonne, c'est le Elamine provincial qui, au nom de toute la province Narbonnaise, accomplit le taurobole pour le salut de l'empereur. Ailleurs ce sont des Sévirs Augustaux qui taurobolient. Il en est qui sont en même temps Dendrophores. En somme, grâce au taurobole, le culte de la Mère des Dieux Auguste* occupait dans la vie publique une situation privilégiée, dont bénéficièrent ses prêtres. Ceux-ci finirent par prendre place dans le haut clergé des villes. C'est pour-quoi le sacerdoce de la Dame excita l'ambition des plus honorables citoyens.
 
+*) Charte de la colonie Genetiva, lulia, en Bétique, rédigée en 710/44.
+
+*) A Apulum, un augure est patron des dendrophores, CIL. 111, 1217.
+
+*) CIL. VIII, 1770, 2230, IGÜO, 10125: XIII, 1756.
+
 Mais cette ambition, chez la plupart, n'est qu'une forme de zèle religieux. C'est en effet dans l'église, parmi les dévots et les confrères, que se recrutent les prêtres* ; peut-être même la communauté avait-elle droit de présentation. Les Dendropliores en fournissent beaucoup. Il est vrai que ceux-ci comptent dans leurs rangs, comme membres actifs ou honoraires, une élite d'affranchis et de citoyens. C'est un Dendrophore que choisit la municipalité de Suessula pour desservir le sanctuaire d'AdNovas, au carrefour des routes de Capoue, de Bénévent et de Naples. AOstie, à Cumes, à Tomi, des prêtres paraissent être aussi d'anciens Dendrophores. Le confrère arrivé à la prêtrise continue de figurer sur l'album du collège ; très souvent il fait partie du bureau d'administration. On comprend la préférence du clergé pour cette importante et riche confrérie. En 251 , celle de Cumes avait dressé un nouveau tableau de son personnel ; un prêtre, qui est en même temps son patron, fête la dédicace de cet album par une distribution de pain, de vin et de sportules. D'autres donnent aux confrères un emplacement pour leur sépulture.* De leur côté, les Dendrophores, quand leur trésor est prospère, érigent des statues aux prêtres qui se sont distingués par leurs mérites.
+
+*) CIL. VIII, 9401.
+
+*) CIL. V, 81, à Pola.
 
 Le sacerdoce était accessible à tous les âges, puisque nous connaissons un prêtre de sept ans* ! Mais quelle était sa durée ? Le silence du bref quindécemviral, à ce sujet, prouve du moins qu'il y avait des règlements fixes. En principe, les prêtres n'étaient pas nommés à vie. Toutefois la perpétuité du sacerdoce pouvait leur être accordée à titre exceptionnel, comme une récompense de leurs services et de leur piété. Elle était l'objet d'un décret spécial du conseil municipal. Pour le clergé romain, elle devait dépendre directement du collège des XVvirs. Un prêtre de Lyon, sous Antonin le Pieux, Q. Sammius Secundus, est fier de pouvoir ajouter à son titre cette mention : _cui sanctissimus ordo Lugudunensis perpetuitatem sacerdotii decrevit_. Mais beaucoup sans doute obtenaient le même privilège. Deux prêtres d'Afrique meurent à 55 ans ; un prêtre de Brindes meurt à 65 ans* ; leur élévation à la prêtrise remontait assurément à plusieurs années. Nous retrouvons un même personnage à Lyon en 184, 190 et 194, un autre à Lectoure en 239 et 241. Ils ne se qualifient point de perpétuels. On peut supposer que le mandat était annuel, mais indéfiniment renouvelable.*
 
+*) C'est, il est vrai, à la fin de l'empire, et à Rome.
+
+*) CIL. VIII, 1619 et 5707 ; IX, 6099.
+
+*) Cf. clans les Orgcons métroaques ; Foucart, Assoe. relief, en Grèce, p. 21 ; un prêtre à vie clans un thiase d'Argos : CIG..Pel. I, 659.
+
 Sammius nous apprend aussi que les 15virs l'ont « décoré » delà couronne et de l'occabos. D'après le bref de Cumes, ce sont là les insignes communs à tous les prêtres de Magna Mater ; et c'est l'octroi de ces insignes qui constitue l'investiture quindécem virale. La couronne ressemblait, selon toute vraisemblance, à celle des Archigalles : un ou plusieurs rangs de feuilles de laurier, avec médaillons aux types de Zeus, Cvbèle et Attis. En Asie Mineure, le laurier a pu devenir un attribut métroaque après la confusion des couples Lêto-Apollon et Mêter-Attis. A Rome, prêtres et assistants s'en diadèment la tête dans les cérémonies de rite grec, auxquelles sont assimilées celles du culte phrygien. Quant aux médaillons, le culte des Augustes avait introduit cet exotisme dans la religion romaine ; on en voyait sur la couronne d'or des prêtres impériaux, où ils encadraient les images des dieux Capitolins et de l'empereur. L'occabos est défini par Hésychius comme un bracelet, analogue à ceux que portaient les Perses. Nous n'en savons pas davantage. Un prêtre d'Ostie, qui exerce le double sacerdoce d'Isis et de la Mère des Dieux, est vêtu du pantalon oriental, anaxyrides nouées aux chevilles, du chiton qu'une ceinture relève jusqu'au dessous des genoux, et d'une chlamvde agrafée sur l'épaule droite; il est coiffé du bonnet phrygien.* C'est à peu près le costume d' Attis. Ce n'est pas celui des prêtres municipaux dans les cérémonies officiellesdu culte public. Figurait-il seulement dans la célébration des mystères ? Le bonnet à fanons, qui reparaît si souvent parmi les attributs du culte métroaque, et en particulier sur les autels tauroboliqaes, devait jouer un rôle dans certains rites.* Peut-être dans les tauroboles était-il posé sur la tête du prêtre sacrificateur, identifié à l'Attis tauroctone.
+
+*) Au Musée du Latran ; Benndorf etSchoene, Ant. Bildw. d. Lui. M. 80.
+
+*) Le bonnet phrygien est resté la coiffure rituelle des prêtres de Mil lira et de ceux de Sabazios. Le Musée des Conservateurs, à Rome, possède une tête de prêtre oriental, coiffée du bonnet cl qui fut trouvée sur l'Esquilin, là où s'étendaient jadis les jardins impériaux ; h. 0m 46 ; traces de dorure sur la figure, et de couleur rouge sur le bonnet. Serait-ce le portrait d'un Archigalle ou d'un prêtre de la Mère Phrygienne ?
 
 ## 4\.
 
 Au sacerdoce masculin correspond un sacerdoce féminin.* Mais la desservante du temple n'avait pas toujours droit, ce semble, au titre de prêtresse ni aux prérogatives attachées k ce titre. On la dénommait alors _ministra_, ce qui implique un ranginférieur dans le clergé, à moins qu'elle-même ne se qualilîât ainsi par pieuse humilité. Quand le sacerdoce est réparti entre plusieurs femmes, on les distingue par un titre hiérarchique, comme les prêtres. D'autre part, il n'existe aucun grade qui soit l'équivalent féminin de l'archigallat ; jamais il n'est question de prophétesse. La première prêtresse de Rome paraît être, en Occident, la seule qui soit honorée du titre de _Sacerdos Maxima_. Elle avait succédé à la phrygienne d'autrefois. Au début elle était sans doute une alfranchie. Plus tard, elle fut une ingénue. A la lin de l'Empire, elle est une Clarissime, choisie parmi les matrones d'ordre sénatorial.
 
+*) Liste des prêtresses connues (époque impériale).  
+Roma.  
+Olympias, Livia Briseis, Aug(ustae) lib(ertae), sac(erdotes) M. D. M. I. : sous Auguste. CIL. VI, 496.  
+Claudia Acropolis, Augusti lib(erta), sacerdos Matris Deum. Elle est mariée à un certain Claudianus. Sous la dynastie claudienne. Ibid., 2260.  
+Laberia Felicla, sacerdos maxima Matris Deum M. 1. Ibid., 2257.  
+Aelia Antigona, sacerdo(s) M.D. M. I. Elle est veuve d'Epulonius, vir e(gregiae) m(emoriae). Epoque antonine. Ibid., 2259.  
+Aelia... [sacerdos?] M. D. M. I... Ibid., 32465.  
+Galena, sacerdos Matris Deum .Ibid., 2261.  
+...] Sophe, [sac(erdos) ?Matr]is Deum. Ibid., 29725.  
+Serapias, h(onesta) f(emina), sac(e)r (dos) (plutôt que « sacrata », à cause du génitif) Matris et Proserpinae. En 319. Ibid., 508.  
+? c(larissima) f(emina), sacerdus maxima M. D. M. I. : en 383. Ibid., 502.  
+Latium.  
+Ostia. --- Metilla Acte, sacerdos M.D. M. coloniiae) Ost(iensis). Milieu du n« s. CIL. XIV, 371.  
+Salonia Euterpe, sacerdos M. D. M. Portus Aug. et Traiani. u°s. --- Ibid., 408.  
+L av ini ym. --- Inconnue, sacerdotia. En 212. Cagnat, Ann. épigr. 1895, 120.  
+Italie. Région I.  
+Formiae. --- Decimia C. f(ilia) Candida, sacerdos M.D. CIL. X, 6074 ; cf. V, falsae, 436.  
+Ilelvia Stephanis, sacerdos M. M. I. En 241. Ibid., 6075.  
+Forv-Mpopii.ii. --- Munatia Reddita, sacerd(os) XVvir(alis). En 186. Ibid., 4726.  
+Région II.  
+Aeclaxvm. --- Eggia Sabina Bast(uli uxor ?), sacerdos M. D. Mag(nae). i"-ii's. CIL. IX, 1100.  
+Cantria P. fil(ia) Longina, sacerd(os) flam( inica) Divae Iuliae Piae Aug(ustae) et Matr(is) Deum M(agnae) Id(aeae) et Isidis Regin(ae). Fin du ier s. Ibid., 1153 et p. 095 (sur son mari et sesenfants, cf. 1164 et 1165).  
+Benkventym. --- Servilia Varia, sacerdos prima, et Terentia Flaviana, sacerdos secundo loco, sacerd(otes) XVvir(ales). En 228. Ibid., 1538, 1541, 1542.  
+MummeiaC. f ilia; Atticilla, sacerdos. Ibid. 1539.  
+Cosinia Celsina, consacerdos (d'un prêtre). Ibid., 1540.  
+Régions III et IV.  
+Potentia (Potenza). --- Bovia Maxima, sacerdos XVviral(is). CIL. X, 129.  
+Rhegivm (Reggio). --- ..]iva, sac(erdos), S[...]ia Faustina, sac(erdos). En 79. Ibid., 7.  
+Corfinivm. --- Acca L. f(ilia) Prima, Ministra Matris Magnae. CIL. IX, 3116.  
+Région X.  
+Verona. --- Veronia Trofinie, sacer(dos Matris Deuni. CIL. Y, 3138. Brixia (Brescia). --- Caecilia Procula, sacerdos XYviralis. Ibkl., 4400.  
+Gaules.  
+Lvgdvnvm (Lyon). --- Aemilia Secundilla, sacerdotia. En 197. CIL. XIII, 1754.  
+Lusitanie.  
+Olisipo (Lisbonne). --- Cass(ia) Sev(era). En 108. CIL. II. 179.  
+Achaie.  
+Orchomenos. --- Hippareta,f. d'Herodotos, [GREC]. CIG. Sept . I, 3210 ; cf. 3223.  
+Macédoine.  
+Edessa. --- Aurélia Loukianè, [GREC]. En 237 8. Ath. Milth. XYII, 1893, p. 416, 1.  
+Mésie.  
+Tomi Kustendje . --- Sossia Africana, fille de C. Iulius Africanus el femme de Quielus, [GREC]. Arch. ep. Mitt., VI, 1892, p. 23.  
+Province d'Asie.  
+Smyrna. --- Ulpia Marcella, fille de M. L'ipius Damas et de Canidia Bassa [GREC]. 1re moitié du 2e s. --- CIG. 3508 (femme de P. Aelius Paullus, archiereus d'Asie, Bull. Corr . Hell. XI, 1887, p. 178).  
+Trapezopolis. --- Inconnue, fille d'Asclepiadès, [GREC] (CIG. 3953 d) ou [GREC] (Goehler, op. L, p. 40).  
+Sarmatie.  
+Olbia. --- Inconnue, fille de.., fils de Dionj-sios, femme de Socratidès, fils de Philinos, [GREC]. Latyschev. Inscr. orae sept. Ponti Eux. I, 107 ; cf. Hirst. The cults of Olbia dans of Hell. St. XXII. 1902. p. 266.
+
 Un très grand nombre de prêtresses sont de condition libertine, et beaucoup sont des affranchies de leur ville : telle, à Vérone, Veronia Trofîmè. Le père de Salonia Euterpè, laquelle exerce le sacerdoce au Port de Trajan, fut sans doute un esclave public de Salone, k moins qu'elle-mème ne soit une ancienne esclave. Le personnel romain se recrute de préférence, sinon exclusivement, parmi les libertines de la maison impériale. Livia Briseis était une affranchie de Livie, Claudia Acropolis une affranchie de la djmastie des Claudes, Aelia Antigona une affranchie de la famille automne. Mais les ingénues ne sont point rares. Voici à Corfînium Acca Prima, qui est fille <Tun citoyen romain et qui porte du reste un nom tout à fait indigène. Voici à Aeclanum, dès le temps des Flaviens, Cantria Longina, fille de Publius ; à Bénévent, au u° siècle, Mummeia Atticilla, fille de C. Mummeius ; à Formies, Decimia Candida, fille de C. Decimius. A Lyon, Aemilia Secundilla paraît bien être aussi de condition ingénue. A Tomi, Sossia Africana est fille de C. Iulius Africanus. En Asie Mineure, les prêtresses de l'époque romaine sont de naissance libre, suivant la coutume grecque. Ce sacerdoce est accordé parfois à des jeunes filles ; mais les dignitaires sont le plus souvent mariées et d'un âge déjà mûr. Dans le clergé de Piome, Aelia est la veuve d'un certain Epulonius, affranchi ou fils d'affranchi des 7virs Épulons, homme de quelque importance, assimilé aux membres de l'ordre équestre ; une autre a pour mari un riche affranchi des Claudes ; Galena était épouse et mère. Une prêtresse de la colonie d'Ostie, vers le milieu du 2e siècle, est mariée à un citoyen romain, président de la puissante corporation des charpentiers du port. A Vérone, Trofimè est mère d'un Sévir Augustal. A Bénévent, Servilia Varia est mère d'un clécurion. Caecilia Procula, de Brescia, n'ayant pas d'enfants, a élevé un pupille. Cantria Longina, d'Aeclanum, fille de cihyyen romain, est femme d'un citoyen et mère d'un chevalier. Son mari est une célébrité locale, écrivain, poète mélancolique et traducteur de Ménandre, que ses concitoyens ont porté à la magistrature suprême du municipe. Le couple, de plus, est riche ; et si l'on accumule sur la tête de la matrone le triple sacerdoce de la Mère Idéenne, d'Isis Reine et de la Diva Julia, fille de Titus, l'hommage va peut-être moins à sa vertu qu'à sa fortune. Longina s'empresse de donner 50.000 sesterces à la ville, ce qui lui valut les honneurs publics d'une statue. De même, à Smyrne, au début du 2e siècle, Ulpia Marcella est une des plus grandes dames de la cité. Née à Thyatira, sous le principat de Trajan, fille de M. Ulpius Damas et d'une « civis romana, » orpheline de bonne heure avec un gros patrimoine, elle avait été d'abord prêtresse d'Artémis dans sa ville natale ; elle y exerça son sacerdoce avec une magnificence dont on gardait le souvenir. Plus tard, Marcelin fut archiprêtresse d'Asie près des temples de Smvrne, titre que devaient ambitionner les premières familles; elle fut aussi trois fois présidente des jeux de sa patrie, honneur presque exclusivement réservé aux hommes. D'une façon générale, le sacerdoce féminin de la Mère des Dieux paraît avoir été très recherché dans tout l'Empire.
 
 Il était municipal et soumis aux mêmes conditions que le sacerdoce des hommes. En Italie et en Gaule, l'élection doit être aussi ratifiée parla chancellerie du 15virat. La fonction n'est pas à vie, mais peut devenir perpétuelle par décret spécial du conseil. Elle n'est pas incompatible avec d'autres sacerdoces. Les insignes de la prêtresse étaient-ils les mêmes que ceux du prêtre ? Nous possédons l'effigie de Laberia Felicla, qui fut _Sacerdos Maxima_ de Rome.* Mais la tête est une restauration ; nous voyons seulement que des bandelettes à perles fuselées tombaient sur les épaules. Laberia est revêtue de la tunique à manches et de la palla, relevée sur le derrière de la tête en guise de voile. Un buste barbu de Zeus Idéen forme, entre les seins, le pendentif d'un collier.* La main droite tient la patère au-dessus d'un petit autel de Zeus,* et la main gauche une guirlande de chêne. Nous savons par ailleurs que les prêtresses portaient des couronnes et que leurs robes étaient blanches.*
+
+*) Musée du Vatican. Visconti, Museo Pio-Clementino, pi. xvm, et p. 101 ss. Le restaurateur a changé les bandelettes en tresses.
+
+*) Cf. des plaques d'or à l'effigie de Déméter et de Corè, cousues sur le vêtement d'une prêtresse de Déméter : C. r. Acad. S. Pétersbourg, 1865, p. 49 ss, et Atlas , pl. II, 7-9.
+
+*) L'aigle est sculpté sur l'autel rond (cf. un aigle sur le tombeau de la prêtresse Galena) ; la guirlande de chêne paraît également se rapporter au culte de Jupiter.
+
+*) Cf. les prêtresses d'Artémis et d'Athéna Bérécynthiennel à Ancyre : Acta Sanctorum , mai IV, p. 156; Pio Franchi de' Cavalieri, I martin di S. Teodoto e di S. Ariadne dans Stiuli e iesii , VI , Roma, 1901, p. 72.
 
 Quelles étaient leurs attributions cultuelles? La dualité du sacerdoce correspondait à la dualité divine, représentée à la fois par deux images et par deux autels. Mais, dans les sanctuaires, la place d'honneur est réservée à l'image de la déesse ; l'autel majeur est toujours celui de Gybèle. Il semblerait donc que de la prédominance de la déesse dût résulter celle du clergé féminin. Peut-être, en effet, les fonctions des prêtresses étaient-elles encore les plus importantes dans les Orgéons de l'âge hellénique. Dans la religion phrygio -romaine, les prêtresses n'ont rang qu'après les prêtres ; et leurs fonctions paraissent être secondaires.* Comme les autres femmes, elles manifestent une vénération toute particulière pour le jeune et malheureux Attis. Volontiers elles le nomment le premier dans les formules dédicatoires ; et la seule statue que nous voyons consacrer par une prêtresse est une image d'Attis.* Elles ont à remplir un office liturgique auprès de Zeus Idéen, le dieu Père, auquel on rendait aussi un culte. Dans les sacrifices sanglants, elles étaient sans doute chargées de présider à l'immolation des animaux femelles; car les portions non brûlées de ces victimes leur sont réservées, tandis que les prêtres reçoivent une part des animaux mâles. Elles participent aux tauroboles et aux crioboles, aux côtés du prêtre qui dirige la cérémonie ; mais on ne les voit jamais présider elles-mêmes.* Elles offrent et accomplissent des tauroboles, isolément ou à deux, soit pour obéir à la déesse, soit pour fêter leur avènement au sacerdoce ou leur promotion au grade supérieur.* Parfois la première offre le sacrifice, et la seconde dédie l'autel commémoratif. Etait-ce pour elles une obligation de recevoir le sacrement ? En 383, la Sacerdos Maxima est baptisée pour la seconde fois.
 
