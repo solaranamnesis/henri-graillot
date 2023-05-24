@@ -4306,51 +4306,381 @@ C'est dans les centres commerciaux et industriels, considérablement développé
 
 *) Mionnet IV, p. 222 n* 162 (Antoninus P.) ; 164 et Suppl. VII, p. 504, n°B 109-111, Babelon, Coll. Waddington, 5643 (M. Aurelius) ; Babelon 5648-9 (Severus); Catal. Whittall, 1884, p. 88, 1342, Babelon 5653 (Geta) ; Calai. Ivanoff, p. 66, lot 567 (Caracalla, W « Jupiter and Cybele ») ; lot 568 (Philippus Sen.) ; Mt IV, p. 225 n° 178 et Suppl. VII, 116, Babelon 5655 (Otacilia).
 
+*) Imhoof, Gr. Miinz. 646, et pl. xii, 2 : tête tourelée ; IV lion et caducée.
+
+*) Babelon, C. W. 5994 (Sabina) ; Drexler dans Roscher, Myth. Lex. II, 2876 (M. Aurelius) ; Mionnet IV, p. 291 n° 552, Imhoof, Gr. Mz ., p. 210 n" 676 et pl. xii, 14 (Domna) ; Babelon 6C03, Imhoof 677, cf. 678 (Maximus) ; Mionnet 556 (Gordianus ; mais plutôt Tyché avec épis et sceptre) ; cf. Koerte dans Ath. Mitth. XXII, 1897, p. 41 ; Imhoof, Kleinas. Mz. I, p. 227.
+
+*) Ramsay, Cities, p. 356 ; Dieudonné, dans Revue Numism. 1903, p. 228 n. 109 et pl. xiv, 5 (Agrippina ; IV Cybèle ou Agrippina-Rhéa trônant, le bras g. appuyé sur le tympanon, la m. dr. tenant un globe ?). Imhoof, Gr. Mz ., p. 211 n"' 681-2 et pl. xii, 16 et 17 (Agrippina Jun.) ; Catal. Huber, p. 69 n° 734 (Domitia) ; Babelon, C. W. 6017, pl. xvr, 7 (auton.). --- CIG. 3886 add. ; Paris dans Bull. Corr. Hell., 1884, p. 237 ; Ramsay, op. I., pp. 243, 246 ; Hepding, Attis , p. 78; lire [GREC] (= Attis ?), et non, comme Hepding, [GREC], les dieux Agdistis (Cybèle et Attis). --- Pline, H. n. V, 29, cite près d'Eum. un Berecynthius traclus.
+
+*) Imhoof, Monnaies gr ., p. 398 n" 93 (autonome, sous Galba) ; p. 409 n° 138 (Geta) ; cf. Head, H. num., p. 567.
+
+*) Babelon, C. W. 6496; au droit, buste radié d'Hélios.
+
+*) Babelon, C. W. 6469 (auton.) ; 6483 (Domna); 6485 (Gordianus P.); Calai. Whittall, 1884, p. 91, 1377 ; cf. Head, p. 568.
+
+*) Mionnet IV, p. 373 n° 1012 ; Suppl. VII n° 619, Babelon C. W. 6583 (auton.); Museen zu Berlin, Beschr. d. a ni. Mz. I, p. 242 n" 1 (auton., attribuée à Trajanopolis de Thrace ; restituée à T. de Phrygie par Drexler l. c., II, 2888) ; Head, p. 564 (impériale).
+
+*) Site à Ouchak. --- Bull. Soc. Antiquaires 1901, p. 350; acquisitions du Musée du Louvre, n° 54 : stèle votive, dédiée «par ordre », avec bas-relief et signature du marbrier Gaios. Voir Michon, dans R. Eludes Anciennes 1906, pp. 184-7 et pl. iii ; Cumont, ibid., p. 281 ss. Au centre, Cybèle, coiffée du polos, debout entre deux lions, patère dans la main dr., dans la g. rosace ou gâteau (?). Un serpent lui traverse obliquement la poitrine et étend l'une de ses extrémités sur la patère, l'autre sur la rosace. A g., et plus petit, Hermès; à dr., autre petit personnage chevelu : Attis ou Gallos ? La stèle comprenait trois zones, où M. Cumont croit reconnaître la division du monde des dieux. Dans le fronton, dont l'abside rappellerait le firmament, le cavalier est Mên Ouranios, dieu céleste, précédé de l'aigle, accompagné de la Victoire (il est l'Invictus) et d'un génie ailé (son « angelos » auprès des mondes inférieurs? comme Hermès est le dieu mitoyen entre ciel et enfers). Deux dauphins indiquent « au-dessus du ciel le réservoir des eaux supérieures d'où tombent les pluies fécondantes ». Dans la zone inférieure, personnage très mutilé. --- Près de la ville, trône taillé dans le roc : Paus. I, 35, 7. --- Temenothyrai = la ville du temple : Ramsay, H. Geogr., p. 437.
+
+*) Head, p. 565 ; Mionnet IV, p. 661 n° 312.
+
+*) Babelon, C. W. 6329 (M. Aurelius); 6330, et Mionnet IV, p. 334 n° 800 (Gordianus P.).
+
+*) Site à Bulawadin. Mendel dans Bull. Corr. Hell. XXXIII, 1909, p 256 n"3 : Cybèle trônant, entre deux lions ; statuette d'époque romaine.
+
+*) Thea Alianè : Waddington, Asie Min. 699; Ramsay, Cities , pp. 593 et 613. --- Sur le relief brisé de la stèle à la Sipylène, Corybante. --- Monnaie au type de Cybèlé : Drexler, l. c. II, 2871. Sources chaudes à Irk Bunar, près d'islam-Keui.
+
+*) Mionnet, Suppl. VII, p. 555 n° 318, et Babelon C. W. 5953 (Claudius) ; Mionnet IV, p. 283 n° 513, Suppl. VII, 320-1, Macdonald, Hunterian Coll., Gr. coins II, p. 485 n° 2, Babelon 5954 (Nero) ; Mionnet IV, 514 (M. Aurelius) ; Suppl. VII, p. 556 n° 323 (L. Verus) ; Mionnet IV, 519 (Gordianus P.). Imhoof dans Arch. Jahrb. d. deutsch. Inst. III, 1888, p. 295 s et pl. ix, 28 (Macrinus) : IC au pied de la montagne Persis, sur une sorte d'éperon à g., Cybèle debout, tourelée, tenant deux épis et un pavot dans la main dr., le tympanon sur le bras g. qui s'appuie sur un rocher, un lion assis près d'elle ; v. aussi Imhoof, Kleinas. Mz. I, 224, et Ramsay dans Ath. Mitth. VII, 1882, p. 145. Le nom de cette montagne dénote peut-être une influence persique ; cf. Radet, Lydie, p. 316. sur l'influence d'Anaïtis dans la région.
+
+*) Head, II. Num., p. 561 (de Néron à Otacilia). Babelon, C. W. 5851 (Caracalla); Labbecke dans Zeilschr. /. A um. XV. 1887, p 52 (Elagabal).
+
+*) Mionnet, Suppl. VII, p. 609 n° 550 (auton.) ; Babelon, C. W. 6419 (auton.) ; 6426 et Mionnet IV, p. 356 nr 916 (Domna) ; Ramsay dans Ath. Mitth. VII, 1882, p. 135 s (c'est la Tychè, tenant balance et corne d'abondance).
+
+*) Head, p. 569 ; Mionnet IV, p. 368 n° 988 (Hadrianus). Imhoof dans Arch. Jahrb., l. c. et pl. ix, 27 : tête de Cybèle tourelée, et petit dieu de la montagne gisant devant elle; sur l'autre face, Athéna.
+
+*) Head. p. 567. Ramsay dans J. of Hell. St. IV, p. 397 (auton.; IC Cybèle debout coiffée du polos et du voile, une guirlande ? dans la main dr.) ; Mionnet IV, p. 280 n" 495 ; p. 344 s, n°s 864-5 (Gordianus P. ; |C Cybèle assise, tenant épis et tympanon, un lion à ses pieds); Engel. dans Rev. Numism. 1884, p. 15, n" 6 (id. ; IC Cybèle assise, entre deux lions). Homonoia de Brouzos et Ococlia; H. Weber dans Num. Chronicle, 1892, p. 208n°38 et pl. xvi, 18; Loebbecke, l. c. XII. 1885, p. 346 et pl. xiv, 8 (Commodus; IC Zeus et Cybèle aux épis, debout) ; Babelon, C. W. 6362 (Gordianus P.).
+
+*) Mionnet IV, p. 282 n°500, et Suppl. VII, p. 553 n" 312 (Annia Faustina); Head, p. 562. Ramsay, Cities, p. 126.
+
+*) Mionnet IV, p. 308 n* 652 (Domna).
+
+*) Head, p. 568. Mionnet IV, p. 358 n° 927, et Suppl. VII p. 612 n° 561 ; Catal. Whittall 1884, p. 91 n° 1375; Imhoof, Griech. Mz., p. 222 n* 732 ; Babe Ion, C. W. 6435-6 et pl. xvm,5 (auton.) ; Mionnet 934 ; Catal. Whittall 1376 ; Babelon 6444 (Domitia) ; 6449 (Sabina).
+
+*) Descr. or bis su b Constantio, 24 ; cf. Ramsay, Cities, pp. 32-83.
+
+*) Head, p. 566. Mionnet IV, p. 316 n" 701 (auton.), p. 322 s, nos 737, 740-1, et Suppl. VII, p. 586 n° 450 (Sabina) ; Babelon C. W. 6287 (M. Aurelius) ; Mionnet 774, cf. Imhoof dans Arch. Jahrh. cl. deutsch. Inst. III, 1888, p. 290 (Caracalla). Rhéa tenant Zeus enfant, comme à Acmonia, Apamée, Maionia, Seleukeia, Tralleis ; Ramsay, op. I., p. 34.
+
 Mais la déesse couronnée de murs et de tours, qui protège les riches cités, reste aussi la Dame tutélaire des modestes bourgs et des plus humbles villages. Non loin du Sangarios, à quelques kilomètres au nord-ouest de Meros (Kumbet), Pontana est consacrée à la Mêter Pontanénè.* Un « hiéron » de Mêter Oreia s'élevait au bord du Sangarios ; mais nous en ignorons l'emplacement. Peut-être se trouvait-il à proximité des sources ; car on rattachait aux origines de ce temple la légende du héros Sagga, qui aurait donné son nom au fleuve sacré.* A une quarantaine de kilomètres au sud-ouest de Pessinonte, tout au bord des marais de l'Ak-Gôl, se dressait un petit sanctuaire de la Mêter Tetraprosôpos, protectrice des pasteurs et de leur bétail.* Dans la haute vallée du Tembris, au pied des derniers contreforts du Dindymos (Mourad Dagh), Tottaion adore la Mêter Kikléa.* A trois heures de marche vers le nord, chez les Praipenisses, entre deux collines, près de la source d'un torrent, Zingot rend hommage à la Mère des Dieux Zingoténè.* Sur le territoire de Dorylaion, le bourg de Cranos Mégalos possède un temple de la Mère des Dieux Cranomégalénè* ; et les gens de Mézéa s'associent à un autre village pour célébrer le culte de Mêter Mézéanè.* Sur le territoire de Dionysopolis, deux localités trop petites sans doute et trop pauvres pour entretenir chacune son Metrôon, Salouda et Mélokomè, avaient institué une phratrie commune en l'honneur de la Mêter Salsaloudénè.* Entre Dionysopolis et Idiérapolis, à une dizaine de kilomètres de cette dernière ville, c'est la Cybèle-Artémis-Letô que l'on vénère sous le vocable de Déesse Euchariste, Notre-Dame pleine de grâce.*
+
+*) Ramsay, H. Geogr., p. 435. Site à Gemülch.
+
+*) Xanthos et Hermogénès, dans Schol. Apoll. Rb. II, 722. Pour le punir d'une impiété, Rhéa métamorphosa Sagga en fleuve.
+
+*) Anderson dans J. of Hell. St. XIX, 1899, p. 303 n" 237 (cf. supra p. 198 n. 7 et p. 201 n. 10). Au même site (Kutchuk-Hassan), une épitaphe signale une famille libertine d'Aurelii ; ibid . n ° 238.
+
+*) Ramsay, Studies, p. 370. Site à Altyntasch, sans doute sur l'ancien territoire des Praipinesses, v. ibid. carte p. 184.
+
+*) Id. dans J. of Hell. St. V, 1884, p . 261; Studies, p. 188: dédicace « sur l'ordre de la déesse », pour le salut du dédicant, de sa famille et de la « Kômé Zingnotos ». Site à Doghalar, cf. même carte.
+
+*) Inscr. de Bukareler, CIG. III, 4121 ; inscr. d'Eskischer : Radet dans Nouv. Archives d. Missions VI, 1895, p. 572 n° 21, rectifiant Domaszev. ski et Mordtmann ; cf. Ath. Mitth. XXII, 1897, p. 352 : [GREC].
+
+*) Ramsay dans J. of Hell. St. VIII, 1887, p. 504 n° 79; Radet l. c., p. 573 n° 22 B. Il y avait aussi un Héraclès Anikêtos Mezeanos.
+
+*) Hogarth dans J. of Hell. St., l. c., p. 399 ; Ramsay, Cities, p. 156 n05 64 (dédicace de la phratrie, cf. Poland, Gesch. d. Gv. Vereinsw.,p. 573, B 430 ; Cybèle trônant entre deux lions, d'époque romaine), 65 (déd. par T. Flavius Epaphroditus, sans doute un affranchi de Titus). Site à Iiabalar.
+
+*) Dédicace de Flavianus Monogonis. Ramsay, Cities , pp. 89 et 115.
 
 ## 3\.
 
 Que l'on descendît des plateaux par la vallée du Méandre ou par celle de l'Hermos, qui prend sa source à l'un des nombreux Dindymes,* on ne sortait pas du domaine de la Mère des Dieux. Son lion, posé au carrefour des chemins, guidait le voyageur.*
 
+*) V. supra p. 14 ; cf. Zizima et les Didyma milésiens. Selon Usener, Rhein. Mus. LVIII, 1903, p. 344, le mot caractériserait une double cime.
+
+*) Route d'Antioche du Méandre à Aphrodisias : lion en marbre, avec l'indication [GREC] gravée sur la base: Chandler, Travels in Asia M., 1825, I, p. 270 ; Ramsay, Cities, p. 185.
+
 Sur la rive gauche du Méandre, on lui rend un culte à Kidramos, Antiocheia, Orthosia de Carie.* Chez les Cariens, comme en Phrygie, elle est une grande divinité indigène. Sur les contreforts du mont Salbacos, Trapezopolis, Aphrodisias et Apollonia possèdent chacune leur Metrôon municipal. Trapezopolis ne reste pas moins fidèle à la déesse que sa voisine, la phrygienne Attouda ; et c'est la Mère des Dieux qui préside aux relations politiques des deux cités.* Dans Aphrodisias, les cultes associés de Cybèle et de Déméter occupent une place d'honneur après celui de l'Aphrodite éponyme.* La Mêter d'Apollonia, sous les vocables de Montagnarde (Oreia), de Miséricordieuse (Epêkoos), d' Ancestrale (Patris), paraît être au tout premier rang.* Au temps des derniers Antonins ou de Septime Sévère, le chef de ,1a police locale et ce corps de police, recruté parmi les éphèbes, lui édifièrent un nouveau Parthénon ; c'était un édifice clos, plafonné de bois, couvert en tuiles, décoré de stucages et de peintures, affecté sans doute, comme les autres Parthénons, au service des Vierges sacrées. Plus au sud encore, sur la frontière pisidienne, le culte garde toute son importance à Keretapa Diocaesareia,* surtout à Kibyra Gaesareia,* ville d'ateliers métallurgiques, centre de domaines impériaux, siège d'un diocèse juridique et « caput viarum.* »
+
+*) Monnaies de Kidramos : Loebbecke, l. c. XV, p. 52 n° 3 (Augustus ; iy Cybèle debout, coiffée du modius et voilée, les bras étendus) ; Imhoof, Griech. Mz., p. 208 n°* 662-3 (Vespasianus) ; 664 (Hadrianus, RT la même ? identifiée à l'Artémis du type éphésien); 666 et Mionnet IV, p. 265 n° 413 (M. Aurelius) ; Imhoof, Monnaies gr., p. 397 n° 92 et pl. v, 190 (Caracalla) ; Mionnet IV, 414 (Elagabal; IJf la même, ayant à ses pieds un serpent). --- Antiocheia : Waddington dans Revue Numism. 1851 p. 235 n° 3 et pl. xii, 1 ; Head, H. Num., p. 520 (L. Verus). L'image d'Attis debout, qui sur sa tête soutient des deux mains le masque de Cybèle, dérive peut-être d'un prototype syrien (Antiocheia est une fondation d'Antiochos Sôter) ; d'autre part, le geste des mains levées, qui se retrouve sur des monuments hittites, était un geste de bénédiction. Pour ce type d'Attis, cf. deux bronzes au Musée du Louvre : Longpéner, Notice des b r. ant. 444 et 445 ; un à Marseille, Musée Borely ; un autre signalé Jahrh. d. Inst. 1892, Arch. Anzeiger , p. 111 n° 12. --- Orthosia : Mionnet, Suppl. VI, p. 533 n" 471 (Elagabal); cf. V, p. 366 n° 187.
+
+*) Head, p. 533. Ramsay, Citiés , p. 166 (homonoia de Tr. et Attouda, époque des Attalides). Mionnet III, p. 388 n0 493 (époque Flavienne); Suppl. VI, p. 552 n° 555 ; Imhoof dans Wien. Num. Zft XVI, 1884, p. 272 nu 103, et Monn. Gr., p. 316 n° 91 (ép. d'Hadrien); Babelon, C. W. 2654 (ép. antonine). Sanctuaire suburbain [GREC] ? : CIG. 3953 d.
+
+*) Th. Reinach dans Bev.Et. Gr. XIX, 1906, p. 268 : Moïs, esclave sacré de Démeter et de Rhéa. Ce vocable de la Grande Mère n'est peut-être ici qu'une désignation poétique (il est cité dans un distique;, sans caractère rituel). Sur l'importance de ces cultes, cf. p. 115 : Domna qualifiée de Nea Demeter. Dans l'onomastique locale, noms de Metrodoros, Attinas, Papias, Adrastos.
+
+*) Id. dans Bull. Corr. Hell. XXXII, 1908, p. 500 ss, et XXXIII, 1909, p. 547. Le titre d'Epêkoos semble trahir une influence sémitique. --- Site à Medet. Le mont Salbakè ou Salbakos est le Babadagh, 2370 m.
+
+*) Mionnet IV, p. 256 n" 364 (Commodus). Site à Kayadibi.
+
+*) Id., Suppl. VII, p. 525 n° 250 (Caracalla) ; Mionnet IV, p. 261 n° 394, Babelon, C. W. 5837 (Elagabal); Loebbecke, l. c. XII, 1885, p. 344 n“ 3, et pl. xiv, 6 ; Babelon, Mélanges numism. II, p. 307 n° 27 et pl. ix, 15 (Gallienus). Déesse dans un bige de lions, tenant une corbeille posée sur la tête, dans la g. un flambeau (Artémis ou Hécate, d'après Imhoof, Griech. Mz., p. 150: mais cf. la Dindymène debout, voilée, tenant une corbeille sur sa tète, stèle votive du Galle Sôtéridès à Cyziquel ; elle est debout sur des monnaies de Maximinus et de Maximus. C'est la divinité maîtresse, cf. monnaies d'homonoia avec Hiérapolis, sous M. Aurèle, et avec Ephèse, sous Alexandre Sévère.
+
+*) Cf. Chapot, Province rom. d'Asie, pp. 363 et 375.
 
 Sur la côte carienne et dans les îles qui lui font face, à Calymnos, Cos et Rhodes, le type iconographique manifeste une influence de l'Ionie voisine ; Cybèle y tient parfois un lionceau sur ses genoux. Milet associait son culte à celui des Corybantes, Titias et Kyllènos, ses deux parèdres, « conducteurs des destins » et maîtres des tempêtes.* La Grande Mère d'Halicarnasse est unie de même aux Corybantes, et intimement liée à Déméter.* Celle de Calymnos est mise en relations avec Apollon* ; à Cos, la Dame Guérisseuse devait être rapprochée d'Esculape, à qui cette île est consacrée.* A Rhodes, nous connaissons une association cultuelle d'adorateurs de la Mère des Dieux* ; d'après une tradition, le culte d'Attis y fut introduit sur le conseil d'un oracle.*
 
+*) Scliol. ad. Apoll. Rh. I, 1126. --- Monnaies au lion couché, ou aumuflede lion, ou à la tête de lion : Babelon, Traité des monn. gr. et rom. II, i (1907), p. 21 ss, nos 17-34, 42-63 ; p. 270, nos 428-434. --- Statuette du vic s. .Bull. Corr. Hell. XIII, p. 543 s.
+
+*) Gr. Inscr. Brit. Mus. 896 ; J. of Hell. St. XVI, 1896, p. 234 ; Michel, Becueil 854 : inscr. du me s. av. J.-C., où sont nommés Zeus Patrôos, Apollon de Telmessos, les Moires et la M. d. D. ; provenance douteuse. --- Bull. Corr. Hell. 1880, p. 399 ; Poland, op. I. p. 566, B 308 : prêtre des Corybantes. --- Statuette de Cybèle en marbre, fouilles de Breuvery en 1829 : Mus. du Louvre. --- Figurine de Cybèle, en terre cuite, provenant du temple de Demeter : Newton, Halic., Cnidus etc., p. 328 et pl. xlvi, 5.
+
+*) Relief en t. c., provenant du temple d'Apollon ; au British Muséum (Cybèle assise, lion et prôspolos au caducée) : Conze dans Ath. Mitth. XIII, 1888, p. 202 etpl. v. --- Relief en marbre, au Louvre : De Villefosseet Michon, Catal. somm 2446 (Cybèle debout, entre deux lions).
+
+*) Benndorf et Niemann, Reisen in Lykien u. Karien, p. 15 s et fig. 8 ; marbre à Vienne, « Ant. Sammlung d. Kaiserliaus », cf. Jahrh d. deuisch. Instit. 1891, Arch. Anzeiger p. 176, 44. --- Paton et Hicks, Inscr. of Cos (1891), 38,1. 2-4, règlements Rhéa une brebis; 119, 1. 6(SébastéRhea = Agrippine?) ; 402 (règlement : à Meter Theôn, une brebis).
+
+*) Arch. ep. Mitth. VII, 1883, p. 124 : Cybèle assise, un lionceau sur les genoux ; statuette en marbre, mais qui proviendrait peut-être d'Adalia (Attaleia). --- Musée du Louvre: Heuzey, Catal. des fig. ant. de t. cuite p. 242 et pl. xi 2 ; même type. --- « Koinon» de la M. d. D.; i”r s. av. J.-C. ? Hiller v. Gaertringen, IGIns. I, 162; Poland, op. L, p. 565, B 273.
+
+*) Socrat., Hist. eccl. III, 23. Le syncrétisme que manifeste cet oracle (confusion d'Attis, Adonis, Dionysos) permet de lui attribuer une date relativement récente.
+
 Mais c'est surtout au nord du Méandre que Cybèle exerce son souverain empire. Elle est demeurée la Grande Mère de l'Ionie, la Grande Mère de toute la Lydie, où survivent encore quelques traditions de l'antique matriarcat.* Près du fleuve, sur les dernières pentes de la Messogis, elle est la déesse poliade de Brioula* et de Mastaura.* Dans la montagne, près d'un col et du village de Larasa, sur le territoire de Tralleis, se dresse le temple de la Mêter Isodromè.* Magnésie du Méandre possédait jadis un temple de la Dindymène, dont on attribuait la fondation à Thémistocle et dont la femme ou la fille de l'Athénien aurait été prêtresse ; par suite du déplacement de la ville ce temple n'existait plus au début de l'Empire.* Mais au Charonium voisin se rattachait sans doute encore le culte de la Mère catacbtonienne ; et la grande déesse du pays, Artémis Leucophryénè, nous apparaît elle-même comme l'un des multiples aspects de la Mère des montagnes. Cybèle reste populaire à Priène.* Sur les terrasses qui s'étagent entre l'acropole et la plaine, on a retrouvé son image dans les ruines de simples maisons ; à l'entrée de la grande rue qui part de la porte occidentale, elle trônait dans un petit hiéron, clos d'un mur rustique. Ephèse, la cité d'Artémis,* possède un sanctuaire de la Mêter Phrygia* ; car les Phrygiens sont nombreux dans cet emporium où aboutissent presque toutes les routes maîtresses de l'Asie Mineure, premier port de commerce de la riche péninsule. Comme il arriva plus d'une fois en Phrygie, sous la double influence du sémitisme et de l'hellénisme, la déesse y fut identifiée à Mêter Letô. Dans le territoire de la cité, une montagne lui était consacrée sous ce vocable. C'est sur cette montagne qu'une archiconfrérie éphésienne de « Pieux Curètes » allait, en son honneur, célébrer des mystères et des banquets.* Franchit-on le Caïstre pour gagner Smyrne ? Dioshieron, sur le fleuve, associe Rhéa-Cybèle à Zeus* ; et Metropolis d'Ionie, au milieu de vignobles célèbres, mérite toujours son nom théophore.* Prend-on la voie de mer ? Sur toute la presqu'île montueuse qui sépare le golfe d'Ephèse du golfe de Smyrne, s'épanouit le culte de la Mère des Dieux. Elle est la Grande Dame d'Erythrae, où nous lui connaissons une confrérie de Corybantes* ; son nom reparaît dans celui de Kybeleia, bourgvoisin de ce port, au pied du Mimas boisé* ; et elle reste chère aux derniers païens de Clazomènes.* En face de ces côtes, elle trône sur les rochers de Samos* et de Chios,* où le culte d'une Grande Mère Souveraine se perpétuait sans doute depuis le temps lointain des Lélèges.
+
+*) Cf. supra p. 17. Attis venu en Lydie : Paus. VII, 10, 7 ; originaire de Lydie : Luc., De a Syr. 5. L'élément mâle, Pappas ou Zeus Brontôn, occupe une place plus importante dans les religions phrygienne et carienne qu'en Lydie, où prédomine le culte de la Mère et du Fils ; cf. Ramsay, Cities, pp. 7-9. Survivances du matriarcat, ibid., p. 94 ss, et Studies, ■ chap. IV, p. 135-153 : J. Frazer y montre, d'après deux épitaphes, que l'hérédité par les femmes subsiste sous forme d'adoption de l'époux.
+
+*) Macdonald, op. I., p. 449 n° 1 et pl. lv, 14; Mionnet IV, 123; Head, H. num., p. 548 (au droit, tête radiée d'Hélios) ; Babelon, C. W. 4930 (Antoninus P.) ; Ramsay, Cities p. 192.
+
+*) Babelon, C. W. 5094 (Maximus). D'après Steph. Byz., s. v. Mastaura. , la ville doit son nom à Mâ = Meter, à qui les Lydiens sacrifiaient un taureau ; cf. Mastusia, hauteur près de Smyrne, et Masdya en Lydie.
+
+*) Strab. IX, 5, 19. Ramsay, op. I., p. 113.
+
+*) Strab. XII, 8, 17 ; XIV, 1, 40; Plut., Themist. 30. --- Dédicace d'Artemisia à Meter Theôn : Cybèle entre le Kadmilos et un vieillard. Conze dans Ath. Mitlh. XIII, 1888, p. 203 ; Kern, Inschr. v. Magn. am M. 1900, 217 a.
+
+*) Wiegand et H. Schrader, Priene , Berlin 1904, chap. V, 5, p. 171 et figg. 164-5 : Heitigtum der Kyhele (enceinte pentagonale, avec fosse à sacrifices ; Cybèle en marbre, avec lion sous les pieds ; autre, avec lion sur les genoux) ; --- chap. XI, p. 331 et fig. 367 : Privathaüsern (terres cuites ; Cybèle assise, patère dans la dr. et tympanon appuyé sur l'épaule g., entourée de lions). Elle figurait, assise sur un lion, dans la Gigantomachie du temple d'Athéna qui parait dater du ne s. avant J. C.
+
+*) Cette Artémis représente la dernière évolution de 1' « Oupis Anassa », qui en fut le prototype anatolien, et dont l'image en bois, d'origine céleste, disait-on, avait été trouvée dans un marécage par l'Amazone lydéenne Ephesos. C'était donc un aspect de la primitive Meter. D'autre part, sur la colonisation d'Ephèse par les Ioniens, v. Radet, dans Rev. Et. Ane. VIII, 1906, p. 1 ss. Sur la topographie, v. Benndorf, Forschungen zu Eph. I, 1906.
+
+*) Gr. Inscr. Brit. Mus. 576. --- Statuette en marbre, à Oxford, Ashmolean Muséum : Michaelis, Ane. Marbles of Gr. Br., 159. --- Reliefs et statuettes, d'époque hellénique : Conze, dans Arch. Zeit. 1880, p. 3, n°! M et N, pl. ni, 1 et 2 (la déesse est entourée d'un jeune prospolos et d'un homme barbu) ; Ath. Mitth. XIII, 1888, p. 203; cf. Museen zu Berlin, Ant. Skulpl. (1891), 697, 699, 704. --- Monnaies : Mionnet, Suppl. VI, p. 144 n° 424 (Antoninus P.) : 5^ Cybèle ? assise, « péplum flottant en cercle », la main g. sur le tympanon, « entre deux femmes qui tiennent une voile ».
+
+*) Strab. XIV, 1, 20 ; Gruppe, Gr. Mylhol., p. 284 et, sur une légende localisant à Eph. la naissance de Zeus, p. 271 n. 5. On a retrouvé 13 listes des deux premiers siècles de notre ère, relatives à cette association de Curètes « Eusebeis », qui comportait, en plus de ses chefs annuels, un hiéroscope, un hicrocéryx, un hiérophante, un hiérosalpinctès, un spondaulès etc. ; v. une de ces listes publiée par Heberdey dans Oesl. lahreshefle 1905, Beiblalt p. 77. --- Acrobatai, cf. supra, p. ,280 n. 6.
+
+*) Engel, Tessères gr. en plomb, dans Bull. Corr. Hell. VIII, p. 9 n° 49. Sur le site, v. Ramsay, H. Geogr., 114; Radet dans Rev. El. Ane. V, 1903 p. 10 ss (à Birghé ou Adigumé).
+
+*) Mionnet III, p. 159 s, nos 708 (Antoninus P.), 710 (Domna), 711 (Caracalla) ; Suppl. VI p. 259 n" 1152, Babelon C. W. 1770, Ilead, Cat. of gr. Coins , lonia, p. 177, 13 (Mammaea) ; Mt III, 713 (Maximinus), 716 (Gordianus P., cf. Head 14, 15, et pl. xx, 12) ; 717 (Tranquillina, cf. Head 19, 20); 718 (Otacilia), 719 et Suppl. VI, 1163 (Philippus J.); Babelon 1781 (Salonina). Ajouter Mt IV, p. 337 n“ 822, et Suppl. VII, p. 593 s, n°“ 485, 487-8, 492 507, fausses attributions à Metr. de Phrygie; cf. Ilead, H. num , p. 567, et Imhoof, Kleinas. Mz. I, p. 83. --- « La vigne est aussi consacrée à Rhéa»; Schol. ad Apoll. Rh., Argon. 1, 1119.
+
+*) Dittenberger, Syll. 370 ; Michel, Recueil 839 ; Poland, op. I. B 344 : Meter Megalè, Corybantes. --- Au Musée de Bruxelles, terre cuite d'Er. ? (h. 19 cm.), achetée à Smyrne enlyOO, collection Mistho : Cybèle trônant, tourelée, parée de boucles d'oreilles, tenant la patère dans la main dr., large tambourin contre l'épaule g., lion sur ses genoux (communication de M. Cumont).
+
+*) Strab. XIV, 1, 33; Herodian. Techn. (ne s. après J. -G.), Prosodia catholica , éd. Lentz 1867-70, p. 278, 1. 39 : Kybeleia, ville d'Ionie ; cf. p. 381, l. 18 : Kybela, ville de Phrygie ; p. 322, 1. 6 : Kybélè, ville de Phénicie ; Lucian., Judic. Vocal. 7 : Kybèlon, colonie athénienne.
+
+*) Mionnet III, p. 69 n° 73, et Suppl. VI, p. 90 n" 68; Imhoof, Griech. Mz., p. 111 n° 259 b (auton.) ; Mt III p. 72 s, n05 89 (Trajanus) ; 90, 91 et Suppl. VI, p. 93 n° 82, Babelon C. W. 1472, Head, Coins of lonia, p. 32 n° 123 (Hadrianus) ; Babelon 1475, Head 124, pl. vu, 8 (Commodus) ; Mt III 96, Head 128 (Caracalla) ; Mt III, 99 (Carae. et Geta) ; Mt Suppl. VI, 1360 (Philippus Sen.) ; Mt III, 101, 102, Head 136 (Valerianus Sen.) --- Relief votif, au Musée du Louvre ; Bull. Soc. Antiquaires 1899, p. 420 n° 43.
+
+*) Parnassos 1882, p. 519 : dédicace à Meter Epicrateia, par un « theophoros ». --- Musée de Vathy : Cybèle assise, tenant patère et tympanon (h. 24 cm.) ; Wiegand dans Ath. Mitth. XXV, 1900, p. 174 n° 51.
+
+*) Sur le rocher dit de l'Ecole d'Homère, niche dont la face antérieure porte l'image de Cybèle trônant, avec lionceau sur ses genoux et deux lions à ses côtés ; au revers, un lion ; cf. Studniczka, ihid. XIII, 1888, pp. 163 s (avec photogr.) et 201. --- Dédicace d'un lit et de cathèdres à la Meter par Callisthénès (ier s. av. J.-C.) ; Bull. Corr. Hell. III, 1879, p. 324 n" 11; Michel, Recueil 1146. --- Lieu dit Metrôon, à cause d'une chapelle, vers 230 av. J.-C.; R. Et. Gr. 1909, p. 194. --- Sur l'occupaLion lélège, v. Strab. XIV, 1, 3.
 
 Dans la région de Smyrne la déesse est tout particulièrement puissante. Les destins lui en ont confié la tutelle, nous dit le rhéteur Aristidès, qui vivait à Smyrne sous les Antonins.* Aussi le Metrôon smyrniote est-il le plus important de toute l'Ionie. Reconstruit à l'époque alexandrine par Antigone ou Lysimaque, il s'élève dans la plaine, près du gymnase, en plein quartier du port.* Il est dédié à la Meter Sipylénè, reine du massif abrupt qui domine la cité.* Une dédicace qualifie la Sipylène de Fondatrice, Archégetis.* C'est sur les victimes brûlées à son autel que l'on prête les serments solennels.* Quand les Smyrniotes de l'Empire concluent des alliances avec d'autres cités, c'est la Dame du Sipyle qui, sur les monnaies commémoratives de « homonoia, » représente leur ville.* C'est à elle que l'on paie les amendes infligées pour violation de sépulture. Elle est l'une des quatre divinités d'Asie Mineure à qui seules les empereurs ont reconnu le privilège d'hériter.* Nombreux est son clergé, sous l'autorité d'un grand prêtre et d'une grande prêtresse. Les meilleures familles se disputent le haut sacerdoce : la prêtresse Ulpia Marcella, qui vivait dans la première moitié du 2e siècle, était l'une des femmes les plus riches et les plus distinguées de Smyrne et de Thyateira, sa ville natale.* Au Sipyle même, la statue géante de la Mère, sculptée dans le rocher de Coddinos et attribuée au fils de Tantale, attire toujours des pèlerins.* Tout autour de la montagne sainte se manifeste l'ascendant de la Sipylénè. Il persiste à Magnésie du Sipyle, dont la divinité maîtresse est la Mère des Dieux sous les vocables topiques de Sipylénè et de Plasténè* ; il s'étend jusque sur l'autre rive de l'Hermos, à Temnos.* Phocée, à l'extrémité septentrionale du golfe, reste fidèle à sa Grande Mère ; sur ses monnaies du 111e siècle, elle fait figurer la Dame dont ses colons, neuf siècles auparavant, avaient transporté l'image et le culte à Marseille.* Myrina n'oublie point que, depuis les temps mythiques de l'Amazone éponyme, elle est sous la protection de la Mère des Dieux ; auprès de ses morts dorment les figurines de Cybèle et d'Attis, modelées dans l'argile,* de même que les statuettes de la déesse, en pierre, gardent les tombes les plus anciennes de Kymé.* Entre Temnos et Myrina, le temple métroaque d'Aigai nous est signalé à l'époque antonine.*
 
+*) Aristid., Or. XV, éd. Dindorf, I, p. 375.
+
+*) Strab. XIV, 1,37 ; Aristid. XVII, 10, 11 ; cf. Calder, Smyrna in the orator Aristidès dans Ramsay, Studies, p. 104. --- Plin., H. N. XIV, 54, delubrum Matris Deum dans la « région » de Smyrne. --- Sur deux inscr. de l'époque des Diadoques, à Mortakia et Bounarbachi [CIG. 3156 ; Ath. Mitth. XVI, 1891, p. 134 ; cf. Radet dans Rev. Et. Anciennes II, 1900, p. 251 ; Rev. archéol. 1900 II, p. 161), on a cru qu'il était question de droits affectés à l'entretien des « routes sacrées de la Mère » ; mais il s'agit d'un « hiéron » d'Aphroditè Stratonikis, et il faut lire sans doute [GREC], non pas [GREC].
+
+*) Meter Sipulénè ou Sipulinè : CIG. 3137,3193,3286,3385-87, 3401,3411 ; Longpérier, Œuvres III, p. 390 s; Hirschfeld, Gr. Grabinschriften welche Geldstrafen a nordnen, dans Kônigsberger Studien I, 1887, p. 93 ss n°s 112, 121-123, 125,132, 136,141. --- Mionnet III, p. 205, n°s 1104-08 ; Suppl. VI, p. 317, n° 1547 ; Macdonald, l. c., II p. 368 ss, n°s 112-3, 125-7, 134 et pl. lu, 7 ; Head, Ionia p. 255 ss, nos 160-1 (pl. xxvii, 4), 162-4, 171, 189 ; Imhoof Gr. Mz., p. 126 n° 350 et pl. ix, 10 ; Num. Chronicle , XX, 1900, p. 206 (époque Antonine) : tête tourelée avec l'insc. CITTYAHNH Le revers porte souvent le lion métroaque : 1° marchant; 2° posant une patte de devant sur le tympanon. --- Meter Smyrnaikè, sur le mont Pagos: Bull. Corr. Hell. III, p. 328 ; Hirschfeld, l. c. 131. --- Meter : ibid. 139. --- Meter Théôn : CIG. 3508; Ath. Millh. XIV, 1889, p. 94 n" 21. --- Monnaies impériales au type de Cybèle : Mionnet III, p. 219 n" 1223 (Drusus et Antonia) ; Suppl. VI, p. 332 n°1645 (Claudius) ; III, 1250et Suppl. 1659 ( Vespasianus) ; III, 1252 (Titus) 1260-61 et Suppl. VI, 1664-67 (Iulia Titi) ; Suppl. VI 1693 (Hadrianus) ; Mt III 1292-93 et Suppl. VI 1701 (Antoninus) ; III 1301, 1307 et Suppl. VI 1708 (M. Aurelius) ; III 1309-10 (Faustina) ; 1312 (L. Verus) ; 1317, 1319, 1323, 1326-27 et Suppl. VI, 1722, 1733, 1735 ; Macdonald l. c., pp. 382 et 390, n05 2 2 7 , 2 7 9 , 281 ; Head Ionia, p. 281 n° 356 et pl. xxix, 8 (Commodus) ; Mionnet III 1335 et Suppl. VI 1752-53 (Albinus) ; Mt III 1338, 1342 (Severus) ; 1374 ;Caracalla); Macd. n° 244 (Geta) ; Mt IJI 1391 (Severus Al.) ; 1438-39 (Valerianus Sen.) ; 1444 et Suppl. VI 1842-43 ; Macd., p. 388 n°s 267-70 (Gallienus).
+
+*) CIG. 3387.
+
+*) CIG. 3137 = Dittenberger, Syll. 171 ; Michel, Bec. 19 : [GREC].
+
+*) Homonoia de S. et Athènes : Mionnet III 1323 (Head, Ionia , p. 302 n° 484 et pl. xxxiv, 4) ; --- et Lacédémone 1326-27 et Suppl. VI p. 349 n° 1733 (cf. Macdonald l. c. II, p. 390 n° 279) ; --- et Laodicée : Mt III 1301, 1307 i,cf. Head 512-3) ; --- et Nicomédie, Mt III, 1308, et Suppl. VI, 1735 (cf. Macd. 281, Head 489, 490 et pl. xxxix, 7) ; --- et Pergame : Mt III, 1374 et Suppl. VI 1667 (cf. Head 507); --- et Philadelphie : Macd., p. 462 n° 13, Head pl. xti, 3.
+
+*) Ulp., De regul. 23 : « deos heredes instituere non possumus, praeter (en Asie :) Apollinem Didymaeum Mileti, Minervam Iliensem, Dianam Efesiam, Matrem Deorum Sipylenem, quae Smyrnae colitur ».
+
+*) Cf. supra p. 250.
+
+*) Paus. III, 22, 4; V, 13, 7 ; commentaire de Frazer, t. III, p. 552 ss, avec la bibliographie ; Ramsay dans J. of Hell. SI. III, 1882, p. 33 ss. Sur le culte local de la Déess.. Mère et du Dieu Fils, cf. une légende relative à la naissance de Zeus ; Gruppe, Gr. Mythol.. p. 271.
+
+*) M. Sipylénè : Bull. Corr . Hell. XI, 1887, p. 300 n° 8 ; XVIII, 1894, p. 541 n° 2. --- Temple de la Plasténè : Ath. Mitth. XII, 1887, p. 252 s, nos 16 (restauré par Apollonios), 17 (dédicace de Calvisius) ; XIII, 1888, p. 202 et pl. v (naiskos votif, préromain : Cybèle assise entre deux lions, éplièbe); Joubin, Musée imp. ottoman , Sculpt. (1893) 118. --- Statuette d'applique en bronze, époque romaine, au Musée du Louvre, Bull. S. Antiquaires 1900, p. 179 et 359 n° 50. --- Monnaies : Mionnet IV, p. 69 ss, 369, 370, 380-1 et Suppl. VII, p. 373 n° 257 (auton.) ; Mt IV 382-3 (époque flavienne) ; 400 et Suppl. VII 289 (Trajanus) ; Mt IV 408 et Babelon C. TV. 5080 (Antoninus ; Mt IV 410 et Suppl. VII 293, 295 (Commodus) ; Mt IV 413-5 et Suppl. VII 296 . (Crispina) Suppl. VII 299 (Domna) ; Mt IV 418 et Suppl. VII 301, 303 (Caracalla); Mt IV 422 et Suppl. VII 304 (Severus Al.) ; Mt IV 427 et Suppl. VII 307 (Mammaea) ; Mt IV, 429, 430, Suppl. VII 309 : Babelon. C. W. 5084; Macdonald, l. c., II p. 456 n° 11 (Gordianus P.); Mt IV 435 Philippus Sen.) ; 436-8 et Suppl. VII 311-4, 317-8, 321-2 (Otacilia), Mt IV 439, 441 (Philippus Jun.) ; Mt Suppl. VII 326-8, Babelon C. IV. 5085 (Etruscilla, : Mt Suppl. VII, 336 (Salonina); cf. Koerte dans Ath. Mitth. XXII, 1897, p. 41.
+
+*) Monnaies: Leake, Num. Hell. As. Gr., p. 131 auton.) ; Mionnet Suppl. VI p. 42 n» 264 (Hadrianus) ; Imhoof dans Zeitschr. f. Num. XX, 1897, p. 283 (Severus Al.) ; Mt Suppl. VI 281, Macdonald, op. I. Il p. 311 n° 8 Gordianus P.) ; Mt III, p. 31 n° 182 (Philippus S.). Influence de la Meter Sipylénè : Ramsay dans J. of Hell. St. II, p. 291.
+
+*) Mionnet III p. 178 ss, n°s 843-5, Hcad, Ionia p. 219, n° 125 (auton. : Mt 864, Hd 144 (Commodus) ; Mt 865, 867 et Suppl. VI p. 292, nos 1346-49, Hd 146 (Domna) ; Mt Suppl. VI 1352 (Geta) ; Hd 148 (Severus Al.) ; Mt III 876, Hd 157, Macdonald l. c., p. 358 n" 10, et pl. li, 17 (Gordianus P.) ; Mt, Suppl. VI 1360 (Philippus S.) ; Hd 162 et pl. xxm, 19 (Phil. J.) --- Entre 480 et 334 environ avant notre ère : tète d'Attis ? Babelon, Traité des monn. II, n, 1910, p. 1202 n° 2101; tète tourelée de Cybèle, p. 1222 n" 2188 R' tète d'Hermès), 2189, pl. clx, 25-6.
+
+*) Pottier et S. Reinach, Nécrop. de Myr., 1886, p. 26 : au sommet du Kato-Tépé (monticule limitant du côté de la mer la plaine de Kalabassary), « fragments d'ex-voto en terre cuite, d'un travail grossier plutôtqu'archaïque, représentant Cybèle assise sous un herôon. Le faîte de la colline, qui a été aplani, portait peut-être un autel consacré à la déesse ». Catal. nos 195 bis et ter, 413 bis (Cybèle), 210 (Atys ? chasseur), 215 et pl. xxxi (Atys-Eros), 279-281 (Atys au fruit ; A. danseur). --- Musée de Berlin, Jahrb. d. Inst. IV 1889, Arch. Anzeiger p. 90 (= Winter, Typen Iiatal. II p. 334, 4) ; VII 1892, p. 106 n° 14 (=Froeh- ner, Coll. Gréau , Terres c. d'Asie, pl. iv, Calai. 1891, n° 107). --- Musée de Bruxelles. Terre c. (haut. 30 cm., achetée à Smyrne en 1900, collection Mistho, et paraissant provenir de Myr. : Cybèle, de même type que supra p. 367 n. 1 ; --- figurine de même type, vente Hoflmann (h. 15 cm.) ; traces de poly chromie (communications de M. Fr. Cumont). --- La plaque Sabouroff a été attribuée par FurLwaengler (pl. cxxvn) à Myrina. --- Sur l'Amazone Myrina et ses rapports avec Cybèle, v. Diod. Sic. III, 54.
+
+*) S. Reinach dans Bull. Corr. Ilell. XIII, 1889, pp. 543-561 et pl. vin ; Calai, du Musée imp . d'antiq. 1882, p. 13 n° 47 ; Joubin, Musée imp. ottom., Sculpt. nos 32 et 33. --- Terres cuites: Reinach, l. c., p. 548. --- Rapports de Kymé avec la Fhrygie, cf. Bergk dans Zfl f. Num. XI, 1883, p. 333.
+
+*) Mionnet, Supp . VI, p. 4 n° 13 (M. Aurelius).
+
 Reine du Sipyle, la Mère des Dieux est aussi la Dame du Tmôle. Identifiée à la Théa Tmôla,* qui est devenue aussi une Artémis, elle protège les villes voisines : Hypaipa,* dans la vallée du Caystre, sur la route d'Ephèse à Sardes ; Nicaia Palaiopolis, dont la Mêter Nicaénè assure la fertilité de la plaine Kilbiane* ; Auréliopolis, où Théa Tmôlos possédait un antique bois de lauriers* ; Philadelphie, qui trop souvent a besoin d'invoquer la déesse chtonienne contre les tremblements de terre ; Sardes, restée la métropole de Lydie. A Philadelphie, l'oracle d'Apollon recommande d'invoquer tout d'abord la Grande Mère et de bénir sa puissance. Sous le vocable de Matuénè, elle s'y confond avec une Mêter Anaïtis, importée jadis par une colonie perse de Matiènes.* Au temps de l'empereur Gallien, comme au temps du roi Darius, Sardes rend hommage à la Kybébè dompteuse des fauves* ; et c'est pour elle, ce semble, que l'on y donnait les Jeux des Fleurs d'or, Chrysanthina, les plus beaux de la cité.* Au centre des plateaux volcaniques de la Terre Brûlée (Catakékauménè), elle a des temples municipaux à Saittai,* Daldis,* Tabala,* Maionia,* sans doute aussi à Opsikion, d'où provient une dédicace à la Mère des montagnes.* Le principal sanctuaire de cette région se trouvait à Satala ; sous des vocables divers, où se superposent les influences phrygienne, syrienne, persique et hellénique, s'y perpétuait à travers les âges le vieux culte anatolien de la Déesse Mère et du Dieu Fils.* Nombreux sont dans cette contrée, et particulièrement autour de Maionia, d'Opsikion et de Satala, les sanctuaires ruraux de Mères topiques, presque toujours assimilées à l'Anaïtis des colonies perses : Mêter Aziotténè, unie au Dieu Fils Mên Aziotténos, Mêter Tazénè unie au Dieu Fils Mên Petraeitès ; Mêter Tarsénè, unie au Dieu Fils Apollon Tarsios ; Mêter Phileïs, Mêter Ipta, unie à Zeus Sabazios.* Près de Maionia, les trois sculptures rupestres d'Hammamli, qui représentent Attis au pied d'un arbre et ses funérailles, paraissent dater de l'époque impériale.*
+
+*) Diog. Trag. dans Tray. Gr. Fragm., 2° éd. Nauck, p. 776. Buresch, Aus Lydienp. 69; Farnell, Cuits of the gr. States II, p. 473 ; Radet dans Rev. El. Ane. X, 19CS, p. 109, et Cybéhé. 1909, p. 62. Thea Tmôlos sur une monnaie de M. Aurèle : Von Sallet dans Zfl f. Num. XIII, 1885, p. 74.
+
+*) Monnaies: Mionnet IV p. 53 n° 274; S. Reinach, Chron. d'Or. I, p. 165 (Hadrianus) ; Macdonald, op. I. Il, p. 453 n° 3. Cybèle y avait pour rivale une Artemis-Anaïtis, desservie par des mages: Paus. V, 27, 5 ; Radet, Cyb. p. 67.
+
+*) Imhoof, Münzen der Kilbianer dans Wien. Num. Zeitschr. XX, 1888, p. 10 et pl. i, 8. Ramsay, H. Geogr., p. 114.
+
+*) Diog. Tr., l. c. ; Ramsay, op. L, p. 106.
+
+*) Stèle d'Aurelius Trophimus à la M. d. I)., «après avoir interrogé le dieu »: Bull. Corr. Hell. VII, p. 504 n° 9. --- Stèle votive de Q. Herennius Geminus à la Thea Matuénè Epiphanès (Musée du Louvre) : Ath. Mitth. XII, 1887, p. 256 n" 22 ; Bull. Soc. Antiquaires 1898, p. 417 n" 20; Rev. Et. Ane. VIII, 1906, p. 182. Ramsay, Cities p. 342 n. 3, rapproche ce nom de ceux de Matianè en Cappadoce et Matiana en Médie ; cf. Th . Reinach, Les Matiènes, dans R. Et. Gr. VII, 1894, pp. 313-8. --- Monnaies : Mionnet IV p. 100 n° 549 et Suppl. VII p. 400 s, n°s 3 8 3-7 (n° 385, plutôt la Tychè poliade) ; Babelon, C. W. 5128, pl. xiv, 16 (auton.); Mt IV, 559, avec cerf dans le champ, et Suppl. VII, 388 (Domitianus) ; cf. Imhoof, Kleinas Mz. I, p. 180.
+
+*) Cf. supra p. 17 n. 3, et Plut., Themislocl. 36. --- Reliefs votifs : Lebas V p. 393, n” 1653. Musée de Berlin, Beschr. d. ant. Skulpt. (1891), 702 ; stèle d'Eleutherios et Philetos pour leurs fils et frère. --- Monnaies : Mionnet IV, p. 140 n* 805 (Salonina). --- Identité du Kybébeion brûlé en 499 et de l'Artemision : lladet, Cybébé, pp . 61 ss et 96 ; le Metrôon vu par Thémistocle vers 462 représenterait l'intermédiaire ; cf. Radet, Remarques nouvelles , dans fieu. Et. Ane. XIII, 1911, p.75 ss. Mais il n'en reste pas moins vrai que Sardes possédait, sous l'Empire, un Metrôon municipal, distinct de l'Artemision.
+
+*) Ramsay, Cities, p. 108 ; ou pour Artémis Corè : Radet, Cybébé , p. 89.
+
+*) Babelon, C. VV. 5167 (sous Septime Sévère) ; Imhoof, Monnaies yr., p. 388 n°s 25-6 (sous Elagabal) ; Babelon 5192 (Gordianus P.) ; Head, H. Num., p. 552.
+
+*) Macdonald, op. I. II, p. 450 n° 2 (Commodus) ; Headp. 549 : d'Auguste à Gallien.
+
+*) Mionnet, Suppl. VII, p. 437 n° 547 ; Loebbecke dans Zeitsclir. f. Num. XII, 1885, p. 339, 1 ; Babelon C. W. 5295 (Faustina J.), 5297 (L. Verus), 5299 (Crispina), 5301(Domna) ; Loebbecke, 2 (Severus Al.) ; cf. Head p. 554.
+
+*) Mionnet, Suppl. VII, p. 366 n" 225 (Zeus) ; Babelon C. W. 5058. --- Site à Menyé. Méon, époux de Dindymè, père de Ivybélè : Diod. III, 58.
+
+*) Lebas-Waddington V, p. 219 n° 699; dédicace de l'affranchi Rufus. --- Site à Koula : Ramsay, IL. Geogr . p. 123. --- Non loin, à Gentiz, dédicace à Thea Meter ; Mouseion, V, 1884-85, p. 56 S Reinach, Chron. d'Or I, p. 217 n” 6.
+
+*) Ramsay, op . L. p. 131 ; Drexler'dans Roscher, Myth. Lex. II, 2865.
+
+*) Meter Anaïtis Aziotténè, dédicace de Meltinè, fille de Secundus (ann. 130 après J. -G.) ; Mouseion, V, 1884-85, p. 54 ; Ath. Mitth. XII, 1887, p. 254. --- M. Taz., à Kavakly, àdeux lieues et demie au N. N. E. de Koula; Buresch, Aus Lydien, pp. 83 et 111. --- M. Tars., à cinq kilom. au N. E. de Koula ; Mouseion III, 1880, p. 163. --- M. Phil., à Koula (ann. 126 après J.-C.) ; Mouseion III, p. 165; Bull.Corr. Hell. VIII, 1884, p. 378. --- M. Ipta, àGjôlde ; Mouseion, l. c., p. 169 ; cf. supra p. 13 n. 3.
+
+*) Lebas, Voyage arch., éd. S. Reinach, 1888, p. 43 s, et Iiinér. pl. lv ; Pottier et Reinach, Myrina , p. 407 n. 6 ; Hepding-, Attis p. 101.
 
 ## 4\.
 
 Au nord de l'Hermos, Hermocapeleia,* Thyateira* qui adore la Meter Boreiténè, Nacrasa,* Apollonis,* sur la route de Sardes à Pergame, Acrasos, près des sources du Caïcos,* Hadrianotherai, avec sa sainte colline d'Atys, couronnée d'autels, au carrefour des routes de Cyzique et de la Bithynie,* ont gardé leur dévotion à la Grande Mère. Ce sont autant de stations pieuses pour le pèlerin qui gagne l'Ida troyen ou le Dindyme cyzicène. Autour de l'Ida, qui porte à son sommet les deux autels de Zeus et de la Mêter,* la domination romaine a ravivé le culte de l'Idéenne. Jusque dans les derniers temps, il est aussi prospère à Pergame que ceux d'Asclepios, de Dionysos, d'Athéna et des Augustes.* Unie aux Corybantes, la Mêter y a conservé son titre de Reine, Basileia. C'est elle encore que l'on vénère sous le vocable phrygien de Misé, Mida Dea; elle aussi, sans doute, la Toute Suprême dont un consulaire se déclare le serviteur. Les dévots continuent à gravir la montagne dénudée où trône Méter Aspordénè, à l'est de la ville. Attis reste sans doute le dieu protecteur d'Attaia, petit port de Pergame, où s'était embarquée la Dame Noire.* On retrouve l'Idéenne sur les ruines de l'homérique Thébè et dans le port d'Adramyttion, au pied du Placos boisé.* Une grotte sacrée attire des dévots de toute la Mysie au Metrôon d'Andeira. La déesse y est adorée comme Dame de Pureté, Agnè Théa ; elle tient une grenade et peut-être un oiseau; elle est accompagnée d'Hermès.* Titre, attributs et compagnon y précisent son rôle de protectrice des morts. Le Metrôon de Gargara, du haut de sa falaise, appelle le salut et la prière des matelots.* En face, dans l'île de Lesbos, Mytilène, Méthymna et Eresos avaient leurs temples de la Mêter, adorée sous les vocables mysien et phrygien d' Adrasteia et d'Agdistis.* Un règlement ancien interdisait aux Galles et à leurs rites l'accès du Metrôon d'Eresos* ; il révèle soit l'influence des idées helléniques, soit la persistance de traditions antérieures à l'eunuchisme.
 
+*) Mionnet IV, p. 46 n" 240; Suppl. VII p.351 n" 160 (Elagabal) ; Head,/L num. p.550: d'Hadrien à Hostilien.
+
+*) Clerc, De rebus Thyat., 1893, p. 77 s ; CIG. 3508 ; Bull. Corr. Hell. X, 1886, p. 411 n° 14 (Julia Juliana, prêtresse à vie). --- Mionnet IV, p. 166 n° 955 (Caracalla) ; BT Tychè poliade, tenant la Meter Boreiténè. Le temple de cette Meter, identifiée avec Artémis, s'élevait entre Th. et Attaleia.
+
+*) Babelon C. W. 5118 (Faustina J .) ; Head p. 551 .
+
+*) Mionnet Suppl. VII, p. 319 n" 37 (Commodus) ; Ilead p. 548.
+
+*) Catal. Borrell, 1852, n° 318 (Septimius Severus) ; Mionnet IV p. 4, n0' 22-3 (Severus Al.); Head p. 548 : de Trajanà Gordien.
+
+*) Aristid. (né à Hadrianoi, fixé à Smyrne), [GREC], III, 43 éd. Dind. II p. 449; éd. Keil II p. 423). Ramsay, dans/, of Hell. St. III p. 55, situe la colline près de Smyrne.
+
+*) Ps. Plut., De flum. 13. La déesse y était adorée sous les espèces d'une pierre-bétyle : Claudian., De raptu Proserp. I, 201. On attribuait la construction de l'hiéron à Idaios, fils de Dardanos : Dion. Hal. I, 61.
+
+*) Mionnet Suppl. V p. 438 ss, nos 988 (Antoninus P.), 1013 (M. Aurelius) ; Mt II p. 605 n° 601 (Commodus) ; Suppl. V 1162 (Hostilianus). --- Cf. supra p. 40; ajouter Fraenkel, op. L, 482-4; Thraemer, Pergamos , pp. 265 ss, 367 s; ILepding dans Ath. Mith, XXXII, 1907, p. 362, inscr. 117: dédicace d'un Attalos, consulaire, peut-être Cl. Attalus Paterculianus, à une déesse [GREC], dont il se dit le « prospolos » et qui est la Meter, peut-être Isis ; XXXV, 1910, p. 444 n° 26 : déd. à Misé. --- Statuettes : S. Reinach, Répert. Stat. IV, 163, 1 et 2 (Cybèle), 293, 1 (Attis ?). --- Terre cuite, trouvée sur la cime de la montagne du prophète Elias : Ath. Mitth. 1910, p. 520 (Cybèle). --- Schuchardt dans Berl. Ak. Sitzungsber . 1887, p. 1212, identifie le naos de l'Aspordénè au temple dorique hellénistique de Mamurt-Kalessi, sur le Gün-Dagh, --- Cybèle figure sur la frise de la Gigantomachie.
+
+*) Cf. Ramsay,Jï. Geogr., pp. 241, 368, 439.
+
+*) Mionnet, Suppl. V, p. 279 n° 19 (M. Aurelius).
+
+*) Strab. XIII, 1, 67 ; Steph. Ryz., s. v. [GREC]. --- Stèle du Louvre : CIG. 6836 ; Clarac, Musée, pl. cl, 23 ; Froehner, Sculpt. a ni. du L. 544 ; De Villefosse et Michon, Catal. somm.des marbres a nt., 2871 ; Smith et Rustafjaell, dans J. of Hell. St. XXII, 1902, p. 191 et fig. 2. Dans la main dr., oiseau plutôtque balsamaire ou navette. Pour l'épithète d'Agnè, cf. Atargatis ; Bull. Corr. Hell. VI 1882, pp. 497 et 501. --- Relief trouvé à Cyzique, brisé : images de la déesse au fruit et d'Hermès au caducée, dédicace [GREC]. Smith et Rust., I. c., p. 190 s. --- Dédicace à Meter [Andeijrénè ; Boghaz-Keui, près de Cyzique : Hasluck, dans J. of Hell. St. XXV, 1905, p. 60 n° 20.
+
+*) Babelon C. W. 789 (Trajanus) ; Fox, Rare or unedited gr. Coins II 31 (Commodus).
+
+*) CIG. Ins. II, 4SI, 1. 10 ; 524 (personnage? portant le nom d'Agdissis). --- Wroth, Calai. of gr. Coins, Trous etc., p. 163, nos 69-70 et pl. xxxm, 12 et 13 : tète de Cybèle ? --- Mionnet III, 98-101, 114, 139, etc. (d'Antonin à Gallien) : déesse tourelée, assise, mais tenant un enfant au maillot (114, tenant patère et sceptre) ; c'est la Tychè poliade. --- L'Amazone Mytilène, sœur de Myrina et dévote de la M. d. D. : Diod. Sic. III, 54.
+
+*) Kretzschmer dans Oest. arch. Jahresh. V, p. 141. Même interdiction concernant les femmes, sauf la prêtresse et la prophétesse. L'interdiction du fer et du bronze révèle la survivance de traditions préhistoriques.
+
 Sur l'Hellespont, Abydos* et Lampsaque* lui demandent de faire mûrir leurs vignes et de garder leurs ports. A sept kilomètres environ de Lampsaque, sur le sommet d'une colline, Strabon signale un « hiéron » de la Mêter Têreia, dont le nom est d'origine thraco-phrygienne.* Tout le long de la Propontide mysienne s'échelonnent les sanctuaires. La plaine du Graniqueest un ancien domaine de Mêter Adrasteia. Comme celle de l'Aesepos, elle n'a point cessé de subir la double influence de l'Ida, où ces fleuves prennent naissance, et de Cyzique, dont le territoire s'étendit fort loin sur cette côte.
+
+*) Mionnet II, p. 636 n" 50 (Commodus) ; Catal. Whittall, 1867, p. 24 n" 291 (Septimius Severus). --- Trois statuettes de la Mêter assise, en terre cuite, provenant d'un tombeau : Meyer, Geseh. v. Troas, p. 25.
+
+*) Mt, Suppl. V, p. 378 n° 605 ; Wroth, Mysia, p. 89 n° 86, et pl. xx, 14 (Caracalla).
+
+*) Strab. XIII, 1, 17 ; cf. supra, p. 290 n. 4. Homère, II. II, 829, connaît déjà la montagne Tereia en Mysie.
 
 Mais voici plusieurs cimes à l'horizon. Ce sont le Dindymos de la Proconnèse,* célèbre par ses marbres, le Dindymos, le Lobrinos, l'Adrasteios de Cyzique* : montagnes saintes dont chacune est couronnée d'un Metrôon. La Mère porte encore, sur le territoire de Cyzique, les vocables de Kotyanè,* de Tolypianè,* surtout celui de Plakianè, qui est commun à la métropole et au port de Plakia.* Elle y est aussi l'Agdistis.* Des gens du pays troyen y transportèrent même les cultes de l'Andeirénè et de l'Idaia. Dans la numismatique cyzicène, on rencontre fréquemment l'image de Cybèle entourée de ses Corybantes, la tête d'Attis coiffée du bonnet phrygien et la « protomé » symbolique du lion.* Car ici, comme à Smyrne, la Mêter est au premier rang des divinités poliades, l'Archégêtis. En Proconnèse, son prêtre paraît jouir du privilège de l'éponymie, généralement réservé à la plus haute magistrature ou au principal sacerdoce. Cyzique est un centre religieux dont l'importance égale celle de Smyrne. Cette ville de marins et de marchands est aussi une ville de prêtres et de mystes.* Pour le service de la Dame et de ses nombreux temples elle entretient tout un monde hiérarchisé de prêtres, de prêtresses, d'hiéropes, de Galles. Tant de vierges sont vouées à ce culte qu'un sanctuaire spécial leur est réservé ; le temple de la Plakianè comprenait un Parthénon.* Cyzique est fière de sa dévotion à la déesse comme de ses vieilles traditions et de sa gloire passée. De tout temps, disait la légende dorée de l'Anatolie, ce fut pour la Mère des Dieux une terre d'élection. Elle aimait à y arrêter son char, à y dételer ses lions et à s'y reposer dans les bois de pins du Dindymos. Un jour, le héros éponyme, Kyzicos,fils d'Apollon, tua l'un des lions à lâchasse. Peu après, au cours d'une expédition où les Argonautes lui prêtaient main forte, Jason le transperça de sa lance, par mégarde, mais poussé par une main divine. La mort de Kyzikos ne fut qu'une juste vengeance de la déesse irritée* ; mais elle pardonna vite au peuple qui lui manifestait un si grand amour. Le sanctuaire du Dindymos avait sa légende propre. Ce furent les Argonautes qui, sur la montagne, « à l'abri des chênes élevés, les plus hauts de tous ceux qui sont enracinés dans le sol, » bâtirent et consacrèrent l'autel de la Dindymène . Ce fut Argos lui-même qui, dans un cep de vigne, sculpta le xoanon vénéré.* La cité possédait encore d'autres statues célèbres de la Mêter. Il y en avait une, en marbre, que Constantin jugea digne d'être transportée à Byzance, sa nouvelle Rome.* Une statue chryséléphantine avait été jadis enlevée aux Proconnésiens, pendant une guerre ; le visage divin était en ivoire d'hippopotame.* Attis reçoit sa part légitime des hommages rendus à la Grande Mère. Dieu lumineux et astral, les Cyzicéniens l'honoraient spécialement par des lampadéphories.* Son image cultuelle, connue par les monnaies, le représentait à demi couché, vêtu d'anaxyrides et d'une tunique étoilée. Ils avaient adopté aussi le type ionien de l' Attis ailé* ; des statuettes figurant cet Attis, et adossées à des piliers, décoraient les portes d'un temple ou peut-être d'enclos funéraires.
 
+*) Paus. VIII, 46, 4. --- Babelon, Traité des monn. gr. et rom. II, ii, nos 2836-49 et pl. clxxix, 16-28 • tête de la Dindyménè, identifiée à Goré Soteira, W oenochoè, colombe ou cerf. --- Inscr. de Marmara, n”s. ; Hasluck, l. c. XXVI, 1906, p. 301 : prêtre de la Meter, associé au culte des empereurs. --- Un mythe y localisait la naissance de Zens et le stratagème de llhea : Agathoclès de Babylone dans Schol. ad Hesiod. Theog. 485; cf. Fragm. Ilist. Gr. IV, 290, 7.
+
+*) Nieander, Alexipharm. 7 (thalamai de Rlieia Lobrinè) et schol. : [GREC] ; Strab XII, 8, 1 1 (montagne d Adrastée, qui fait face à la ville), cf. XIII, 1, 13 ; Propert. III, 22, 3 (Cybèle du Dindyme) ; Ammian. XXII, S, 5 (iv* s., «religiosa Malris Magnae delubra » à Cyzique et au Dindyme). L'Arclônoros, ou mont des Ours, dont une partie de la ville occupait les premières pentes, Strab. XII, 8, 11, était sans doute aussi consacré à la déesse ; Apollonius de Rhodes nous montre les Argonautes y prenant un festin en l'honneur de Rhéa. Sur la consécration des ours à la Meter anatolienne, cf. Gruppe, Gr. Mythol., pp. 943 et 1538. Les Pythagoriciens appelaient les constellations de la Grande et de la Petite Ourse « les mains de Rhéa » : Porphyr., Vit. Pyih. 4t. --- Dédicace à Zeus et Meter Dindyménè : Bull. Corr. Hell. XII, 1888, p. 187. --- Deux dédicaces à l'Andeirénè, cf. supra, p. 373 n. 4. --- Temples et autels de Meter Idaia : Strab . I, 2, 38. --- Sur le culte métroaque de Cyzique, au vie s., cf. Herodot. IV, 76; Clem. Al., Protrept. II, 24. Le Cyzicène Néanthès avait écrit au iv° s. sur le mythe d'Attis, « prospolos » delà M. d. D. ; cf. Harpocration, éd. Bekker, s. v. [GREC] ; Hepding, Attis , p. 102 s. --- A Marquardt, Cyzicus, p. 95 ss, ajouter les travaux de Hasluck.
+
+*) CIG. 3668; Dittenberger, Syll. 270 ; Wilhelm, dans Arch. ep. Mitth. 1897, p. 74. Dédicace du Galle Sôtéridès à Meter Kot[...], avec relief : adorante, joueur de flûte, enfant conduisant un bélier, autel au pied d'un chêne. Musée du Louvre; De Villefosse et Michon, Catal. somm. des marbres ant. 2850, (cf. 2851 : fragment de relief votif, autre sacrifice de bélier) ; reprod. par Bœtticher, Baumkultus , 1856, pl. iv, 13, et S. Reinach, Répert. Stat. I, p. 101. --- Léchât et Radet, dans Bull. Corr. Hell. XVII, 1893, p. 531 n" 33 : déd. d'Artemisia, fille d'Artémôn, à Meter Kotyanè; confrérie (ier s. av. J.-C.).
+
+*) Mordtmann dans Atli. Mitth. X, 1885, pp. 203 et 402 ; Michel, Rec. 1226 ; Poland, op. L, p. 571, B 406 ; cf. Joubin, Musée imp. oit., Catal. des sculpt. 1893, p. 44 n° 117 : Cybèle trônant, entre deux lions ; au-dessous, huit suppliants et enfant qui pousse deux béliers vers l'autel. --- Stèle au type de la déesse trônant, traces d'une autre épithète locale : Hasluck, l. c. XXIII, 1903, p. 82: ...[GREC]. --- Relief votif : Cybèle assise, tenant tympanon et phiale ; lion à g.; un adorant. British Muséum; Smith, Catal. Sculpt. 782.
+
+*) Michel 537 (= CIG. 3657) et 538 ; Lolling, dans Ath. Mit h. VII, 1882, pp. 151-159 ; cf. Rubensohn, Mysterienheiligtümer , 1892, p. 169 ss. --- Monnaies de Plakia : Head, II. num., p. 465 : Wroth, Mysia , p. 174 n°‘ 4 et 5, pl. xxxv, 2 (vers 300 av. J.-C) ; Babelon, C. W. 994-5, et Traité II, n, n°s 2830-33 (tête tourelée, avec pendants d'oreilles et collier) et pl. clxxix, 12-15. --- Le temple se trouvait peut-être à l'emplacement du monastère de la Panagia [GREC], très important à l'époque byzantine, sur le Kara-Dagh; on y conserve deux lions en marbre : Hasluck, l. c. XXIV, 1904, p. 35.
+
+*) CIG. 6837.
+
+*) Mionnet II, p. 527 s, n“ 76, 7S-94, Suppl. V, p. 301 ss, nos 108 (pl. n, 4), 114, 128-147. Babelon, C. W. 677 (pl. i, 8), 685,687, 691-9 ; Traité, l. c., monnaies d'électrum, v-iv” s. : nos 2619-20 (tête d'Attis), 2645-46 (criobole), 2694 (Cybèle assise sur un lion) ; monn. d'argent de 480 à 400 env. : 2809-10 (tète d'Atys) ; pl. clxxiii, 27-8, clxxiv, 21-2, clxxv, 18, clxxviii, 14. --- Monnaies et médaillons de Commode : Catal. Whittail, 1858, p. 28 n° 360 ; Mt, Suppl. V, p. 331 nos 317-8 (= Milani, Studi e materiali I, 1899, p. 53 fig. 1 : Cybèle sur le lion, trois Corybantes), 348. --- Tholos surmontée des [3 figures de la Meter Dindyménè, Lobrinè, Plakianè : Mt II, 173.
+
+*) CIG. 3663 a, 3666; mystarques.
+
+*) Sur le sens du mot Parthénon, qui reparaît à propos d'un Metrôon d'Apoilonia de Carie, d'un Artemision de Magnésie du Méandre, du temple de la Démeter d'Hermione (Argolide), v. Th. Reinach, dans Bull. Corr. Hell. XXXII, 1908, p. 500 ss.
+
+*) Val. Place., Argon. III, 20 ss. La veuve du héros se tua de désespoir, et les larmes des nymphes formèrent la fontaine de Cleité, qui se trouvait par conséquent en relalion avec le culte de la Meter.
+
+*) Apoll. Rh. I, 1117 ss, et schol. ad 1119; Strab. XII, 8, 11. Conjecture de Haupt à Propert. III, 22, 3 : « Dindymus et sacra fabricata e vite Cybelle » ; cf. éd. Baehrcns, 1880.
+
+*) Zozim. II, 31; cf. Amelung, dans Roem. Mitlh. XIV, 1899, pp. 8-12.
+
+*) Paus. VIII, 46, 4.
+
+*) Drexler dans Neue philol. Jahrh. CXLIX, 1894, pp. 321-5; d'après des monnaies impériales ; cf. Wroth, Mysia, p. 50 n° 236, et pl. xm, 7. Important article de von Fritze dans Nomisma, IV, 1909, p. 33 ss et pl. ni, sur le culte d'Atys à Cyzique. L'auteur illustre, entre autres, à l'aide de la numismatique, la cérémonie de la [GREC] (cf. ici l'attitude du dieu), et rapporte aux lampadéphories d' Attis certains types mal compris qui représentent des adorants avec des torches.
+
+*) Mendel dans Bull. Corr. Hell. XXXIII, 1909, p. 259 n° 8. Statuette en marbre, très mutilée, au Musée de Brousse. Le dieu, hermaphrodite et ailé, est vêtu d'une tunique transparente qui laisse à nu tout le buste et qui se continuait sur les jambes en braies à crevés ; S. Reinach, Rèpert. Stat. IV, 292, 3. Réplique à Bouyouk-Déré, dans la résidence de l'ambassade russe ; Arndt, Einzelaufn. Text III, p. 30. Autre à Copenhague, Ny-Carlsberg.
+
 Près du territoire de Cyzicjue, sur la route qui vient de la Haute Phrj'gie par la vallée du Rhyndacos, nous retrouvons le culte métroaque à Milétopolis.* Il y prospérait sous les Flaviens et les Antonins ; et sans doute se liait-il à celui des sources qui alimentent le lac voisin. L'influence religieuse de Cyzique s'étend jusqu'à Daskylion, petit port sur le lac Daskylitis, en Bithynie.*
+
+*) Mionnet, Suppl. V, p. 381 n° 619 (Vespasianus) ; Mt II, p. 570 n° 358 (Antoninus P.).
+
+*) La stèle publiée par Conze, Lesbos, pl. xix, attribuée à Nicée ou Bryllium, pourrait être de la région de Daskylion, où Cyzique possédait des territoires : Hasluck, dans J. nf Hell. St. XXIII, 1903, p. 82.
 
 ## 5\.
 
 Les Bithyniens, de même race que les Phrygiens, et qui passaient pour n'être pas moins fanatiques, adoraient également la Mère des Dieux parmi leurs grandes divinités nationales. Ils lui avaient consacré le troisième mois de leur année.* Un Metrôon donnait son nom à l'une des localités du pays.* Arrien, originaire de Bithynie, nous apprend que ses compatriotes continuaient à gravir les hauts lieux pour y invoquer Attis Pappas.*
 
+*) Il correspondait à la période du 23 novembre au 22 décembre.
+
+*) Mionnet II, p. 448 n° 200. Arrien, Péripl. XIII, 3, parle d'yne localité qui s'était, formée auprès d'un Metrôon, à 80 stades (1-4 kilom.) d'Héracleia. Il y avait aussi en Bithynie une rivière Gallos : Ramsay, H . Geogr ., p. 182.
+
+*) Fragm. Hist. Gr. III, p. 592 n° 30.
+
 Le principal sanctuaire était, ce semble, à Nicée. Le mythe local ne disait-il pas que Nicaia, nymphe des eaux, était fille du roi Sagaris et de Kybélè ? que, voulant vivre vierge, elle avait passé sa vie, elle aussi, dans les montagnes et au milieu des fauves* ? Jusqu'au temps de Gallien, qui ne put empêcher le ravage de la province par les Goths, les monnaies de Nicée portent très souvent l'effigie de la Mèter.* Dans Nicomédie, la ville rivale, l'ancienne capitale des rois, le Metrôon se dressait à l'un des angles du forum. A en juger par cet emplacement honorifique, il occupait un rôle considérable dans la vie religieuse de la cité. Si l'on se décide à le reconstruire ailleurs, en l'an 112, ce n'est pas que l'indifférence ait laissé tomber en ruines le vieil édifice ; mais, à la suite de certains travaux de terrassement, il se trouvait en contre-bas de l'agora, dans une situation qui fut jugée indigne de la puissante déesse.*
+
+*) Phot., Bihlioth. 7 10, éd. Reimer, I, p. 233. Nicaia est tourelée (monnaies).
+
+*) Mionnet II, p. 452 n° 219; Waddington, Babelon, Th. Reinach, Morin gr. d'Asie M., I, p. 408 n° 76, pl. lxviii, 10 (Antoninus P.) ; Babelon, C. VF. 406; Wadd. Bn Rh 143, pl. lxx, 10 (M. Aurelius) ; Bn, C. W. 422 (Plautilla) ; Wadd. Bn Rh, 549, pl. lxxxi, 19 (Macrinus); Mt, Suppl. V, p. 131 n° 743 (Elagabal); Babelon 433 (Severus Al.), 435 (Maximinus) ; Mt, Suppl. V, p. 144 ss, n°s 834 (Maximus), 883 (Decius) ; 898-9, et Wroth, Pontus, etc., p. 174 n° 137, Wadd. Bn Rh, 767, pl. i.xxxvi, 10 (Trebonianus) ; Mt Suppl. V, 911, et Wadd. Bn Rh, 789, pl. i.xxxvi, 27 (Valcrianus S.); Mt. Suppl. V, 931, et Wroth, l. c., 153, Wadd. Bn Rh, 829, pl. i.xxxvii, 25 (Gallienus). C'est en 258 que les Goths pénétrèrent en Bithynie. --- De Nicée peut-être, deux stèles de thiasotes publiées par Conze, Lesbos, pl. xviii et xrx ; cf. Foucart, Assoc. rel., pp. 237-240 nos 64-5, et Poland, op. I. B 414 a, b.
+
+*) Plin. Ep. X, 49 et 50 (58, 59), éd. Keil. --- Monnaies ; Mionnet, Suppl. Y, p.l86s, n0B 1095 (L. Verus\ 1102 (Commodus) ; Wadd. Bn Rh, I p. 561, n° 350, pl. xcvii, 11 (Maximus); 393, pl. xcvm, 15 (Decius). --- Buste d'Attis au bonnet étoilé, en bronze ; acquis en 1895 par le Musée du Louvre. --- D'après la numismatique, la principale divinité parait être Demeter.
 
 Cybèle est honorée à Prusa (Brousse),* sans doute comme Dame des magnifiques forêts de l'Olympe mysien et des eaux curatives qui jaillissent dans le voisinage de la ville. On lui rend un culte au milieu des collines boisées que traverse la route de Nicée en Phrygie,* et dans toute la région montueuse qui s'étend au pied de l'Olympe galate (Ala-Dagh) : à Gordoukomè-Juliopolis, sur la route de Nicomédie à Ancyre,* à Prusias de l'Hypios, près d'un lac,* à Bithynion-Claudiopolis-Hadriana, que domine un rocher géant,* à Crateia-Flaviopolis, sur la frontière de Paphlagonie.* Toutes les villes maritimes ont leur Metrôon. Dans celui de Brjdlium-Cæsarea, près du territoire de Gyzique, on adorait la triade Zeus Hypsistos, Mêter Agdistis et Hermès ; l'expansion du culte d'Hypsistos, sous l'influence sémitique, dut lui donner un regain de vitalité.* Nous retrouvons la Grande Mère à Kios,* sur le golfe de même nom, à Chalkedôn,* qui garde l'entrée du Bosphore, à Kandra* sur la mer Noire, à Héracleia du Pont,* où la grotte Acherousia passait pour être une entrée des Enfers, à Tion,* port voisin de la frontière paphlagonienne et de la grande cité d'Amastris. D'autre part le culte d'Hylas à Kios, avec ses oribasies, ses cris d'appel, ses lamentations en l'honneur du dieu disparu, et le culte d'Idmon à Héracleia, où l'on pleure le héros tué par un sanglier, sont nettement apparentés à celui d'Attis. Il y avait communauté d'origine ou influence directe du mythe métroaque ; aussi bien rattachait-on ces cultes locaux d'Hylas et d'Idmon, comme celui de la Dindymène de Gyzique, au légendaire voyage des Argonautes.
 
+*) Mionnet, Suppl. V, p. 233 s, nos 1374 (Maximus), 1381 (Philippus Sen.). Sources ferrugineuses et sulfureuses de Tchekirjeh, dédiées à Asclépios et Apollon : Ramsay, H. Geogr., p. 180 ; cf. J. of He'll. SI., xxvn, 1907, p. 226.
+
+*) Domaszewski, dans Arch. ep. Mitth. VII, 1883, p. 173 n“ 19 : dédicace à la Meier, par Mènios, fils de Mênios. Site à Bos-üjük.
+
+*) Niimism. Chronicle XVIII, 1898, p. 105 n° 13, Wadd. Bn Rh I, p. 388 n" 23, pl. i.xiii, 18 (Caracalla) ; ibid. 48, pl. lxiv, 16 (Maximinus) ; ibid. 53, pl. i.xiv, 21, et Babelon, C. VF. 380 (Gordianus P.) ; Mionnet, Suppl. V. p. 76n°391, et Wadd. Bn Rh, 58, pl. lxiv, 24 (Valerianns Sen.).
+
+*) Wroth, Pontus etc., p. 202, 6 (Geta). Site à Ùskub.
+
+*) Ibid., p. 118, 8; Wadd. Bn Rh, I, p. 273 n“ 36, pl. xlii, 14 (Domna). Boli.
+
+*) Mionnet, l. c., p. 34, nos 185 (Domna), 189 (Caracalla). Site à Geredeh.
+
+*) Triglia, près de Mudania ; Bull. Corr. Ilell. XXIII, 1899, p. 593 ss.
+
+*) CIG. 3727, et Poland, op. I. , p. 572, B 415 : thiasoles métroaques à M. Caecilius Tyraf...]. Colonie milésienne du vu” ou vi“ s.
+
+*) Mionnet, Suppl. V, p. 31, 165; Wadd. Bn Rh, I, p. 307 n° 112, pl. xlviii, 23 (Gordianus P.). Site à Benderegli.
+
+*) Nom moderne. Confrérie (synodos) de l'époque antonine ; Bull. Corr. Hell., XXV, 1901, p. 58 n" 203.
+
+*) Wadd. Bn Rh, I, p. 373 n° 185, pl. i.x, 25 (Severus Al.) ; cf. p. 378 n. 1.
+
+*) Babelon, C. W. 563 (Maesa); Wroth, Pontus , p. 207, 21 (Maximinus).
+
 Des liens politiques unissaient la Bithynie, la Paphlagonie maritime et une partie du Pont, groupés dès le temps de Pompée en une même province. Mais l'important commerce de la mer Noire suffisait à propager sur la côte les cultes orientalo-grecs. Amastris, métropole des dix villes de ce gouvernement qui sont situées sur l'Euxin, possède un Metrôon public. Sous les Antonins et les Sévères, elle frappe des monnaies au type de Cybèle trônant.* Dans la cité pontique d'Amisos, on trouve des figurines d'Attis hermaphrodite au vêtement étoilé* : ce type y fut introduit par les Ioniens qui colonisèrent la ville ou plutôt par les marchands de Cyzique. D'après Lucien, les confréries de Corybantes Danseurs ont pris autant d'expansion dans le Pont qu'en Ionie ; les meilleurs citoyens s'y font affilier.*
 
+*) Mionnet, Suppl. IV, p. 555 ss, n*s 25 (Antoninus), 84, 85, et Wadd. Bn Rh, I, p. 153 n° 157, pl. xxi, 7 (Caracalla).
+
+*) Musée de Constantinople; Cat. des terres cuites yr. 1922.
+
+*) De saltat. 79.
+
 Au ne siècle, Arrien signale près de l'embouchure du Phase, sur la rive droite, le temple d'une Mêter Phasianè.* « Assise comme la Rhéa de Phidias dans le Metrôon d'Athènes, » et entourée de deux lions, cette déesse tenait le tympanon, attribut de Cybèle. Image et culte furent-ils importés en Colchide par les Cyzicéniens ? Le mythe du navire Argo, devenu pour eux tradition nationale, symbolisait en effet leurs relations commerciales avec les régions du Caucase, d'où ils tiraient l'électrum. Mais Phasis est une colonie de Milet ; il se peut que la Mêter soit arrivée directement du golfe Latmique. En tout cas, on dut l'identifier à quelque divinité indigène. Dès le début de l'Empire, ce sont les troupes auxiliaires de Galatie qui sont envoyées au Caucase pour occuper les territoires soumis ; elles contribuèrent sans doute à la prospérité du temple.
+
+*) Arr., Peripl. IX, 1. Monnaie d'argent du dynaste Aristarchos, institué par Pompée ; Rr déesse assise, au tympanon, mais coiffée d'une sorte de bonnet phrygien: Cybèle, d'après Von Sallet, dans Zeitschr. f. Numism. III, 1876, p. 60, et V, 1878, p. 226; c'est une première assimilation de la Phasianè au type métroaque. Influence de l'Asie occidentale : cf. le temple de Leucothea, le port de Dioscurias, colonie de Milet, la place forte d'Idéessa. Corybantes venus de Colchide pour servir de satellites armés Rhéa : Strab. X, 3, 19.
 
 ## 6\.
 
 Dans les provinces qui s'étendent à l'est et au sud de la Phrygie, le culte de la Mère des Dieux ne s'était guère propagé que sur les frontières immédiates et le long des côtes. Les seules régions où il se montre remarquablement vivace, ce sont la Pisidie et la Lycaonie. Il est vrai que leurs plateaux continuent les plateaux phrygiens, que leur population est en majeure partie de race phrygienne et que la Pisidie romaine comprend la Phrygie Parorée.
 
-Dans la contrée agricole des Lacs, parsemée de villes et de villages, la Grande Mère est aussi populaire que la Grande Artémis,* sa proche parente ; et les noms théophores de plusieurs localités attestent l'ancienneté de la religion métroaque. Le village de Maion, ou Imaion, a pris le nom du temple qui est sa raison d'être. Mamouta dépendait jadis d'un « hiéron » de la Mère, et Attea d'un « hiéron » d'Attis. Ptagia est le village de la Mêter Ipta, dont on retrouve le culte en Méonie, sur les plateaux de la Katakékauménè.* Pappaion-Tiberiopolis, sur la route de Phrygie à Iconion, a grandi près d'un antique sanctuaire d'Attis Pappas.* Sur la rive orientale du lac Ascania, probablement à Limnobria, la Mère des Dieux voisinait avec Artémis Léto.* A en juger par un oracle talaire, on la vénérait aussi dans la petite ville d'Anaboura, entre les Limnai et le lac Karalis.* Dame des montagnes, elle avait pénétré dans le massif pisidien et y continuait ses apparitions. Là où s'élève aujourd'hui Baghlu, près de l'antique Adada, l'esclave Primus dédie une stèle à la Mêter Oreia, qui s'était miraculeusement révélée à lui.* Toutes les villes de la Pisidie ont leur temple public de la Grande Mère. Elle est l'une des divinités poliades d'Antiocheia, ancienne capitale de la Parorée.*
+Dans la contrée agricole des Lacs, parsemée de villes et de villages, la Grande Mère est aussi populaire que la Grande Artémis,* sa proche parente ; et les noms théophores de plusieurs localités attestent l'ancienneté de la religion métroaque. Le village de Maion, ou Imaion, a pris le nom du temple qui est sa raison d'être. Mamouta dépendait jadis d'un « hiéron » de la Mère, et Attea d'un « hiéron » d'Attis. Ptagia est le village de la Mêter Ipta, dont on retrouve le culte en Méonie, sur les plateaux de la Katakékauménè.* Pappaion-Tiberiopolis, sur la route de Phrygie à Iconion, a grandi près d'un antique sanctuaire d'Attis Pappas.* Sur la rive orientale du lac Ascania, probablement à Limnobria, la Mère des Dieux voisinait avec Artémis Léto.* A en juger par un oracle talaire, on la vénérait aussi dans la petite ville d'Anaboura, entre les Limnai et le lac Karalis.* Dame des montagnes, elle avait pénétré dans le massif pisidien et y continuait ses apparitions. Là où s'élève aujourd'hui Baghlu, près de l'antique Adada, l'esclave Primus dédie une stèle à la Mêter Oreia, qui s'était miraculeusement révélée à lui.* Toutes les villes de la Pisidie ont leur temple public de la Grande Mère. Elle est l'une des divinités poliades d'Antiocheia, ancienne capitale de la Parorée.* Protectrice de la vigne et Dame de la Santé, elle favorise à Amblada la culture de vignobles renommés, qui produisent un vin médicinal.* Elle apparaît au 11e siècle dans la numismatique d'Ariassos.* Assise et tenant des épis à Colbasa,* debout à Comama,* elle préside aux destinées de ces deux colonies militaires. A Cremna, repaire de bandits colonisé par Auguste, les colons romains adorent « Mater Deorum » ; mais, au temps des Sévères, la population indigène reste encore fidèle à son antique Mêter, vénérée sous le vocable phrygien de Mida Dea.* Une Mêter Lagbénè, sur la frontière d'Asie et de Lycie, protège le peuple de Lagbé.* Au temps de Caracalla, Cybèle figure sur les monnaies de Lysinia,* et jusqu'à Claude le Gothique (268-270) sur les monnaies de Sagalassos.* D'Hadrien à Sévère Alexandre nous la retrouvons sur celles de Timbriada.* C'est elle aussi, sous le vocable d'Adrasteia, que l'on vénère à Termessos, au pied du mont Solymos ; et sans doute son culte était-il associé à celui de Zeus Solymeus.* Tityassos enfin, au sud du lac Karalis, grave sur ses coins la façade de son Metrôon.*
 
-Protectrice de la vigne et Dame de la Santé, elle favorise à Amblada la culture de vignobles renommés, qui produisent un vin médicinal.* Elle apparaît au 11e siècle dans la numismatique d'Ariassos.* Assise et tenant des épis à Colbasa,* debout à Comama,* elle préside aux destinées de ces deux colonies militaires. A Cremna, repaire de bandits colonisé par Auguste, les colons romains adorent « Mater Deorum » ; mais, au temps des Sévères, la population indigène reste encore fidèle à son antique Mêter, vénérée sous le vocable phrygien de Mida Dea.* Une Mêter Lagbénè, sur la frontière d'Asie et de Lycie, protège le peuple de Lagbé.* Au temps de Caracalla, Cybèle figure sur les monnaies de Lysinia,* et jusqu'à Claude le Gothique (268-270) sur les monnaies de Sagalassos.* D'Hadrien à Sévère Alexandre nous la retrouvons sur celles de Timbriada.* C'est elle aussi, sous le vocable d'Adrasteia, que l'on vénère à Termessos, au pied du mont Solymos ; et sans doute son culte était-il associé à celui de Zeus Solymeus.* Tityassos enfin, au sud du lac Karalis, grave sur ses coins la façade de son Metrôon.*
+*) Megalè Artémis : Ramsay, Studies, pp. 319, 332, 334, 343 ss, 375.
+
+*) Ibid., p. 364 ss. Localités connues par les listes de souscriptions des Xenoi Tekmôreioi au ni” s. (dans l'onomastique : Pappas, Attasl.
+
+*) Cf. supra p. 347. Site à Yonuslar; of Hell. St. XXII, 1902, p. 100 'ss.
+
+*) A Burdur, peut-être sur le territoire de Sagalassos. Ramsay, Ciliés, p. 337 inscr. 173, avec relief fruste.
+
+*) Ath. Mitth. XXII, 1897, p. 28 ss, n" 6 ; cf. Sterrett, Wolfe Exped., n° 342.
+
+*) Sterrett, l. e. 400.
+
+*) Mionnet, Suppl. VII, p. 91 n" 15 (M. Aurelius), p. 101 n° 70 (Gordianus P.) ; Cybèle tient le sceptre.
+
+*) Rev. Numism. 1883, p. 376 n* 6, et pl. ix, 4 ; Head, p. 589 (Mammaea). Sur le vin d'A., Strab. XII, 7, 2.
+
+*) Imhoof, Griech. Ms., p. 168 n° 479, et pl. x, 21 ; Babelon, C. TF. 3632 (Antoninus P.).
+
+*) Dieudonné, dans Revue Num., 1902, p. 349 n" 95, et pl. x, 13 (Damna). IT Cybèle assise sur un trône sans dossier, le bras gauche sur le tympanon, la main gauche tenant des épis et la droite une patère, un lion à ses pieds.
+
+*) Imhoof, op. L, p. 173 et pl. x, 24 (Antoninus P.): Babelon, C. VF. 3673 (Commodus), et Mélanges num. I, p. 52 (Caracalla). Meter plutôt que Héra.
+
+*) Babelon, C. IV'. 3704 (Domna). R Cybèle assise dans un temple distyle; devant elle, petite figure; en exergue : MATRI DEOR(um) COL(onia) etc. --- Imhoof, op. l-, p. 171 n°‘ 488 et 488 a (Commodus); Babelon, C. VF. 3699, 3700 et pl. viii, 11 (Severus), 3709 (Geta). Rr femme assise à gauche, tenant une patère : MIDAE DEAE.
+
+*) CIG. 4318 b, add. ; Ramsay dans Americ. Journ. of Archaeol. IV, 1888, p. 16.
+
+*) Head. H. num., p. 591; Dieudonné, l. c., p. 351 n° 98 et pl. x, 15 (Caracalla). R Cybèle debout, tenant un sceptre court et caressant deux lions.
+
+*) Babelon, C. VF. 3845 (Severus) ; Mionnet III, p. 515, n°” 129 (Volusianus), 135 ;Claudius II); cf. Mark ! dans Wien. numism. Zft, XXXII, 1900, pp. 164 et 176, n°* 25 et 60, pl. viii, 25, et xii, 60.
+
+*) Mionnet, Suppl. VII, p. 628 n° 615, et Babelon, C. VF. 4022 (Hadrianus) ; Calai. Whittall 1884, p. 91 n° 1379 (Severus) ; Babelon 4024 = 7161 (Domna) ; 4031 (Severus Alexander). Cybèle tient la corne d'abondance.
+
+*) Dédicace à Nemesis Adrasteia : J. of Hell. St. XV, 1895, p. 128 n° 26.
+
+*) Head, l. c., p. 594 (auton. ; y temple tétrastyle, à gauche un serpent : MHTPOC) ; Catal. Whittall, 1867, p. 54 n° 647 (Severus).
 
 En Lycaonie, tout le pays qui est au nord d'Iconion, et qui fut jadis terre phrygienne, a conservé pour divinité souveraine la Mêter Ziziménè. Cette Mère est un type local de la Dindyménè.* Le centre de son culte est à Zizima, entre Iconion et Laodicée, dans une région minière qui constituait jadis son territoire sacré et qu'exploitait son Archigalle, mais qui fut incorporée au domaine impérial.* Laodicée, que repeuple une colonie romaine, Iconion, dont l'Empire fit une petite capitale, manifestent une grande dévotion à la Dame de Zizima. Dans la première de ces villes, le culte officiel de la Mère des Dieux laisse des traces jusqu'à la période anarchique du 3e siècle.* La déesse fut plus populaire encore dans l'autre, où résidait un Archiprêtre* ; elle y reparaît aussi sous les vocables mystiques d'Agdistis et de Boéthénè.* On retrouve le culte de Ziziménè jusque sur la frontière de Cappadoce. Entre la rive, occidentale du lac Tatta (Tuz Tschôlü) et la route d'Iconion à Ancyre, elle avait son temple et son Archigalle à Savatra.*
 
