@@ -1,3 +1,5 @@
+[Part 1](full-text-french-1.md)
+
 # Chapitre 6
 
 ### Le Clergé et le Personnel des Temples.
