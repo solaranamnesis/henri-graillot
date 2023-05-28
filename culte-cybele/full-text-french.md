@@ -4,7 +4,9 @@
 
 ### Paris, 1912.
 
-#### Fontemoing et Cie, Éditeurs ...
+#### Fontemoing et Cie, Éditeurs
+
+#### Libraires des Ecoles françaises d’Athènes et de Rome, de l'Institut français d'Archéologie orientale du Caire, du Collège de France et de l'École Normale Supérieure 
 
 #### 4, Rue le Goff, 4
 
