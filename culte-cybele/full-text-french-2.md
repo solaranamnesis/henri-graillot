@@ -3380,6 +3380,7 @@ Le Metrôon d'Athènes se dressait à l'angle sud-ouest de l'Agora, presque au p
 *) Cf. Furtwaengler, Slatuenkopien, p. 53, pl. x.
 
 *) Province romaine d'Achaïe, texles et monuments figurés (les noms modernes sonL en italiques).  
+
 ATTIQUE  
 Acharnai (Menidi). --- Dans un naiskos à inscr. fruste, Meter tenant un lionceau sur ses genoux ; à g., adorant ; Ath. Mitth. XIII, 1888, p. 337 n° 502.   
 Agrai. --- Meter: CIA. I, 273 {426-422 av. J.-C.). --- Metrôon, temple ionique amphiprostyle, détruit au xvme s. ; bibliogr. dans Judeich, Topogr. von Athen, 1905, p. 370. --- Relief au Musée d'Athènes. Déesse debout dans une grotte, entre le jeune échanson et laj. fille dadophore ; en haut, tête de fleuve. Conze dans Arch. Zeitung 1880, p. 6 n° X et pl. iv, 3.   
