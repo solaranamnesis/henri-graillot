@@ -164,7 +164,7 @@ L'écroulement de l'empire hétéen avait d'autre part ouvert les voies à l'inv
 
 *) Dindymè, épouse du roi de Phrygie et de Lydie Maiôn, mère de Kybélè : Diod. Sic. 3, 58. Un mont Dindymos à Pessinunte, Strab. 12, 5, 3 ; à Cyzique, 12, 8, 11 ; aux sources de l'Hermos, Hérodot. 1, 80 et Strab. 13, 4, 5. Ptolem. 5, 2, qualifie de Dindyme toute la chaîne qui s'étend du Sangarios à la Propontide. Tomaschek, dans _Ak. Wien. Sitzungsber._, 131, 1894, p. 33 et 72, considère le mot Dindyme comme une forme plus récente de Dindryme, qu'il rapproche du sanscrit « druma » = arbre, bois ; cf. la même réduplication dans le grec [GREC]. Kretschmer, _op. l._, p. 194, suppose un mot phrygien « dindu » = hauteur, tandis que J. et Th. Baunack, _Stud._ 1, p. 198, interprètent Dindyménè comme un équivalent de Chtonia.
 
-*) Strab. 10, 3, 12 : [GREC]. CIG. 2, 2107 b : [GREC]. _Orph. Hymn._ 42, 6 ; Julian., _Ep._ 21.
+*) Strab. 10, 3, 12 : [GREC]. _CIG._ 2, 2107 b : [GREC]. _Orph. Hymn._ 42, 6 ; Julian., _Ep._ 21.
 
 *) Arnob., _Adv. gent._ 2, 73 ; cf. Diod. Sic. 3, 59, qui dit simplement que Midas contribua beaucoup à la magnificence du temple et des fêtes de Pessinunte. Sur le Midas mythique et les Midas historiques, cf. Koerte, _Gordion_, p. 14 ss.
 
@@ -1449,7 +1449,7 @@ Mais voici les musiciens, joueurs de double flûte, cymbalières et joueuses de 
 
 *) Anonyme de 394 (cf. supra, p. 122, n. 3), 103-107 : « Vidimus argente faclo(s ?) iuga ferre leones, | lignea cum traherent iuncti stridentia plaustra, | dextram issam (? deam ?) laevaque argentea frena tenere, | egregios proceres currum servare Cybellae, | quem traheret conducta manus. » Cf. en Espagne, les chars plaqués d'argent, auxquels sont attelés le lion et le bœuf des évangélistes, et que l'on promène à la procession du Corpus Dei.
 
-*) Cf. Fulgent., Mytli. 3, 5: « multiplici veste », à propos de Berecynthia. ACyzique, des femmes étaient spécialement chargées de la parure de la Mêter Plakianè, CIG. 3657.
+*) Cf. Fulgent., Mytli. 3, 5: « multiplici veste », à propos de Berecynthia. ACyzique, des femmes étaient spécialement chargées de la parure de la Mêter Plakianè, _CIG._ 3657.
 
 *) Lucian., De sacrif. 7 ; Rhéa promenant Attis sur son char de lions. Nonnius, Dionys. XXV, 311, montre Attis conduisant le char de lions. Julien, _op. l._, pp. 166 C et 169 D, dit que Cybèle oblig'e Attis à se tourner vers elle et à la regarder: allusion à leur attitude iconographique. --- Le char apparaît sur une série de médaillons contorniates. Cybèleet Attis sur un qnadrigede lionsau galop. I. Attis, le pedum dans la main droite, assis à droite de la déesse qui le regarde et tient les rênes : en haut, deux signes du zodiaque : Cohen, 2e éd., 8, p. 287, nos 103-105. --- 2. Cybèle tient une haste dans la dr., et Attis le pedum dans la g. ; tous deux ramènent l'autre main sur la poitrine: ibid., p. 281, n° 63, et p. 297, n° 197 ; cf. Daremberg et Saglio, Dict. des a ntiq. I, 2, s. v. Cybélé, p. 1689, fîg. 2251. --- 3. Cybèle tient le sceptre et regarde Attis. qui tient les rênes ; en haut, deux signes du zodiaque, dont le bélier : Cohen, p. 318, n° 362 ; Dar. et Saglio, fîg. 2252. --- Avec la même signification hiérogamique, Cybcle debout, posant la main g. sur l'épaule d'Attis debout, et tenant la main dr. du dieu dans la sienne : Cohen, p. 300, n° 214. Reproduits aussi par Ch. Robert, Les phases du mythe de C. et A. rappelées par les méd. cont., dans Rev. numism. 1885, pl. 3, 7 ; 4, 1 ; V, 1-6.
 
@@ -1469,7 +1469,7 @@ Un jour de repos férié, _Requietio_, sépare les Hilaries de la fête du Bain,
 
 *) Passio S. Theodoti et septem virginum (Ruinart, Acta sincera, 2e éd. p. 342) : « iussit eas (virgines) fieri Dianae alque Minervae sacerdotes, ut quotannis iuxta morem lavarent earum simulacra in vieino lacu. » Cette Artémis et cette Minerve sont d'autres aspects de Cybèle (cf. la Minerve Bérécynthienne de Bénévent).
 
-*) Des prêtresses spéciales, comme à Ancyre, comme les Loutrophores d'Aphrodite à Sicyone, y sont chargées de ce rite : on les appelait ici les Maritimes, Thalassiai : CIG. 3657.
+*) Des prêtresses spéciales, comme à Ancyre, comme les Loutrophores d'Aphrodite à Sicyone, y sont chargées de ce rite : on les appelait ici les Maritimes, Thalassiai : _CIG._ 3657.
 
 *) Avant le principat de Claude. --- CIL. 6, 2305, 2306 (Menologia Rusticana) ; Ovid., Fast. 4, 337-346 : cf. supra, pp. 76 et 92.  
 Sous Néron. --- Lucan., Phars. I, 600: (XV viri) « lotam parvo revocant Almone Cybèlen. »  
@@ -1764,7 +1764,7 @@ Or, sous l'influence des idées orientales, les empereurs romains avaient adopt�
 
 *) Capitolin., Anton. P. 5. C'est seulement à partir de Commode que le protocole comporte les titres de Pins, Félix, Invictus.
 
-*) A cette intention on dressait aussi des autels, on élevait des chapelles sous le vocable de « Mater Deum. » Cf. CIL. 3, 764,1100 ; 8, 2230= 17668 ; XIV, 34 ; Cagnat, Ann. épigr., 188S, n° 78. C'est une coutume importée de l'Orient. De même, à Aéra (Syrie), dédicace d'un Tychaion « pour le salut et la victoire de Commode » : CIG. 4554. Sur ces mêmes offrandes pros se et suis, cf. CIL. 3, 1101, 1102 et la dédicace d'un spelaeum mithriaque, V, 810.
+*) A cette intention on dressait aussi des autels, on élevait des chapelles sous le vocable de « Mater Deum. » Cf. CIL. 3, 764,1100 ; 8, 2230= 17668 ; XIV, 34 ; Cagnat, Ann. épigr., 188S, n° 78. C'est une coutume importée de l'Orient. De même, à Aéra (Syrie), dédicace d'un Tychaion « pour le salut et la victoire de Commode » : _CIG._ 4554. Sur ces mêmes offrandes pros se et suis, cf. CIL. 3, 1101, 1102 et la dédicace d'un spelaeum mithriaque, V, 810.
 
 Acceptant les croyances de l'Asie, ils devaient nécessairement lui emprunter ses pratiques. Déjà dans certaines villes d'Anatolie le taurobole était un élément du culte impérial.* Il est vraisemblable qu'à Rome, dans cette église phrygienne où dominaient les affranchis des Césars, on tauroboliait _pro salute principis_ avant l'institution officielle du rite. Ce mode de sacrifice, d'un caractère très barbare, avait pour lui l'avantage de se présenter sous les auspices d'une divinité depuis longtemps romaine. Cybèle trône sur le Palatin. L'Idéenne protège la maison des Augustes, comme Anahita, Mâ et l'Ourania protégeaient les dynasties royales de l'Asie. Elle est la Dame des Victoires ; de même Anahita et Mâ donnaient aux rois le succès dans les combats. Jadis les généraux de la république l'invoquaient dans les guerres difficiles. On lui offrira désormais des tauroboles « pour la victoire et le retour de l'empereur.* » Elle est, pour le corps et pour l'âme, la Dame de Salut. Par le taurobole elle renouvellera la vitalité physique du prince, indispensable au bonheur de l'État, et sa pureté spirituelle, qui maintient sur sa personne la Fortune céleste. Il n'est donc pas surprenant de rencontrer, sur un autel taurobolique de l'année 190, cette singulière formule : « pour le salut de l'empereur auguste et pour ses _Numina_, » c'est-à-dire pour le maintien de sa puissance divine.* Car la Mère des Dieux est vraiment, comme les omnipotentes déesses de Syrie, de Perse et de Cappadoce, la maîtresse de la Fortune. C'est pourquoi les Césars l'appelleront leur Conservatrice. « Grande Mère, accorde cette grâce d'effacer la tâche d'impiété, » disait un César dans ses prières* ; « fais que la Fortune bienveillante favorise le gouvernement romain pendant des milliers d'années. » On associera sans doute la déesse, avec son taurobole, aux fêtes purificatrices des « Vicennalia* » ; et l'empereur Philippe lui accordera une place importante aux fêtes du millième anniversaire de la fondation de Rome.* Rome s'identifie avec l'Empire, et l'Empire s'identifie avec l'empereur. Taurobolier pour le salut du prince, c'est contribuer à la prospérité de tout le monde romain. Il faut taurobolier en même temps pour les princes héritiers ; car c'est assurer la perpétuité du régime. Le taurobole de la Mère des Dieux va devenir l'une des sauvegardes de l'Empire.
 
@@ -2123,7 +2123,7 @@ Cybèle n'est pas seulement déesse « de grand pouvoir* » ; elle est la Dame d
 
 *) Ils y avaient tous deux un autel : Ps. Plut., De flum. 13 ; en Arcadie, sur le mont Azanion, on les adore tous deux more Idaeo : Lact. Plac., ad Stat., Theb. 4, 292.
 
-*) Zeus Acraios et le lion de la Mère Sipylène sont réunis sur des monnaies de Smyrne : Mionnet 3, p. 208, nos 1139-1141 ; Suppl. 6, p. 320, n° 1570 ; Macdonald, Hunterian Coll., greek coins, p. 370, n° 132 = British Mus. coins, pl. xxvii, 5. Ajouter : Cybèle et Zeus Hypsistos sur des reliefs mysiens, Bull. Corr. Bell., 1899, p. 598 ; Zeus et Meter Dindyménè à Cyzique, _ibid._ 1888, p. 187 ; Zeus Sôter et la M. d. D. Agdistis à Eumeneia, Phrygie : CIG. 3886 ; Zeus et Cybèle sur des monnaies de Maeonia, 1.3'die : Babelon, Coll. Wnddinglon, 5058. De môme, sur les monnaies d'Hierapolis de Syrie, on voit le couple de Baal au sceptre et d'Atargatis au lion.
+*) Zeus Acraios et le lion de la Mère Sipylène sont réunis sur des monnaies de Smyrne : Mionnet 3, p. 208, nos 1139-1141 ; Suppl. 6, p. 320, n° 1570 ; Macdonald, Hunterian Coll., greek coins, p. 370, n° 132 = British Mus. coins, pl. xxvii, 5. Ajouter : Cybèle et Zeus Hypsistos sur des reliefs mysiens, Bull. Corr. Bell., 1899, p. 598 ; Zeus et Meter Dindyménè à Cyzique, _ibid._ 1888, p. 187 ; Zeus Sôter et la M. d. D. Agdistis à Eumeneia, Phrygie : _CIG._ 3886 ; Zeus et Cybèle sur des monnaies de Maeonia, 1.3'die : Babelon, Coll. Wnddinglon, 5058. De môme, sur les monnaies d'Hierapolis de Syrie, on voit le couple de Baal au sceptre et d'Atargatis au lion.
 
 *) Hauvctte dans Bull. Corr. Hell., 1882, p. 502, n° 25. Sur l'union de Zeus et de Cybèle dans le culte phrygio-romain, monuments figurés : l'Attis d'Ostie appuyé sur le buste de Zeus Idéen ;Zeus avec le sceptre et la foudre, sur un pectoral que porte l'archigalle reproduit par Montt'aucon ; buste de Zeus sur la poitrine d'une « sacerdos maxima, » au musée du Vatican, CIL. 6, 2257 ; id. sur la ciste votive de l'archigalle Modius Maximus à Ostie, C/Z.., XIV, 385 ; id. sur le manche du fouet de l'archigalle, au musée Capitolin.
 
@@ -2263,7 +2263,7 @@ Son caractère chthonien primait tous les autres.* C'était comme déesse de la 
 
 *) Apoll. Rh. I, 1117 ss, et schol. (= Meineke, Analecta Alexandr., p. 150, cxlvi) ; cf. Roem. Mitt. XIV, 1899, p. 8. Sur un pithos de Béotie, lîhéa entre deuxlions ; des pampres lui sortent de la tête : Milani, Studi e maleriali I, p. 8, fig. 8.
 
-*) Cf. supra, pp. 15, 45. Midas, fils de la M. d. D., thiasote de Dionysos • cf. Dieterich dans Philologus, LII, 1894, pp. 5 et 6. Strabon, X, 3, 13, insiste sur le lien qui unit les deux cultes. Au ne s., prêtre de la M. d. D. et de Dionysos Kathégémôn : CIG. 6206 = IGS1. 1449. A la fin de l'Empire, Julien, l. c., pp. 179 B et 180 A, signale la parenté mystique des deux divinités.
+*) Cf. supra, pp. 15, 45. Midas, fils de la M. d. D., thiasote de Dionysos • cf. Dieterich dans Philologus, LII, 1894, pp. 5 et 6. Strabon, X, 3, 13, insiste sur le lien qui unit les deux cultes. Au ne s., prêtre de la M. d. D. et de Dionysos Kathégémôn : _CIG._ 6206 = IGS1. 1449. A la fin de l'Empire, Julien, l. c., pp. 179 B et 180 A, signale la parenté mystique des deux divinités.
 
 *) CIL. 8, 8457 et 13440 ; cf. Rev. archéol. 1904, I, p. 350. Participation des prêtres de Liber aux tauroboles : CIL. XII, 1567 (ann. 245).
 
@@ -2333,7 +2333,7 @@ Mère des hommes, la déesse est maîtresse de leur fortune, puisqu'elle est rei
 
 *) Julian., l. c., p. 180. RhéaPandôra dans Diod. Sic. 3, 57 ; cf. [GREC], Orph., Hymn. 27, 9 ; [GREC], Orph., Fragm. 305, 1, éd. Abel.
 
-*) On l'adorait à Pessinonte sous le vocable d'IIea : Num. Chronicle, 1876, p. 79 ; B. Head, Hist. Num., p. 630 ; Babelon, Coll. Wadd. 6653. Faut-il rattacher à cette même idée l'épithète de [GREC], CIG. 3993 ? --- [GREC] : CI Att. 3, 136 (ier s. de notre ère). --- [GREC] : ibid., 134 (icr s.) ; Etymol. Magn., p. 388, 35 ; sur ce mot considéré au contraire comme un euphémisme, cf. Gruppe, op. I., p. 1539. --- [GREC] : Arch. ep. Mitt. 7, p. 180 ; Letronne, Inscr. de l'Égypte, I, p. 417, n° xxxvi ; épithète fréquente dans les cultes mystiques et pour les dieux guérisseurs, très usitée à Palmyre, où elle traduit un vocable des religions sémitiques.
+*) On l'adorait à Pessinonte sous le vocable d'IIea : Num. Chronicle, 1876, p. 79 ; B. Head, Hist. Num., p. 630 ; Babelon, Coll. Wadd. 6653. Faut-il rattacher à cette même idée l'épithète de [GREC], _CIG._ 3993 ? --- [GREC] : CI Att. 3, 136 (ier s. de notre ère). --- [GREC] : ibid., 134 (icr s.) ; Etymol. Magn., p. 388, 35 ; sur ce mot considéré au contraire comme un euphémisme, cf. Gruppe, op. I., p. 1539. --- [GREC] : Arch. ep. Mitt. 7, p. 180 ; Letronne, Inscr. de l'Égypte, I, p. 417, n° xxxvi ; épithète fréquente dans les cultes mystiques et pour les dieux guérisseurs, très usitée à Palmyre, où elle traduit un vocable des religions sémitiques.
 
 *) [GREC] : Diogen. Ath. (5e s. avant J.-C.), Erg. I, 5, dans Nauck, Trag. Gr. Fragm., 2e éd. ; Nonn., Dionys. XLI, 68. Sophia, Prometheia, Pronoia, dans Julian., I. c., pp. 166 et 179.
 
@@ -2353,7 +2353,7 @@ Procréatrice des âmes, elle en veut être la gardienne.* Elle les empêche d'e
 
 *) Julian., l. c., pp. 169D et 174 C. Mais elle est aussi celle qui envoie les spectres et les revenants, cause d'épouvante ; sur ce sens de l'épithète Antaia, cf. Gruppe, _op. l._, p. 770.
 
-*) Ibid., pp. 167 A et 176 A ; cf. supra, p. 120, n. 3. Hercule comme Dactyle Idéen : supra, p. S, n. 5. --- Uni à Zeus Papias Sôter en Bithynie, CIG. 3817. --- Tenant « le simulacre de Cybèle assise, » monnaie de Cotiaeum, Phrygie : MionnetIV, p. 274, n° 459 (Caracalla). --- Sur le sarcophage d'une prêtresse de Magna Mater, à Ostie, Hercule ramène Alceste qu'il a sauvée des enters ; Vatican, musce Chiaramonti ; cf. Helbig, Guide, I, 74. L'image est symbolique.
+*) Ibid., pp. 167 A et 176 A ; cf. supra, p. 120, n. 3. Hercule comme Dactyle Idéen : supra, p. S, n. 5. --- Uni à Zeus Papias Sôter en Bithynie, _CIG._ 3817. --- Tenant « le simulacre de Cybèle assise, » monnaie de Cotiaeum, Phrygie : MionnetIV, p. 274, n° 459 (Caracalla). --- Sur le sarcophage d'une prêtresse de Magna Mater, à Ostie, Hercule ramène Alceste qu'il a sauvée des enters ; Vatican, musce Chiaramonti ; cf. Helbig, Guide, I, 74. L'image est symbolique.
 
 *) [GREC], Orph., Hymn. XIV, 8 ; Julian., l. c., p. 180.
 
@@ -2389,7 +2389,7 @@ Attis avait à redouter en Orient la concurrence de Mên, qui était l'un des gr
 
 *) Mionnet 4, p. 41, n° 216 (L. Verus) et Suppl. 6, p. 521, nos 415, 416.
 
-*) CIG. 3886 add. Dans un hymne orphique, Prooem. ad Mus. 40, on trouve une invocation à la Mère des dieux, Attis et Mên.
+*) _CIG._ 3886 add. Dans un hymne orphique, Prooem. ad Mus. 40, on trouve une invocation à la Mère des dieux, Attis et Mên.
 
 *) Statue d'Attis, provenant du temple d'Ostie, Museo Laterano ; Helbig, Guide, 1893, I, p. 522, n° 700 ; CIL. IX, 3146, à Corfinium : « Attini... lunam argenteam... » Attis prend aussi le croissant à Pessinonte : Imhoof-Blumer, Griech. Münzen dans Abhandl. Bayer. Akad., phil.-hist. Cl., XVIII, 1890, p. 750.
 
