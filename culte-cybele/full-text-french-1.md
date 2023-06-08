@@ -70,6 +70,8 @@
 
 ## [4\.](#4-11)
 
+[Part 2](full-text-french-2.md)
+
 ---
 
 # Préliminaires.
