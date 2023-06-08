@@ -12,7 +12,7 @@
 
 ## [4\.](#4-8)
 
-## [5\.](#5-1)
+## [5\.](#5-2)
 
 # [Chapitre 7. Les Confréries.](#chapitre-7)
 
@@ -34,7 +34,7 @@
 
 ## [4\.](#4-10)
 
-## [5\.](#5-2)
+## [5\.](#5-3)
 
 # [Chapitre 9. Sanctuaires de Magna Mater à Rome et à Ostie.](#chapitre-9)
 
