@@ -10,6 +10,14 @@
 
 #### 4, Rue le Goff, 4
 
+---
+
+# [Préliminaires.](#préliminaires)
+
+## [1\.](#1)
+
+---
+
 # Préliminaires.
 
 ### Les Origines du Culte Métroaque.
