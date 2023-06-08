@@ -44,8 +44,6 @@
 
 ## [3\.](#3-11)
 
-## [4\.](#4-11)
-
 # [Chapitre 10. Le Culte en Asie Mineure à l'Époque Impériale.](#chapitre-10)
 
 ## [1\.](#1-12)
@@ -54,7 +52,7 @@
 
 ## [3\.](#3-12)
 
-## [4\.](#4-12)
+## [4\.](#4-11)
 
 # [Chapitre 11. L'Expansion du Culte en Italie et dans les Provinces.](#chapitre-11)
 
@@ -64,7 +62,7 @@
 
 ## [3\.](#3-13)
 
-## [4\.](#4-13)
+## [4\.](#4-12)
 
 # [Chapitre 12. L'Expansion du Culte dans les Provinces (_Suite_). Europe Orientale et Provinces d'Afrique.](#chapitre-12)
 
@@ -74,7 +72,7 @@
 
 ## [3\.](#3-14)
 
-## [4\.](#4-14)
+## [4\.](#4-13)
 
 # [Chapitre 13. Le Culte au 4e Siècle. --- La Résistance au Christianisme.](#chapitre-13)
 
@@ -84,7 +82,7 @@
 
 ## [3\.](#3-15)
 
-## [4\.](#4-15)
+## [4\.](#4-14)
 
 # [Conclusions](#conclusions-1)
 
