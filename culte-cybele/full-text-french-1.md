@@ -12,9 +12,9 @@
 
 ---
 
-# [Préliminaires.](#préliminaires)
+# [Préliminaires.](#préliminaires-1)
 
-## [1\.](#1)
+## [1\.](#1-1)
 
 ---
 
