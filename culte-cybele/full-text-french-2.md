@@ -12,7 +12,7 @@
 
 ## [4\.](#4-8)
 
-## [5\.](#5-3)
+## [5\.](#5-4)
 
 # [Chapitre 7. Les Confréries.](#chapitre-7)
 
@@ -34,7 +34,7 @@
 
 ## [4\.](#4-10)
 
-## [5\.](#5-4)
+## [5\.](#5-5)
 
 # [Chapitre 9. Sanctuaires de Magna Mater à Rome et à Ostie.](#chapitre-9)
 
@@ -54,13 +54,13 @@
 
 ## [4\.](#4-10)
 
-## [5\.](#5-5)
+## [5\.](#5-6)
 
-## [6\.](#6-1)
+## [6\.](#6-3)
 
-## [7\.](#7-1)
+## [7\.](#7-3)
 
-## [8\.](#8-1)
+## [8\.](#8-3)
 
 # [Chapitre 11. L'Expansion du Culte en Italie et dans les Provinces.](#chapitre-11)
 
@@ -71,6 +71,14 @@
 ## [3\.](#3-13)
 
 ## [4\.](#4-11)
+
+## [5\.](#5-7)
+
+## [6\.](#6-4)
+
+## [7\.](#7-4)
+
+## [8\.](#8-4)
 
 # [Chapitre 12. L'Expansion du Culte dans les Provinces (_Suite_). Europe Orientale et Provinces d'Afrique.](#chapitre-12)
 
