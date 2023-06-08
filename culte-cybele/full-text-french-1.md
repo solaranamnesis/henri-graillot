@@ -14,29 +14,29 @@
 
 # [Préliminaires.](#préliminaires-1)
 
-## [1\.](#1-6)
+## [1\.](#1-7)
 
 ## [2\.](#2-1)
 
 # [Chapitre 1](#chapitre-1-1)
 
-## [1\.](#1-7)
+## [1\.](#1-8)
 
 # [Chapitre 2](#chapitre-2-1)
 
-## [1\.](#1-8)
+## [1\.](#1-9)
 
 # [Chapitre 3](#chapitre-3-1)
 
-## [1\.](#1-9)
+## [1\.](#1-10)
 
 # [Chapitre 4](#chapitre-4-1)
 
-## [1\.](#1-10)
+## [1\.](#1-11)
 
 # [Chapitre 5](#chapitre-5-1)
 
-## [1\.](#1-11)
+## [1\.](#1-12)
 
 ---
 
@@ -749,6 +749,8 @@ C'est ainsi qu'à une époque où le temple du Palatin était devenu le centre d
 _Veteres Romani in constituendis religionibus castissimi cautissimique._ Aul. Gell. 2, 28, 2.
 
 1\. Adaptation du culte de la Grande Mère Idéenne à la religion romaine. Impossibilité religieuse d'éliminer entièrement le culte phrygien. Restrictions apportées à l'exercice de ce culte. Le clergé phrygien à Rome. --- 2. Substitution du rite gréco-romain au rite phrygien dans la religion officielle. Sacrifices : génisse, moretum, prémices des moissons ; rôle du prêteur urbain dans les sacrifices accomplis au nom de l'État. Jeux : représentations scéniques au Palatin, jeux du Cirque ; présidence des édiles curules. Sodalités de nobles et repas sacrés, dits mutitations. Caractères du culte officiel sous la République. --- 3. Popularité de la déesse. Les Romains en Phrygie et à Pessinonte au 2e siècle. Un grand-prêtre de Pessinonte à Rome en 651/103. Un affranchi qui se fait Galle. Galles et Bellonaires. Anarchie religieuse et extension des religions orientales au temps des guerres civiles. --- 4. Cybèle et Attis dans la littérature latine à la fin de la République. Un poète dilettante : Catulle. Un théologien : Varron. Un philosophe: Lucrèce.
+
+## 1\.
 
 « Il faut éviter, dit le jurisconsulte Paul, les cultes qui troublent les âmes des hommes.* » Le culte orgiastique* de la Grande Mère Phrygienne, avec son mysticisme inquiétant, les séductions énervantes de ses rites et le fanatisme délirant de ses prêtres, était bien de ceux-là. Le Sénat romain ne pouvait l'accepter qu'en le transformant. Mais ce serait une erreur de croire que, pour romaniser la déesse étrangère, on se hâta de l'assimiler aux divinités telluriques de la religion indigète. De telles assimilations ont une origine populaire et sont l'œuvre naïve et lente, de la masse obscure des fidèles ; ou bien elles ont une origine savante et sont l'œuvre tardive des mythologues. Si Maia est invoquée dans certaines oraisons liturgiques sous le nom de Magna Mater,* on ne pensa point à la confondre avec Cybèle, comme on avait identifié Cérès avec Demeter. La personnalité plus fortement accusée de la déesse phrygienne n'absorba point celle de la déesse latine. D'autre part, l'étrangère ne perdit pas son nom, comme Demeter, le jour où Rome adopta son culte ; elle resta l'Idéenne en devenant la Palatine. Si poètes et savants identifient volontiers Cybèle, Ops et Tellus,* chacune de ces déesses continue, durant tout le paganisme, à recevoir un culte particulier ; on n'immole pas à la Mère des Dieux la truie consacrée à Maia, à Ops, à Cérès. Le syncrétisme n'a donc rien à voir avec les préoccupations du Sénat pour soumettre le culte métroaque aux exigences de la loi et l'approprier à l'organisme de la cité romaine. Le souci de maintenir dans son intégrité la tradition nationale se manifeste : 1° par l'élimination des éléments orgiastiques du culte ; 2° en conséquence, par la substitution du rite gréco-romain au rite oriental dans la religion officielle ; 3° par la création de sodalités recrutées uniquement dans la classe dirigeante, qui reste ainsi maîtresse du culte nouveau.
 
