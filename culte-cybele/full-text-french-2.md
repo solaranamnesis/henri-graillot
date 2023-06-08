@@ -1,4 +1,92 @@
+---
+
 [Part 1](full-text-french-1.md)
+
+# [Chapitre 6. Le Clergé et le Personnel des Temples.](#chapitre-6)
+
+## [1\.](#1-7)
+
+## [2\.](#2-7)
+
+## [3\.](#3-7)
+
+## [4\.](#4-7)
+
+# [Chapitre 7. Les Confréries.](#chapitre-7)
+
+## [1\.](#1-8)
+
+## [2\.](#2-8)
+
+## [3\.](#3-8)
+
+## [4\.](#4-8)
+
+# [Chapitre 8. Les Galles.](#chapitre-8)
+
+## [1\.](#1-9)
+
+## [2\.](#2-9)
+
+## [3\.](#3-9)
+
+## [4\.](#4-9)
+
+# [Chapitre 9. Sanctuaires de Magna Mater à Rome et à Ostie.](#chapitre-9)
+
+## [1\.](#1-10)
+
+## [2\.](#2-10)
+
+## [3\.](#3-10)
+
+## [4\.](#4-10)
+
+## [5\.](#5-1)
+
+# [Chapitre 10. Le Culte en Asie Mineure à l'Époque Impériale.](#chapitre-10)
+
+## [1\.](#1-11)
+
+## [2\.](#2-11)
+
+## [3\.](#3-11)
+
+## [4\.](#4-11)
+
+# [Chapitre 11. L'Expansion du Culte en Italie et dans les Provinces.](#chapitre-11)
+
+## [1\.](#1-11)
+
+## [2\.](#2-11)
+
+## [3\.](#3-11)
+
+## [4\.](#4-11)
+
+# [Chapitre 12. L'Expansion du Culte dans les Provinces (_Suite_). Europe Orientale et Provinces d'Afrique.](#chapitre-12)
+
+## [1\.](#1-11)
+
+## [2\.](#2-11)
+
+## [3\.](#3-11)
+
+## [4\.](#4-11)
+
+# [Chapitre 13. Le Culte au 4e Siècle. --- La Résistance au Christianisme.](#chapitre-13)
+
+## [1\.](#1-11)
+
+## [2\.](#2-11)
+
+## [3\.](#3-11)
+
+## [4\.](#4-11)
+
+# [Conclusions](#conclusions-1)
+
+---
 
 # Chapitre 6
 
