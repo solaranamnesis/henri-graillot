@@ -56,11 +56,11 @@
 
 ## [5\.](#5-6)
 
-## [6\.](#6-3)
+## [6\.](#6-2)
 
-## [7\.](#7-3)
+## [7\.](#7-2)
 
-## [8\.](#8-3)
+## [8\.](#8-2)
 
 # [Chapitre 11. L'Expansion du Culte en Italie et dans les Provinces.](#chapitre-11)
 
@@ -74,11 +74,11 @@
 
 ## [5\.](#5-7)
 
-## [6\.](#6-4)
+## [6\.](#6-3)
 
-## [7\.](#7-4)
+## [7\.](#7-3)
 
-## [8\.](#8-4)
+## [8\.](#8-3)
 
 # [Chapitre 12. L'Expansion du Culte dans les Provinces (_Suite_). Europe Orientale et Provinces d'Afrique.](#chapitre-12)
 
