@@ -12,13 +12,13 @@
 
 ---
 
-# [Préliminaires. Les Origines du Culte Métroaque.](#préliminaires-1)
+# [Préliminaires. Les Origines du Culte Métroaque.](#préliminaires)
 
 ## [1\.](#1-6)
 
 ## [2\.](#2-6)
 
-# [Chapitre 1. L'Introduction du Culte à Rome.](#chapitre-1-1)
+# [Chapitre 1. L'Introduction du Culte à Rome.](#chapitre-1)
 
 ## [1\.](#1-7)
 
@@ -28,7 +28,7 @@
 
 ## [4\.](#4-7)
 
-# [Chapitre 2. Le Culte à Rome sous la République.](#chapitre-2-1)
+# [Chapitre 2. Le Culte à Rome sous la République.](#chapitre-2)
 
 ## [1\.](#1-8)
 
@@ -38,7 +38,7 @@
 
 ## [4\.](#4-8)
 
-# [Chapitre 3. Le Culte Public sous L'Empire. Fêtes Phrygiennes du Printemps à Rome.](#chapitre-3-1)
+# [Chapitre 3. Le Culte Public sous L'Empire. Fêtes Phrygiennes du Printemps à Rome.](#chapitre-3)
 
 ## [1\.](#1-9)
 
@@ -48,7 +48,7 @@
 
 ## [4\.](#4-9)
 
-# [Chapitre 4. Tauroboles et Mystères. Diffusion du Taurobole au 2e Siècle.](#chapitre-4-1)
+# [Chapitre 4. Tauroboles et Mystères. Diffusion du Taurobole au 2e Siècle.](#chapitre-4)
 
 ## [1\.](#1-10)
 
@@ -60,7 +60,7 @@
 
 ## [5\.](#5-1)
 
-# [Chapitre 5. La Doctrine Métroaque au 3e Siècle. Cybèle et Attis Dieux Tout-Puissants.](#chapitre-5-1)
+# [Chapitre 5. La Doctrine Métroaque au 3e Siècle. Cybèle et Attis Dieux Tout-Puissants.](#chapitre-5)
 
 ## [1\.](#1-11)
 
