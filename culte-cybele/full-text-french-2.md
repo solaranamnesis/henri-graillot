@@ -454,13 +454,13 @@ Un très grand nombre de prêtresses sont de condition libertine, et beaucoup so
 
 Il était municipal et soumis aux mêmes conditions que le sacerdoce des hommes. En Italie et en Gaule, l'élection doit être aussi ratifiée par la chancellerie du 15virat. La fonction n'est pas à vie, mais peut devenir perpétuelle par décret spécial du conseil. Elle n'est pas incompatible avec d'autres sacerdoces. Les insignes de la prêtresse étaient-ils les mêmes que ceux du prêtre ? Nous possédons l'effigie de Laberia Felicla, qui fut _Sacerdos Maxima_ de Rome.* Mais la tête est une restauration ; nous voyons seulement que des bandelettes à perles fuselées tombaient sur les épaules. Laberia est revêtue de la tunique à manches et de la palla, relevée sur le derrière de la tête en guise de voile. Un buste barbu de Zeus Idéen forme, entre les seins, le pendentif d'un collier.* La main droite tient la patère au-dessus d'un petit autel de Zeus,* et la main gauche une guirlande de chêne. Nous savons par ailleurs que les prêtresses portaient des couronnes et que leurs robes étaient blanches.*
 
-*) Musée du Vatican. Visconti, Museo Pio-Clementino, pi. xvm, et p. 101 ss. Le restaurateur a changé les bandelettes en tresses.
+*) Musée du Vatican. Visconti, _Museo Pio-Clementino_, pl. 18, et p. 101 ss. Le restaurateur a changé les bandelettes en tresses.
 
-*) Cf. des plaques d'or à l'effigie de Déméter et de Corè, cousues sur le vêtement d'une prêtresse de Déméter : C. r. Acad. S. Pétersbourg, 1865, p. 49 ss, et Atlas, pl. II, 7-9.
+*) Cf. des plaques d'or à l'effigie de Déméter et de Corè, cousues sur le vêtement d'une prêtresse de Déméter : _C. r. Acad. S. Pétersbourg_, 1865, p. 49 ss, et _Atlas_, pl. 2, 7-9.
 
 *) L'aigle est sculpté sur l'autel rond (cf. un aigle sur le tombeau de la prêtresse Galena) ; la guirlande de chêne paraît également se rapporter au culte de Jupiter.
 
-*) Cf. les prêtresses d'Artémis et d'Athéna (Bérécynthienne) à Ancyre : Acta Sanctorum, mai IV, p. 156 ; Pio Franchi de'Cavalieri, I martin di S. Teodoto e di S. Ariadne dans Stiuli e iesii, VI, Roma, 1901, p. 72.
+*) Cf. les prêtresses d'Artémis et d'Athéna (Bérécynthienne) à Ancyre : _Acta Sanctorum_, mai 4, p. 156 ; Pio Franchi de' Cavalieri, _I martiri di S. Teodoto e di S. Ariadne_ dans _Studi e testi_, 6, Roma, 1901, p. 72.
 
 Quelles étaient leurs attributions cultuelles ? La dualité du sacerdoce correspondait à la dualité divine, représentée à la fois par deux images et par deux autels. Mais, dans les sanctuaires, la place d'honneur est réservée à l'image de la déesse ; l'autel majeur est toujours celui de Cybèle. Il semblerait donc que de la prédominance de la déesse dût résulter celle du clergé féminin. Peut-être, en effet, les fonctions des prêtresses étaient-elles encore les plus importantes dans les Orgéons de l'âge hellénique. Dans la religion phrygio-romaine, les prêtresses n'ont rang qu'après les prêtres ; et leurs fonctions paraissent être secondaires.* Comme les autres femmes, elles manifestent une vénération toute particulière pour le jeune et malheureux Attis. Volontiers elles le nomment le premier dans les formules dédicatoires ; et la seule statue que nous voyons consacrer par une prêtresse est une image d'Attis.* Elles ont à remplir un office liturgique auprès de Zeus Idéen, le dieu Père, auquel on rendait aussi un culte. Dans les sacrifices sanglants, elles étaient sans doute chargées de présider à l'immolation des animaux femelles ; car les portions non brûlées de ces victimes leur sont réservées, tandis que les prêtres reçoivent une part des animaux mâles. Elles participent aux tauroboles et aux crioboles, aux côtés du prêtre qui dirige la cérémonie ; mais on ne les voit jamais présider elles-mêmes.* Elles offrent et accomplissent des tauroboles, isolément ou à deux, soit pour obéir à la déesse, soit pour fêter leur avènement au sacerdoce ou leur promotion au grade supérieur.* Parfois la première offre le sacrifice, et la seconde dédie l'autel commémoratif. Était-ce pour elles une obligation de recevoir le sacrement ? En 383, la Sacerdos Maxima est baptisée pour la seconde fois.
 
@@ -468,17 +468,17 @@ Quelles étaient leurs attributions cultuelles ? La dualité du sacerdoce corres
 
 *) V. à Bénévent, Corfinium et Formies.
 
-*) _CIL._ IX, 1538, un prêtre praeit, les deux prêtresses et un autre prêtre iradunt ; 1539, une prêtresse dédie l'autel taurobolique ; 1540, prêtre et prêtresse Iradunt ; 1541, la première prêtresse tradil, la seconde dédie l'autel : 1542, la première tradil ; X, 4726 et 6075, une prêtresse facit.
+*) _CIL._ 9, 1538, un prêtre _praeit_, les deux prêtresses et un autre prêtre _tradunt_ ; 1539, une prêtresse dédie l'autel taurobolique ; 1540, prêtre et prêtresse _tradunt_ ; 1541, la première prêtresse _tradit_, la seconde dédie l'autel : 1542, la première _tradit_ ; 10, 4726 et 6075, une prêtresse _facit_.
 
-*) Cf. _CIA._ II, 622, décret des Orgéons du Pirée en l'honneur d'une prêtresse (217 ou 216 av. J.-C.) : il y est question des [GREC] ou sacrifices d'entrée en fonctions.
+*) Cf. _CIA._ 2, 622, décret des Orgéons du Pirée en l'honneur d'une prêtresse (217 ou 216 av. J.-C.) : il y est question des [GREC] ou sacrifices d'entrée en fonctions.
 
 Leur rôle paraît être beaucoup plus considérable dans les mystères que dans le culte public. Elles sont restées les Abeilles, _Melissae_,* qui nourrissent du miel de la pure doctrine les néophytes. Autrement dit, ce sont elles qui dirigent, en principe, les exercices préparatoires à l'initiation ; peut-être même président-elles seules à certaines cérémonies d'initiation.* Ce sont aussi les prêtresses qui disposent les trônes sacrés, pour la cérémonie d'intronisation des mystes, de même qu'elles dressent le lit funéraire d'Attis, après sa mort, et son lit hiérogamique, après sa résurrection.*
 
-*) Lactant., Div. Inst. I, 22, 19 : « adhuc Melissae nuncupanlur ».
+*) Lactant., _Div. Inst._ 1, 22, 19 : « adhuc Melissae nuncupantur. »
 
-*) Cf. un règ lement relatif au culte métroaque, par les Samicns de Minoa (Amorgos) ; la prêtresse, élue pour dix ans, préside aux initiations et fournit les victimes : Delamarre dans lier, archrnl. Is96. II. p. 73.
+*) Cf. un règlement relatif au culte métroaque, par les Samiens de Minoa (Amorgos) ; la prêtresse, élue pour dix ans, préside aux initiations et fournit les victimes : Delamarre dans _Rev, archéol._ 1896, 2, p. 73.
 
-*) V. supra, p. 183 n. 4 ; CIA., l. c., prêtresse dressant la « Klinè » pour les Attideia. Don d'un lit et de cathèdres à la Mêter, à Cliios : Michel, Rec. d'inscr. gr. 1116.
+*) V. supra, p. 183 n. 4 ; _CIA._, _l. c._, prêtresse dressant la « Klinè » pour les Attideia. Don d'un lit et de cathèdres à la Mêter, à Chios : Michel, _Rec. d'inscr. gr._ 1146.
 
 Enfin elles ont à parer les images saintes et à veiller à l'entretien du mobilier sacré. Si l'on choisissait des femmes riches, c'était avec l'espoir quelles seraient les bienfaitrices des dieux et du sanctuaire. Les municipalités leur savaient gré de leur « piété magnifique » et les encourageaient en leur accordant la perpétuité du sacerdoce, ou un décret d'honneur, voire même une statue.* Telle prêtresse donne à sa Dame des candélabres neufs ; un autre fait restaurer et dorer la statue de la Grande Mère, dorer la chevelure d'Attis et réparer une image de Bellone ; une troisième embellit le sanctuaire ou l'image cultuelle d'ex-voto en or.* Leur générosité s'étend aux confréries. Une inscription de Reggio rappelle la munificence de deux prêtresses à l'égard des Dendrophores, sous Vespasien. Sophè, prêtresse romaine, construit à ses frais un monument destiné aux Dendrophores de la capitale.
 
@@ -490,107 +490,107 @@ Enfin elles ont à parer les images saintes et à veiller à l'entretien du mobi
 
 Prêtres et prêtresses ne constituent pas à eux seuls tout le clergé de la Grande Mère. Il existe encore un personnel auxiliaire qui n'a pas droit au même titre ni aux mêmes privilèges, qui n'exerce pas le sacerdoce, mais dont la présence est nécessaire à l'accomplissement intégral du sacerdoce. Ce sont des diacres et des diaconesses, dont les fonctions ne sont pas toujours faciles à déterminer.* A Pouzzoles et à Lisbonne, deux femmes sont Kernophores.* Le « Kernos, » vase rituel, avait un rôle considérable dans les initiations et les tauroboles. On le portait sur la tête, comme le van d'Éleusis, en exécutant des pas rythmés autour des autels et devant les dieux. Cet office pouvait être accompli, en Orient, par des zacores des deux sexes. En Occident, il était confié, ce semble, à des jeunes filles. Consacrées de bonne heure à la Mère des Dieux, celles-ci ont voulu rester ses dévouées servantes ; la Kernophorie leur permet de vivre plus près de la Dame. Elles n'ont pas rang de prêtresses. Mais, en recevant l'instruction religieuse et en apprenant les rites, elles devenaient aptes aux fonctions sacerdotales.
 
-*) Cf. des « diaconoi » dans un collège de Cyziquc, consacré à la Mêter Tolupiané : Michel, op. l. 1226.
+*) Cf. des « diaeonoi » dans un collège de Cyzique, consacré à la Mêter Tolupiané : Michel, _op. l._ 1226.
 
-*) _CIL._ X, 1803 : « D. M. Hcriae Victorinae caernophoro M. Herius Valerianus iiliae dulcissimae» ; II, 179 : « Matri Deum Mag(nae) Ideae Phryg(iae) Fl(avia Tychc cernophor 'us) etc., » dédicace taurobolique ? Au temps des Attalides, Xicander, Alexipharm. 217, parle d'une zacore kernophore attachée à l'autel de Rhéa ; il semble, d'après le v. 218, que le 9° ou 20° jour de chaque mois elle assistait à une procession orgiastique : cf. Schol. vetera, ad l. c., éd. Abel et Vdri, Budapest!), 1891. D'après le scholiaste, la kernophore est une prêtresse ([GREC]) chargée de porter les cratères mystiques sur lesquels ou place des lampes. Les vierges kernophorcs seraient donc équivalentes aux vierges lampadophores. Autres types de Kernophorie, v. supra, p. 170.
+*) _CIL._ 10, 1803 : « D. M. Heriae Victorinae caernophoro M. Herius Valerianus filiae duleissimae » ; 2, 179 : « Matri Deum Mag(nae) Ideae Phryg(iae) Fl(avia) Tyche cernophor(us) etc., » dédicace taurobolique ? Au temps des Attalides, Nieander, _Alexipharm._ 217, parle d'une zacore kernophore attachée à l'autel de Rhéa ; il semble, d'après le v. 218, que le 9e ou 20e jour de chaque mois elle assistait à une procession orgiastique : cf. _Schol. vetera_, ad _l. c._, éd. Abel et Vari, Budapesth, 1891. D'après le scholiaste, la kernophore est une prêtresse ([GREC]) chargée de porter les cratères mystiques sur lesquels ou place des lampes. Les vierges kernophores seraient donc équivalentes aux vierges lampadophores. Autres types de Kernophorie, v. supra, p. 170.
 
 Les actes rituels s'accompagnent de cantiques en langue grecque* ; car le grec est ici la langue d'église. Ce sont en général de longues litanies, qui énumèrent les noms multiples de la divinité, ses attributs et les manifestations de sa puissance.* Ce sont aussi des thrènes de deuil qui pleurent la passion et la mort d'Attis, ou des hymnes de joie qui saluent et glorifient sa résurrection. A chaque fête correspondait une série de chants. Saint Augustin nous a conservé le souvenir de ceux qu'il entendit pendant la procession du Bain ; on y célébrait en termes peu chastes la hiérogamie de Cybèle et Attis. Il traite de vils comédiens les chantres qui précédaient la litière de la Dame, évidemment parce qu'ils mimaient les paroles de leurs cantiques. Mais ce n'étaient point, en général, des gens recrutés pour la circonstance. Le service divin comprenait, au moins dans les principaux sanctuaires, des chantres attitrés, qui appartenaient au monde des confrères et des dévots. On les appelait les Hymnologues.* A Rome ce personnel était nombreux. Le maître de chapelle s'intitule « premier Hymnologue public de la Mère des Dieux Idéenne et d'Attis.* » Celui que nous connaissons, Ti. Claudius Velox, est un affranchi impérial ou descend d'un affranchi de la maison claudienne. Ce personnage est sans famille ; la chapelle se recrutait peut-être parmi les castrats. Ti. Claudius Glyptus, qui se déclare Hymnologue « de Campo Caelemontano,* » faisait-il aussi partie de cette _Schola Cantorum_ ? Elle aurait donc eu son siège sur le Caelius, dans le voisinage de la « Schola » des Dendrophores, et peut-être dans le même groupe de constructions. Les Hymnologues, vêtus de la tunique, portaient dans les fêtes et les processions la couronne de laurier ; ils tenaient une palme.*
 
-*) Dion. Hal. II, 19, 4 : [GREC]. Sur la langue liturgique : Serv. ad Georg. 11,391 ; cf. supra, p. 12-4, n. 2 ; cf. des hymnes mithriaques en grec : Cumont, Mithra, I, p. n. 238.
+*) Dion. Hal. 2, 19, 4 : [GREC]. Sur la langue liturgique : Serv. ad _Georg._ 2, 394 ; cf. supra, p. 124, n. 2 ; cf. des hymnes mithriaques en grec : Cumont, _Mithra_, 1, p. n. 238.
 
-*) Cf. dans Arnob. I, il, le début d'une de ces litanies, psalmodiées «Magnac Matris in adytis » : deum propilium, deum sanclum. On retrouve ces exclamations rituelles dans tous les cultes orientaux : « Grande est Artémis d'Ephèse! Grande est Anaitis ! » Cf. Journ. of llell. SI. X, 1880, pp. 222 et 223. Unversdc Catulle, Atlis, 01, paraît être inspiré par les chants rituels : « Dea magna, dca Gghehe, Didgmei dea domina. » Un vers de Callimaque, Artem. 136, rappelle sans doute aussi d'autres cantiques : « fais paître les bœufs, porte les moutons, porte l'épi, porte la moisson. » Des fragments d'hymnes à Attis nous ont été conservés par HippolyLe, Reful. omn. haeres. V, 9 = Lgrici Gr., Bergk, 4e éd..p. 685 s ; bibliogr. dans Ilcpding, Atlis. p. 35.
+*) Cf. dans Arnob. 1, 41, le début d'une de ces litanies, psalmodiées « Magnae Matris in adytis » : _deum propitium, deum sanctum_. On retrouve ces exclamations rituelles dans tous les cultes orientaux : « Grande est Artémis d'Éphèse! Grande est Anaitis ! » Cf. _Journ. of Hell. St._ 10, 1889, pp. 222 et 226. Un vers de Catulle, _Attis_, 91, paraît être inspiré par les chants rituels : « _Dea magna, dea Cybebe, Didymei dea domina_. » Un vers de Callimaque, _Artem._ 136, rappelle sans doute aussi d'autres cantiques : « fais paître les bœufs, porte les moutons, porte l'épi, porte la moisson. » Des fragments d'hymnes à Attis nous ont été conservés par Hippolyte, _Refut. omn. haeres_. 5, 9 = _Lyrici Gr._, Bergk, 4e éd., p. 685 s ; bibliogr. dans Hepding, _Attis_, p. 35.
 
-*) Firm. Mat., Matheseos, III, 6 : « hymnologos et qui deorum laudes cum iaclantia et ostentatione decantent». Il y en avait aussi dans les cultes phéniciens, CISein. 1, p. 98. Sur les hymnodes et hymnètes des cultes grecs, cf. Poland, Gescli. d. gr. Vereinswesens, 1909, p. 46 ss.
+*) Firm. Mat., _Matheseos_, 3, 6 : « hymnologos et qui deorum laudes cum iaetantia et ostentatione decantent. » Il y en avait aussi dans les cultes phéniciens, _CISem._ 1, p. 98. Sur les hymnodes et hymnètes des cultes grecs, cf. Poland, _Gesch. d. gr. Vereinswesens_, 1909, p. 46 ss.
 
-*) _CIL._ VI, 32444. De Rossi, Inscr. christ. Urhis Romaell, i, p. 204, suppose qu'une phrase de Mallius, danssa Descr. Basil. Valicanae (12e s.) « de vatibus officia sua canentibus in Vaticano, » doit se rapporter aux liymnologues de la Mère des Dieux.
+*) _CIL._ 6, 32444. De Rossi, _Inscr. christ. Urbis Romae_ 2, 1, p. 204, suppose qu'une phrase de Mallius, dans sa _Descr. Basil. Vaticanae_ (12e s.) « de vatibus officia sua canentibus in Vaticano, » doit se rapporter aux hymnologues de la Mère des Dieux.
 
-*) _CIL._ VI, 9475 ; Dessau, dans Bullettino d. Inst., 1884, p. 155, prétend que cette inscr. ne peut se rapporter au culte métroaque, mais sans preuve.
+*) _CIL._ 6, 9475 ; Dessau, dans _Bullettino d. Inst._, 1884, p. 155, prétend que cette inscr. ne peut se rapporter au culte métroaque, mais sans preuve.
 
 *) Glyptus est ainsi représenté au-dessus de son épitaphe.
 
 Actes rituels et chants sacrés s'accompagnent de musique instrumentale.* Trois sortes d'instruments constituent la musique métroaque : la double flûte, les cymbales et le tambourin.
 
-*) Cf. J. Combarieu, Musique et magie, 1909.
+*) Cf. J. Combarieu, _Musique et magie_, 1909.
 
 Les flûtes, dont le même musicien joue à la fois, sont celles de Phrygie. La légende en attribuait l'invention soit à Hyagnis, soit à son fils Marsyas, dont elle faisait deux prêtres de Cybèle. Le mythe du flûtiste Marsyas est en rapports étroits avec celui de la déesse ; et, dans la lutte musicale du satyre contre Apollon, Cybèle prend naturellement parti pour son malheureux compatriote.* L'une de ces flûtes est droite. L'autre se recourbe au pavillon ; c'était l'_Elymos_,* désigné aussi sous le nom de _Keras (Cornu)_, à cause de sa forme.* Le son de la flûte droite, destinée au chant, était aigu et strident. Celui de la flûte d'accompagnement, à double anche, était grave, rauque, lugubre* ; les Grecs le comparaient à un grondement (_bombos_). Il convenait aux scènes de deuil. Aussi dénommait-on cet instrument « la flûte des thrènes,* » comme le gingras phénicien, qui pleurait Adonis. Les mélodies phrygiennes avaient un caractère sauvage et barbare. Soutenues par le tintement sonore des cymbales et le tambourinement sourd des tympanons, elles surexcitaient les sens et finissaient par provoquer l'extase chez les mystes* ; c'est « aux saints accents des flûtes de Phrygie » que s'opéraient les mutilations sanglantes du 24 mars. On les entendait dans toutes les cérémonies du culte, processions et sacrifices, sauf, ce semble, dans les sacrifices à Zeus Idéen.* A la procession, le _tibicen_ ou _tibico_ précède immédiatement la statue de la déesse.* Sa présence est indispensable à la célébration du taurobole ; parfois même le nom du flûtiste est inscrit sur l'autel commémoratif, avec ceux du prêtre et de la prêtresse. Rome possédait sa corporation publique de « Tibicines, » qui desservait les cultes d'État et devait être jalouse de ses droits et privilèges. Mais la Grande Mère avait exigé ses flûtistes spéciaux, virtuoses de la flûte phrygienne.* Albius Verinus, en 184, Flavius Restitutus, en 190 et encore en 197, étaient attachés au Metrôon de Lyon ; vers 209-211, le dernier paraît faire partie du personnel de Valence. Restitutus est un affranchi. En général ces musiciens sont d'origine libertine. Ils occupent une situation aisée, ont à leur tour des esclaves et des affranchis des deux sexes ; et beaucoup de prêtres les considèrent presque comme leurs égaux.
 
-*) Sur les reliefs où figure la lutte d'Apollon et de Marsyas, Cybèle est représentée à côté du Phrygien. Dans un hymne homérique, XIII, 4, elle est « celle à qui plaît le frémissement de la flûte. » Sur l'union étroite de la musique phrygienne et des letes de Me ter Oreia : Teleste de Sélinonte .vers 400 av. J.-C.) dans Athen., 626 ; Dioscorides dans Anthol. Gr., IX, 340. Pour le jeu aulélique et le mode phrygien, voir Fr. Greif, Eludes sur la musique antique, dans R. Et. Gr. XXIII. 1910, p. 4 ss. avec notes bibliographiques. D'après Strabon, XII, 8, 15, c'est aux sources du fleuve Marsyas que se récoltait le roseau le plus propre à la fabrication des anches de flûtes. La double flûte était en effet un instrument à anche et rappelait beaucoup moins la flûte moderne que le hautbois et la clarinette. Le tuyau était généralement en buis, évasé à une extrémité et terminé à l'autre par une petite embouchure dans laquelle on insérait ou contre laquelle on appliquait une languette de roseau. Les flûtes phrygiennes sont sans doute les mêmes que les flûtes « masculine et féminine » des Lydiens, Herodot. I, 17, 2.
+*) Sur les reliefs où figure la lutte d'Apollon et de Marsyas, Cybèle est représentée à côté du Phrygien. Dans un hymne homérique, 13, 4, elle est « celle à qui plaît le frémissement de la flûte. » Sur l'union étroite de la musique phrygienne et des fêtes de Meter Oreia : Teleste de Sélinonte (vers 400 av. J.-C.) dans Athen., 626 ; Dioscorides dans _Anthol. Gr._, 9, 340. Pour le jeu aulétique et le mode phrygien, voir Fr. Greif, _Études sur la musique antique_, dans _R. Et. Gr._ 23. 1910, p. 4 ss. avec notes bibliographiques. D'après Strabon, 12, 8, 15, c'est aux sources du fleuve Marsyas que se récoltait le roseau le plus propre à la fabrication des anches de flûtes. La double flûte était en effet un instrument à anche et rappelait beaucoup moins la flûte moderne que le hautbois et la clarinette. Le tuyau était généralement en buis, évasé à une extrémité et terminé à l'autre par une petite embouchure dans laquelle on insérait ou contre laquelle on appliquait une languette de roseau. Les flûtes phrygiennes sont sans doute les mêmes que les flûtes « masculine et féminine » des Lydiens, Herodot. 1, 17, 2.
 
-*) Pollux, IV, 10, 1, dit que l'elymos, en buis, est une invention des Phrygiens : [GREC] ; cf. Athen. 176 : Vanicek, Fremdwoerler, irn gr. u . lat ., s. v.
+*) Pollux, 4, 10, 1, dit que l'elymos, en buis, est une invention des Phrygiens : [GREC] ; cf. Athen. 176 : Vanicek, _Fremdwoerter, im gr. u . lat._, s. v.
 
-*) Peut-être aussi parce qu'il fut à l'origine une corne de taureau (Anthol . Gr. VI, 51, 6), ou encore par ce que son pavillon était en corne. Lucrèce, II 619 s, et Catulle, LXIV, 263 s, distinguent la flûte recourbée (cornu) et la droite (tibia.) ; cf. Hor., Od. I, 18, 13 « cornu Berecynthio » ; Ovid., Fast. IV, 181 : « inllexo Berecynthia tibia cornu » ; Metam. IV, 392 : « adunco tibia cornu » ; cf. XI, 16 et Pont. I, l, 39 ; Apul., Met. VIII, 26 : « deam cornu canens. » On appelait aussi la flûte buxus, buis: Virg., Aen. IX, 619 :« buxus.. Berecyntia Matris Idaeae» ; Stat., Theh. V, 93 et VIII, 222 : Val. Place., Argon. I, 319 ; ActaS. Symphoriani dans Ruinart, p. 71 : « perstrepentes buxos et tibias, fanatici furoris inflati insania ».
+*) Peut-être aussi parce qu'il fut à l'origine une corne de taureau (_Anthol. Gr._ 6, 51, 6), ou encore par ce que son pavillon était en corne. Lucrèce, 2 619 s, et Catulle, 64, 263 s, distinguent la flûte recourbée (_cornu_) et la droite (_tibia_) ; cf. Hor., _Od._ 1, 18, 13 « cornu Berecynthio » ; Ovid., _Fast._ 4, 181 : « inflexo Berecynthia tibia cornu » ; _Metam._ 4, 392 : « adunco tibia cornu » ; cf. 11, 16 et _Pont._ 1, 1, 39 ; Apul., _Met._ 8, 26 : « deam cornu canens. » On appelait aussi la flûte _buxus_, buis : Virg., _Aen._ 9, 619 : « buxus... Berecyntia Matris Idaeae » ; Stat., _Theb._ 5, 93 et 8, 222 : Val. Flacc., _Argon._ 1, 319 ; _Acta S. Symphoriani_ dans Ruinart, p. 71 : « perstrepentes buxos et tibias, fanatici furoris inflati insania. »
 
-*) Lucret., l. c. : « raucisonoque minanlur cornua cantu » ; Catull., I. c. : « raucisonos elïlabant cornua bombos, barbaraque horribili stridebat tibia cantu » ; cf. LXIII, 22 : «tibicen... canit Phryx... grave » ; cf. Varr. dans Serv., ad Aen. IX, 618 ; Claudian., Rapt. Proserp. II, 267 : « Mygdonio buxus circumsonat horrida cantu. » Greif, l. c., p. 11.
+*) Lucret., _l. c._ : « raucisonoque _minantur_ cornua cantu » ; Catull., _l. c._ : « raucisonos efflabant cornua _bombos_, barbaraque horribili stridebat tibia cantu » ; cf. 63, 22 : « tibicen... canit Phryx... grave » ; cf. Varr. dans Serv., ad _Aen._ 9, 618 ; Claudian., _Rapt. Proserp._ 2, 267 : « Mygdonio buxus circumsonat _horrida_ cantu. » Greif, _l. c._, p. 14.
 
-*) [GREC], Poll., l. c. ; le gingras parait avoir etc plutôt une sorte de fifre, au son nasillard et plaintif.
+*) [GREC], Poll., _l. c._ ; le gingras parait avoir etc plutôt une sorte de fifre, au son nasillard et plaintif.
 
-*) Lucret. II, 620 : « Phrygio stimulât numéro cava (ibia mentes » ; Sen., Ep. XVIII, 5, 7 : « Xec aliterconcitantur quam soient Phrygii tibicinis sono semiviri et ex imperio furentes » ; cf. Agamemn. 687 : « turritae lurba parenti | pectora rauco concita buxo | furit, ut Phrygium lugeat Attin » ; Juven., VI 311 : « tibia lumbos incitât » : Philostr., Ep. 69: (au bruit des cymbales et des flûtes) [GREC] ; Greg. Naz., Carm. histor. II, it, 7 ad Nemesium 262 (Migne, Patr. Gr. XXXVII, p. 1571) : [GREC] ; Contra Julian. I, 70 et 103: Ps. Eudoc. Violarium, p. 369(éd. Flach, 1880, p. 618), à propos des mystes de Cybèle : [GREC]. De même les Galles de Dca Syria se tailladent les chairs au son des flûtes : Luc., Peu Syr. 50.
+*) Lucret. 2, 620 : « Phrygio stimulat numero cava tibia mentes » ; Sen., _Ep._ 18, 5, 7 : « Nec aliter concitantur quam solent Phrygii tibicinis sono semiviri et ex imperio furentes » ; cf. _Agamemn._ 687 : « turritae turba parenti | pectora rauco concita buxo | furit, ut Phrygium lugeat Attin » ; Juven., 6, 314 : « tibia lumbos incitat » : Philostr., _Ep._ 69 : (au bruit des cymbales et des flûtes) [GREC] ; Greg. Naz., _Carm. histor._ 2, 2, 7 _ad Nemesium_ 262 (Migne, _Patr. Gr._ 37, p. 1571) : [GREC] ; _Contra Julian._ 1, 70 et 103 : Ps. Eudoc. _Violarium_, p. 369 (éd. Flach, 1880, p. 618), à propos des mystes de Cybèle : [GREC]. De même les Galles de Dea Syria se tailladent les chairs au son des flûtes : Luc., _Dea Syr._ 50.
 
-*) Lucien, l. c. 41. fait observer que les sacrifices de rite syrien à Zeus se font toujours avec calme et en silence, sans chants ni flûtes ; musique et cantiques ne commencent que lorsqu'on prélude aux offices de la déesse.
+*) Lucien, _l. c._ 44, fait observer que les sacrifices de rite syrien à Zeus se font toujours avec calme et en silence, sans chants ni flûtes ; musique et cantiques ne commencent que lorsqu'on prélude aux offices de la déesse.
 
-*) Ovid., Ponl. 1, 1, 39 s.
+*) Ovid., _Pont._ 1, 1, 39 s.
 
-*) _CIL._ XIV, 408 : « M. Cutius Rusticus, tibico M. D. M. Portus Aug(usti et Traiani Felicis, fecit sibi et Cutiae Theodoteet libertis Iibertabusq, etc. » il partage cet emplacement funéraire avec une prêtresse du même sanctuaire): XIII. 1752-54 : « tibicine Fl. lteslituto » ; XII, 1745 : « C. [FI. Restit] utus [tibicen] » ; 1782 : « tibicine Albio Yerino ».
+*) _CIL._ 14, 408 : « M. Cutius Rusticus, tibico M. D. M. Portus Aug(usti et Traiani Felicis, fecit sibi et Cutiae Theodote et libertis libertabusq, etc. » il partage cet emplacement funéraire avec une prêtresse du même sanctuaire) : 13, 1752-54 : « tibicine Fl. Restituto » ; 12, 1745 : « C. [Fl. Restit] utus [tibicen] » ; 1782 : « tibicine Albio Verino. »
 
 Les cymbales d'airain passaient aussi pour être d'invention phrygienne ; elles étaient, disait-on, « sous la tutelle » de la Mère des Dieux.* L'iconographie religieuse en fait un attribut d'Attis et des Corybantes. La symbolique les désigne comme l'emblème des deux hémisphères célestes, qui enveloppent la Terre Mère. A vrai dire, on s'en servait dans la plupart des cultes mystiques, ceux de Dionysos, de Déméter, d'Artémis, d'Héra Syria. Les Grecs en connaissaient l'usage rituel avant le 5e siècle. Car le jeu des cymbales est une pratique de la démonologie primitive. Leur tintement éloigne les mauvais esprits.* On leur attribue donc une vertu de purification et de sanctification. A l'époque romaine, bien qu'on en voie aux mains de toutes les danseuses et de toutes les sorcières, elles ont conservé leur rôle liturgique. On en joue aux sacrifices métroaques. Elles scandent les prières, les cantiques et les danses.* Elles retentissent pendant toute la durée du deuil, aux fêtes de mars. Non seulement elles se font entendre pendant la célébration des mystères, mais elles deviennent les coupes mystiques où boivent les initiés. Aussi consacrait-on souvent des cymbales en ex-voto. Les plus anciennes de ces cymbales votives proviennent d'Olympie, où elles furent découvertes sous un autel archaïque de la Mère des Dieux. Celle qui provient de Grozon, dans le Jura, et qui porte la dédicace _Matri Deum_, témoigne de la persistance de cette coutume.* En Orient, les mystes Corybantes étaient-ils les cymbaliers du culte* ? En Occident, cette fonction est occupée par des femmes, _cymbalistriae_. Il y en avait souvent plusieurs ; mais il existait entre elles la même hiérarchie que dans l'ordre sacerdotal. En 228, Concordia Januaria est seconde cymbalière du temple de Bénévent.* C'est une affranchie de la colonie. Elle a participé à un criobole offert par l'augure municipal et les deux prêtresses de la Bérécynthienne ; elle s'est chargée de dédier l'autel commémoratif.
 
-*) Serv., ad Georg. IV, 64: « quae in Matris tutela sunt. quod similia sint hemicyclis coeli quibus cingitur terra quae est mater deorum » : Propert. IV, 7, 61 : « aéra rotunda Cybelles » : Claudian., De VI cons. honor. 259 : « Cybèleia aéra. » Lampadius (Ad. Lampe ; : De Cymhalis veteruniet praesertim de usu cymhalorum frequentissimo in sacris M. Matris, lib. III, Utrecht. 1703, in-12 ; Pottier, dans Dar. et Saglio, Dict. des antiq., s. v. Cymhalum.
+*) Serv., ad _Georg._ 4, 64 : « quae in Matris tutela sunt. quod similia sint hemicyclis coeli quibus cingitur terra quae est mater deorum » ; Propert. 4, 7, 61 : « aera rotunda Cybelles » ; Claudian., _De Vl. cons. honor._ 259 : « Cybeleia aera. » Lampadius (Ad. Lampe) : _De Cymbalis veterum et praesertim de usu cymbatorum frequentissimo in sacris M. Matris, lib. 3_, Utrecht, 1703, in-12 ; Pottier, dans Dar. et Saglio, _Dict. des antiq._, s. v. _Cymbalum_.
 
 *) De là, l'usage primitif des cloches.
 
-*) Cf. Propert. III, 17, 36 : « tundetad Idaeos cymbala rauca choros ».
+*) Cf. Propert. 3, 17, 36 : « tundet ad Idaeos cymbala rauca choros. »
 
-*) Babelon et Blanchet, Catal. des bronzes de la Bibl. Nat., 2298.
+*) Babelon et Blanchet, _Catal. des bronzes de la Bibl. Nat._, 2298.
 
-*) Cf. Virg., Aen. 111,111 : « Corybantia aéra» ; Hor., Od. I, 16, 8 : « geminant Corybantes aera ».
+*) Cf. Virg., _Aen._ 3, 111 : « Corybantia aera » ; Hor., _Od._ 1, 16, 8 : « geminant Corybantes aera. »
 
-*) _CIL._ IX, 1538 : n cymbalistria loco secundo. » A Trieste, V, 519, Secunda, cymbalistria, s'associe au prctre et à l'aedituus pour dédier un autel.
+*) _CIL._ 9, 1538 : « cymbalistria loco secundo. » A Trieste, 5, 519, Secunda, cymbalistria, s'associe au prêtre et à l'aedituus pour dédier un autel.
 
 Le tambourin ou tympanon, cercle d'airain couvert de peau tendue, est l'attribut propre de Cybèle.* Il y a peu d'images de la déesse qui ne la représentent munie du tympanon. Les symbolistes ne manquèrent point d'y voir l'emblème du disque terrestre.* On le croyait originaire de Phrygie : « prenez le tympanon dont on se sert au pays des Phrygiens, création de Rhéa. » D'après une légende hellénique, antérieure au 5e siècle, ce fut une invention des Corybantes qui protégeaient l'enfance de Zeus ; « ils en mêlèrent le bruit aux doux accents de la flûte phrygienne ; ils le placèrent dans les mains de Rhéa pour accompagner les cris des Bacchantes.* » Rhéa le donne ensuite aux satyres de Dionysos ; autrement dit, il passa du culte métroaque dans le culte bachique. Un mythe, qui paraît être plus purement phrygien, prétend que la déesse elle-même l'inventa pour accompagner ses danses alors que, tout enfant, elle jouait sur le mont Cybèle.* Il est l'instrument favori des Galles, « qui frappent à les rompre sur les beaux tambourins, » et qui parfois les égarent dans les tavernes où ils s'enivrent.* Dans le culte phrygio-romain, l'emploi est tenu par des femmes : _tympanistriae_. L'une d'elles, à Bénévent, en 228, est une affranchie de ville ; elle élève un autel taurobolique à l'occasion d'un sacrifice offert par la première prêtresse.* Une autre, à Rome, doit être une affranchie de la maison impériale.* Leurs fonctions, comme celles des cymbalistries, supposent toute une éducation mimétique et orchestique ; car ces musiciennes exécutent, en jouant, une sorte de danse rituelle.* Le tympanon, fabriqué peut-être avec la peau des taureaux sacrifiés,* généralement décoré de symboles mystiques et magiques,* avait un rôle analogue à celui des cymbales. Il possédait les mêmes vertus. Jadis il passait pour faire fuir les fauves dans les montagnes.* On en jouait pour écarter les démons malfaisants. Son bruit sourd imite le tonnerre* et s'associe au grondement sinistre de la flûte courbe, tandis que les sonorités éclatantes des cymbales s'unissent à la chanson perçante de la flûte droite. Dans les initiations, il se transforme en patère mystique, et l'on y dépose les mets sacrés dont il faut avoir goûté pour entrer dans la communion des fidèles. Peut-être s'en servait-on aussi comme de gong pour signaler l'heure des offices.* En tout cas, à l'époque impériale, il n'est plus question du rhombos, disque de cuivre que l'on frappait avec le fouet garni d'osselets. Il semble aussi que les crotales ou castagnettes, qui continuent à figurer dans les cultes syriens, aient disparu du culte phrygien. Quant à la syrinx à sept tuyaux, ou flûte de Pan, elle apparaît aussi souvent dans les mains d'Attis que le tympanon dans celles de Cybèle.* On la voit souvent représentée, sur les autels tauroboliques, à côté des flûtes et des cymbales. L'aulète en jouait-il dans certaines cérémonies ? Aucun texte, toutefois, ne permet d'affirmer qu elle ait été d'un usage rituel.
 
-*) Hymn. orph. XIII, 3 et XXVI, 11 : Cybèle est la déesse [GREC] ; Catull. Atlis, 9 : « typanuin tuum, Cybèle, tua, mater, initia » ; Virg., Aen. IX, 619 : « tympana... Malrisldaeae » ; Mart. Cap., II, 170: « tympana Cybcleia». On voit aussi le tympanon entre les mains d'Attis.
+*) _Hymn. orph._ 13, 3 et 26, 11 : Cybèle est la déesse [GREC] ; Catull. _Attis_, 9 : « typanum tuum, Cybele, tua, mater, initia » ; Virg., _Aen._ 9, 619 : « tympana... Matris Idaeae » ; Mart. Cap., 2, 170: « tympana Cybeleia. » On voit aussi le tympanon entre les mains d'Attis.
 
-*) Augustin,, Civ. Dei VII, 24 ; Isidor., Elym. VIII, 11, 61 (387).
+*) Augustin., _Civ. Dei_ 7, 24 ; Isidor., _Etym._ 8, 11, 61 (387).
 
-*) Eurip., Bacch. 58 s, 120 ss.
+*) Eurip., _Bacch._ 58 s, 120 ss.
 
-*) Diod. Sic. III, 58. Elle aurait iuveiilé de même cymbales et syrinx.
+*) Diod. Sic. 3, 58. Elle aurait inventé de même cymbales et syrinx.
 
-*) Anth. Gr., VIT, 709 ; Juv. VIII, 176,
+*) _Anth. Gr._, 7, 709 ; Juv. 8, 176,
 
-*) _CIL._ IX, 1542 ; elle senomme Trebulana Iuslina ; plusieurs villes d'Italie portaient le nom de Trebula. Elle figure sur un autre autel, daté de 228.
+*) _CIL._ 9, 1542 ; elle se nomme Trebulana Iustina ; plusieurs villes d'Italie portaient le nom de Trebula. Elle figure sur un autre autel, daté de 228.
 
-*) _CIL._ VI, 2264 : « Aeliae Receptae tympanistriae M, U. M. I. ».
+*) _CIL._ 6, 2264 : « Aeliae Receptae tympanistriae M. D. M. I. »
 
-*) Cf. Isidor., Elym ., III, 22, 11 (141): « cymbala cum ballematia simul percutiuntur ».
+*) Cf. Isidor., _Etym._, 3, 22, 11 (141) : « cymbala cum ballematia simul percutiuntur. »
 
-*) Cf. Phaedr. IV, 2. Asin. et Galli : « detraeta pelle sibi fecerunt tympana ».
+*) Cf. Phaedr. 4, 2. _Asin. et Galli_ : « detracta pelle sibi fecerunt tympana. »
 
-*) Sur celui que tient la déesse, rosace (statuette au Musée de Klagenfurt), lion (sarcophage de Sidon, représentant la lutte d'Apollon et de Marsyas ; camée, v. supra p. 112). Cf. Sieroszewski, Du chamanisme d'après les croyances des Yakoutes, dans Rev. Hist. Religions, 1902, II. p. 322 : « sur la peau de leur tambourin sont dessinés des signes mystérieux en rouge et en noir ».
+*) Sur celui que tient la déesse, rosace (statuette au Musée de Klagenfurt), lion (sarcophage de Sidon, représentant la lutte d'Apollon et de Marsyas ; camée, v. supra p. 112). Cf. Sieroszewski, _Du chamanisme d'après les croyances des Yakoutes_, dans _Rev. Hist. Religions_, 1902, 2. p. 322 : « sur la peau de leur tambourin sont dessinés des signes mystérieux en rouge et en noir. »
 
-*) C'est le thème de toute une série d'épigrammes de l'Anthologie grecque: VI, 217 (attrib. à Simonide le jeune par Reiske, à Leonidas de Tarentc par Bergk), 218 (Alcée), 219 (Antipater), 220 (Dioscoride), 237 (Antistios).
+*) C'est le thème de toute une série d'épigrammes de l'Anthologie grecque : 6, 217 (attrib. à Simonide le jeune par Reiske, à Leonidas de Tarente par Bergk), 218 (Alcée), 219 (Antipater), 220 (Dioscoride), 237 (Antistios).
 
-*) Lucret. II, 618: « tympana tenta tenant palmis » ; Varr., Eumen. 35 (132, XVI) : « typana tonimus » ; cf, Catull., Attis, 22 : « tympana reboant ».
+*) Lucret. 2, 618: « tympana tenta tonant palmis » ; Varr., _Eumen._ 35 (132, 16) : « typana tonimus » ; cf, Catull., _Attis_, 22 : « tympana reboant. »
 
-*) Cf. Virg., Aen. IX, 619.
+*) Cf. Virg., _Aen._ 9, 619.
 
-*) Hérodote, I, 17, 2,1a signale comme un instrument lydien.
+*) Hérodote, 1, 17, 2, la signale comme un instrument lydien.
 
 Le service régulier du temple exige, en outre, un personnel de bedeaux et de sacristains. Parmi ces bas officiers d'église, les plus importants sont les _Apparatores Matris Deum_ ou _Apparatores Religionis_.* Leur nom est admis à figurer sur les autels tauroboliques après ceux des prêtres, des prêtresses et du joueur de flûte. Ces « ordonnateurs du culte» ont la garde de l'_Apparatorium_, sacristie où l'on enferme les accessoires si nombreux dans les religions mystiques. Leur rôle devait être considérable aux fêtes de mars. Il leur fallait organiser les cérémonies publiques et les cérémonies secrètes, faire respecter le protocole liturgique, régler l'ordre et la marche des processions. D'autre part, nul sacrifice ne pouvait être offert sans leur participation. Les tauroboles surtout, avec la multiplicité de leurs rites, supposaient un appareil fort compliqué ; c'était la tâche du cérémoniaire de veiller à leur accomplissement normal et intégral. Aussi les grands sanctuaires comptaient-ils plusieurs de ces personnages. Dans un temple voisin de Marseille il y en avait deux, ce semble, et qui étaient des esclaves. A Ostie, on en connaît un qui est l'affranchi du prêtre ; il jouit d'une certaine considération auprès des fidèles, puisqu'il se permet d'offrir des cadeaux à la confrérie des Dendrophores. Quel était l'insigne de ces maîtres de cérémonie ? Comme les Rabdophores des cultes grecs, ils portaient sans doute un sceptre, dont la destination primitive fut d'écarter les mauvais génies.*
 
-*) _CIL._ XIV, 53 : « C. Atilius, Bassî sacerdotis lib(ertus), Félix, apparator M. D M., signuni Silvani dendrophoris Osticnsibus d. d. » ; XII, 105, add., p. S12 : « Matris Deum Magnac Idaeae Palatinae eiusdem religionis adparator(es ?) Caius (ou Navius, peut-être Catius ? nom fréquent en Narbonnaiseï, Ianuarius » ; XIII, 1 751 : « apparatore Vireio Hermetione » (taurobole à Lyon en 197) ; cf. XII, 1567, à Die, triple taurobole « cum suis hostis et apparam(enlis) omnibUist. » Un appnralorinm deMithra à Siscia, III, 3960.
+*) _CIL._ 14, 53 : « C. Atilius, Bassi sacerdotis lib(ertus), Felix, apparator M. D. M., signum Silvani dendrophoris Ostiensibus d. d. » ; 12, 403, add., p. 812 : « Matris Deum Magnae Idaeae Palatinae eiusdem religionis adparator(es ? ) Caius (ou Navius, peut-être Catius ? nom fréquent en Narbonnaise), Ianuarius » ; 13, 1754 : « apparatore Vireio Hermetione » (taurobole à Lyon en 197) ; cf. 12, 1567, à Die, triple taurobole « cum suis hostis et apparam(entis) omnib(us). » Un _apparatorium_ de Mithra à Siseia, 3, 3960.
 
-*) Cf. Gruppc, op. l., p. 896, il. 3. Rabdophore chez les Dcnclr. de Tomi.
+*) Cf. Gruppe, _op. l._, p. 896, n. 3. Rabdophore chez les Dendr. de Tomi.
 
 Le Metrôon de Trieste possède un _Aedituus_.* Celui que nous connaissons est, comme son prêtre, un ancien esclave public, affranchi de la ville. Logé dans le temple ou à côté du temple, il paraît n'être que le gardien de l'édifice ; il a mission de l'ouvrir, de le fermer, de le tenir en bon état. A Rome, au début de l'Empire, l'_Aedituus_ du temple palatin, ou d'un autre sanctuaire de la déesse, était un simple esclave de la maison impériale* ; le prêtre obtint de l'empereur Auguste la manumission de ce bon serviteur, après douze ans de service.
 
-*) _CIL._ V, 519 : « C. Publicius Hernies aedituus M. D. M. ».
+*) _CIL._ 5, 519 : « C. Publicius Hermes aedituus M. D. M. »
 
-*) _CIL._ VI, 2211.
+*) _CIL._ 5, 2211.
 
 Il convient de mettre à parties _Curatores_, dont les attributions n'offrent aucun caractère religieux et qui restent en dehors de la hiérarchie ecclésiastique. Les Curateurs d'un temple sont chargés de veillera son bon entretien, à la conservation de son mobilier liturgique ou votif, et d'en administrer les fonds. Nous en connaissons un à Electum (Alet), petite station thermale de Narbonnaise, où l'on adorait la déesse comme guérisseuse et dont les malades avaient sans doute enrichi le sanctuaire.* Ce Curateur était citoyen romain. Comme il s'agit sans doute d'un culte municipal, le conseil seul avait eu qualité pour le nommer à cette fonction ; car c'est au Sénat du lieu qu'incombe la _cura templorum_.
 
-*) _CIL._ XII, 537 1 : « Cn. Pomp(eius) Probus, curator templi Matris Deum. » A Tarragone, un « curator templi » a occupé les fonctions de flamine de t. province et de préfet des murs, II, 4202.
+*) _CIL._ 12, 5374 : « Cn. Pomp(eius) Probus, curator templi Matris Deum. » A Tarragone, un « curator templi » a occupé les fonctions de flamine de la province et de préfet des murs, 2, 4202.
 
 # Chapitre 7
 
@@ -604,21 +604,21 @@ Deux confréries sont indispensables à l'organisme du culte : celles des Cannop
 
 Les Cannophores peuvent appartenir aux deux sexes.* Il semble que la confrérie d'Ostie ait été mixte, sous la présidence d'hommes ; peut-être dans certaines villes n'existait-il qu'une confrérie de femmes. On admettait tous les âges ; à Locres, nous connaissons un Cannophore de dix ans et un autre de trente-cinq ans. Les confrères sont de petites gens, en général des affranchis. A Ostie, en voici trois, deux femmes et un homme, qui sont des affranchis de la gens Domitia et delà gens Calpurnia* ; d'autres ont des surnoms, Charito, Epigonus, Heraclida, Nothus, Stratonicus, qui ne permettent aucun doute sur leur origine. Tel Cannophore de Locres est un ancien esclave public ; un autre, qui porte pour tout nom celui de Félix, est-il un esclave du collège où l'un de ses membres effectifs ?
 
-*) Confréries connues : Ostia, _CIL._ XIV, 34, 35 (entre les années 169 et 176 j, 36, 37, 40 (entre les années 161 et 180), 116 (sous Septime Sévère), 117 (sous Caracalla), 118 (en 200), 119 (en 212), 284, 285 ; --- Locri, X, 24 ; --- Saepinum, IX, 2 480 ; --- Mediolanum, V, 5S40.
+*) Confréries connues : Ostia, _CIL._ 14, 34, 35 (entre les années _169_ et _176_), 36, 37, 40 (entre les années _161_ et _180_), 116 (sous Septime Sévère), 117 (sous Caracalla), 118 (en _200_), 119 (en _212_), 284, 285 ; --- Locri, 10, 24 ; --- Saepinum, 9, 2480 ; --- Mediolanum, 5, 5840.
 
-*) _CIL._ XIV. 36 et 37.
+*) _CIL._ 14. 36 et 37.
 
 Les Cannophores d'Ostie se désignent comme un corps constitué, _Corpus_ ; ce mot impliquerait-il déjà l'idée d'un collège obligatoire ? Attachée à un culte officiel, la confrérie est une institution communale, sous le contrôle direct de la municipalité. Mais son existence légale est subordonnée à l'autorisation du Sénat et de l'Empereur, selon les dispositions de la loi Julia, qui fut l'œuvre d'Auguste. En tant que confrérie métroaque, elle reste également sous la curatelle des 15virs. Comme les autres associations, c'est elle-même qui élit ses administrateurs. Elle est gouvernée par des présidents quinquennaux et par des curateurs, chargés de gérer ses finances. Elle sait choisir des patrons aussi généreux qu'influents. Une femme, sans doute une dame patronnesse, lègue aux Cannophores de Milan un capital de 8000 sesterces (environ 2140 francs).* La grande famille a ses _pères_ et ses _mères_, gens de condition libertine aussi, que leur âge, ou leur piété, ou leur fortune, rend dignes d'égards, bienfaiteurs qui participent à la vie intime de la communauté et qui peut-être exercent certaines fonctions religieuses. Chaque confrère paie une cotisation qui, selon l'usage constant, doit être mensuelle ; quelques-uns en sont exemptés, à titre honorifique.*
 
 *) Valeur approximative du sesterce en centimes, de Néron à Caracalla : 0 f . 268 ; Bouché-Leclereq, Manuel des inst. rom., p. 581.
 
-*) _CIL._ XIV, 119 : « immunis ».
+*) _CIL._ 14, 119 : « immunis. »
 
 On se réunit dans une _Schola_ qui, la plupart du temps, est une annexe du sanctuaire* ; faute d'argent, on partage peut-être celle des Dendrophores. On l'orne d'images pieuses, données par des fidèles, par des prêtres, par l'Archigalle : statues de Cybèle et d'Attis, en marbre ou en bronze, bustes des Tout-Puissants en argent, copie en argent de l'idole du Palatin, bouquet symbolique d'épis de bronze, statuette de Némésis. On reçoit aussi en cadeau le portrait du prince régnant ; sinon, la communauté se fait un devoir de l'acheter.* La dédicace de ces monuments est pour le collège une fête domestique, suivie d'un banquet dont le donateur paie en général les frais. En 212, C. Caesius Eutychion offre aux Cannophores d'Ostie une statuette ou un buste de Caracalla en argent, du poids d'une livre 8 scrupules (environ 336 grammes). L'inauguration eut lieu le jour anniversaire de la naissance du César, qui se trouvait être en même temps le premier jour des Mégalésies romaines ; Eutychion fît distribuer à chacun des confrères le pain, le vin et un denier. Les bases en marbre, qui portent l'inscription dédicatoire, et les plaques de marbre blanc, sur lesquelles est gravé l'album, racontent la modeste histoire de la pieuse confrérie.
 
-*) C'était le cas à Ostie, où l'on serait tenté de croire aussi, malgré l'inscr. 285, qu'ils utilisaient la sehola des Dendrophores.
+*) C'était le cas à Ostie, où l'on serait tenté de croire aussi, malgré l'inscr. 285, qu'ils utilisaient la schola des Dendrophores.
 
-*) _CIL._ XIV, 31-37, 116-119.
+*) _CIL._ 14, 34-37, 116-119.
 
 Comme toute famille, celle-ci a non seulement son toit, mais encore sa sépulture. Elle se charge des funérailles de ses membres. La fraternité des Cannophores continue dans le tombeau. Ils y demeurent sous la protection de Cybèle et d'Attis, qui promettent à leurs fidèles une heureuse immortalité.
 
@@ -626,190 +626,189 @@ Comme toute famille, celle-ci a non seulement son toit, mais encore sa sépultur
 
 Si les Cannophores de la Mère des Dieux, comparables aux Nartécophores de Bacchus, se sont enfermés dans leurs attributions religieuses, s'ils ont humblement vécu à l'ombre du temple, sans faire beaucoup parler d'eux, tout autre fut la destinée des Dendrophores.*
 
-*) Le travail le plus complet sur les Dendrophores est le chapitre que leur consacre Waltzing dans son Etude historique sur les corporations professionnelles chez les Romains, Louvain, 1893, I, p . 240 ss ; bibliogr., p. 2 il ; les inscr. relatives au collège sont groupées t. III. Voici la liste des villes où il est l'ait mention de Dendrophores :  
-Italie. Roma, _CIL._ VI, 611, 642,1040, 1925, 29691, 29725, 30973, Orclli 4412 = Waltzing 1377.  
-Latium vêtus : Gabii, _CIL._ XIV, 2809 ;Oslia 33, 45, 53, 67, 69-71, 97, 107, 280-83, 295, 309,324, 364, 409 ; Tusculum 2634.  
-Regio I : Cumae, X, 3698-3700 ; Puteoli(Pouzzoles) 1786, 1790: Suessula 3764 • Signia (Segni) 5968 ; Verulae (Veroli) 5796.  
-Regio II : Ligures Baebiani, chez les Hirpins, IX, 1459, 1463 ; Volturara (nom moderne), en Apulie, 939.  
-Regio III : Alma, X, 8100 ; Eburunî Eboli 131 : Regium (Reggio) 7 : Volcei  
-8107-8. Localité inconnue de Lucanie, près de Laviano, liante vallée du Silaris, 445.  
-Hegio IV : Antinum, chez les Murses, 1X3836-37, 3842 ; Anxanum, chez les Franlans (Lanciano, près de Chieti), 2998 (les Dendr. sont certainement compris dans les collegia omnin) ; Allia Fucensis, chez les Eques, 3938 : Carsioli, 4007-68.  
-Ilegio V (Picenum) : Falerio, IX, 5438-39.  
-Hegio VI (Umbria) : Asisium (Assise), XI, 5416 ; Fanum Fortunae (Fano) 623 1, 6235 ; Mevania (Bevagna) 5051 ; Ocriculum (Olricoli) 1086 ; Pisaurum (Pesaro) 6362, 6378 ; Sassina (Sarsina) 6520 ; Sentinum (Sassoferrato) 5719 ; Urvinum (Urbino) 6033, 6070.  
-Hegio VII (Etruria) : Faesulae (Fiesole), XI, 1551-52 ; Luna 1355.  
-Hegio VIII (Aemilia) ; Ariminium (Rimini), XI, 377, 6378 ; Parma 105y.  
-Hegio IX (Li'guria) ; Dertona (Tortona), V, 7375.  
-Hegio X (Venetia, Ilistria) : Bellunum, dansCagnat, Ann. épigr. 1888, 132 = AYaltzing 152 ; Bcrua, _CIL._ V, 2071 ; Brixia Brescia) 13 1 1 1388, 1118, 1119, 1177, 1 18 1 ; Feltria 2071 ; Patavium (Padoue) 2791 ; Pollentia 7617-18 ; Verona 3312 ; Aquileia, V, 1012 ; Pola 56, 81, 82 add. = Waltzing 108.  
-Hegio XI (Transpadana et Alpes marit.) : Bcrgomum (Bergame), V, 51 28, 5135 ; Coniuni 5275, 5296 ; Mediolanum (Milan) 5165, 5810, 5902 ; Cemenelum Cimiez 7881, 7901-5, 7920.  
-Gaules. Narbonnaise: Massilia, XII, 111 ; Nemausus (Nîmes 5953 add. ; Valentia 1744 ; Viennal878, 1917.  
-Lugdunaise : Lugdunum, XIII, 1723, 1751-52, 1921, 1961, 1971, 2026 ; Yenetonimagus (Yieu en Val-Romey) 2513.  
-Germanie sur. Amsoldingen, XIII, 5153.  
-Ualmatie. Salona, III, 8823.  
-Pannonie. Igg, III, 10738 ; Siscia (Sissek) 10858.  
-Daoie. Apulum, III, 1217.  
-Mésie Inf. Gergina, III, 7516 ; Tomi 763 et Arch. ep. MilLh. XI, 1887, p. iis ; Troesmis, _CIL._ III, 7505.  
-Afrique. Proconsulairc : Carthago, _CIL._ VIII, 12570 ; Thugga 15527.  
-Byzacène ; Mactaris, dans Cagnat, Ann. épigr. 1892, 18 ; 1897, 121.  
-Numidie ; Cirta, _CIL._ VIII, 6940-11 ; llusicade (Philippeville 7956 cl p. 1878 Thamugadi (Timgad) 17907.  
-Maurétanies : Gaesarea (Cherchell), VIII, 9101, 21070 ; Sililis (Sctif) 8157 = 20343.  
+*) Le travail le plus complet sur les Dendrophores est le chapitre que leur consacre Waltzing dans son _Étude historique sur les corporations professionnelles chez les Romains_, Louvain, 1893, 1, p. 240 ss ; bibliogr., p. 241 ; les inscr. relatives au collège sont groupées t. 3. Voici la liste des villes où il est l'ait mention de Dendrophores :  
+Italie. Roma, _CIL._ 6, 644, 642, 1040, 1925, 29691, 29725, 30973, Orelli 4412 = Waltzing 1377.  
+Latium vetus : Gabii, _CIL._ 14, 2809 ; Ostia 33, 45, 53, 67, 69-71, 97, 107, 280-83, 295, 309, 324, 364, 409 ; Tuseulum 2634.  
+Regio 1 : Cumae, 10, 3698-3700 ; Puteoli (Pouzzoles) 1786, 1790 : Suessula 3764 ; Signia (Segni) 5968 ; Verulae (Veroli) 5796.  
+Regio 2 : Ligures Baebiani, chez les Hirpins, 9, 1459, 1463 ; Volturara (nom moderne), en Apulie, 939.  
+Regio 3 : Atina, 10, 8100 ; Eburum (Eboli) 131 : Regium (Reggio) 7 : Voleci 8107-8. Localité inconnue de Lucanie, près de Laviano, haute vallée du Silaris, 445.  
+Regio 4 : Antinum, chez les Marses, 9, 3836-37, 3842 ; Anxanum, chez les Frantans (Lanciano, près de Chieti), 2998 (les Dendr. sont certainement compris dans les _collegia omnia_) ; Alba Fucensis, chez les Eques, 3938 : Carsioli, 4067-68.  
+Regio 5 (Picenum) : Falerio, 9, 5438-39.  
+Regio 6 (Umbria) : Asisium (Assise), 11, 5416 ; Fanum Fortunae (Fano) 6231, 6235 ; Mevania (Bevagna) 5054 ; Ocriculum (Otrieoli) 4086 ; Pisaurum (Pesaro) 6362, 6378 ; Sassina (Sarsina) 6520 ; Sentinum (Sassoferrato) 5749 ; Urvinum (Urbino) 6033, 6070.  
+Regio 7 (Etruria) : Faesulae (Fiesole), 11, 1551-52 ; Luna 1355.  
+Regio 8 (Aemilia) : Ariminium (Rimini), 11, 377, 6378 ; Parma 1059.  
+Regio 9 (Liguria) : Dertona (Tortona), 5, 7375.  
+Regio 10 (Venetia, Histria) : Bellunum, dans Cagnat, _Ann. épigr._ 1888, 132 = Waltzing 452 ; Berua, _CIL._ 5, 2071 ; Brixia (Brescia) 4341, 4388, 4418, 4449, 4477, 4484 ; Feltria 2071 ; Patavium (Padoue) 2794 ; Pollentia 7617-18 ; Verona 3312 ; Aquileia, 5, 1012 ; Pola 56, 81, 82 add. = Waltzing 408.  
+Regio 11 (Transpadana et Alpes marit.) : Bergomum (Bergame), 5, 5128, 5135 ; Comum 5275, 5296 ; Mediolanum (Milan) 5465, 5840, 5902 ; Cemenelum (Cimiez) 7881, 7904-5, 7920.  
+Gaules. Narbonnaise : Massilia, 12, 411 ; Nemausus (Nîmes) 5953 add. ; Valentia 1744 ; Vienna 1878, 1917.  
+Lugdunaise : Lugdunum, 13, 1723, 1751-52, 1921, 1961, 1974, 2026 ; Venetonimagus (Vieu en Val-Romey) 2543.  
+Germanie sup. Amsoldingen, 13, 5153.  
+Dalmatie. Salona, 3, 8823.  
+Pannonie. Igg, 3, 10738 ; Siscia (Sissek) 10858.  
+Dacie. Apulum, 3, 1217.  
+Mésie Inf. Gergina, 3, 7516 ; Tomi 763 et _Arch. ep. Mitt._ 11, 1887, p. 44 s ; Troesmis, _CIL._ 3, 7505.  
+Afrique. Proconsulaire : Carthago, _CIL._ 8, 12570 ; Thugga 15527.  
+Byzacène : Mactaris, dans Cagnat, _Ann. épigr._ 1892, 18 ; 1897, 121.  
+Numidie : Cirta, _CIL._ 8, 6940-41 ; Rusicade (Philippeville) 7956 et p. 1878 Thamugadi (Timgad) 17907.  
+Maurétanies : Caesarea (Cherchell), 8, 9401, 21070 ; Sitifis (Sétif) 8457 = 20343.  
 
 Les Dendrophores n'admettent des femmes que parmi les dignitaires. Ils se recrutent aussi dans la plèbe urbaine. Les membres effectifs sont des affranchis, quelquefois même des esclaves. En parcourant les albums retrouvés en Italie, on rencontre un nombre considérable de surnoms étrangers. Sur un fragment de liste d'Ostie, nous relevons ceux d'Asiaticus, Evaristus, Eucaerus, Eutrapeles, Herma, Oceanus, et le cognomen d'Ostiensis, qui doit désigner un ancien esclave public. A Cumes, en 251, voici Archilaus, Chorintus, Cyricius, Eutyches, Irenicus, Polybius, Seleucus, Syntropus et, à une date indéterminée, Evhodus, Heraclida, Herma, Phillius. A Luna, voici les frères Herennius Demetrius et l'esclave Fortunatus. Beaucoup de confrères ont échangé leur nom grec contre deux noms romains, tel Marcius Faustus, à Alba Fucensis ; mais l'absence d'une troisième dénomination suffit pour caractériser leur origine. A Lyon, L. Sabinius Cassianus dissimule sous un nom entièrement romanisé sa naissance servile.
 
 Les marchands de bois s'enrôlèrent volontiers dans une confrérie vouée au culte de l'arbre-dieu. Ils avaient eu d'abord pour saint patron Silvain forestier et dendrophore,* qui porte, comme Attis, le bonnet phrygien* ; ils lui ajoutèrent ou lui substituèrent le saint Attis et se mirent désormais sous la protection de la Mère des Dieux.* La confrérie métroaque se confondit avec la corporation industrielle, qui prit le nom de collège ou corps des Dendrophores.* Cette fusion est l'œuvre du gouvernement impérial. Elle date du 1er siècle ; elle est antérieure à Trajan et remonte sans doute à la réorganisation du culte sous le principat de Claude.* Elle ne s'étendit pas à tout l'Empire. En Orient, et d'une façon générale dans les pays grecs, les Dendrophores n'ont jamais formé qu'un collège exclusivement religieux, aussi modeste que celui des Cannophores en Occident. Au début du 3e siècle, à Tomi (côte septentrionale delà mer Noire), ils sont encore organisés sur le modèle des antiques thiases d'Asie-Mineure et de Grèce. Les ingénus y fraternisent avec les affranchis dans une dévotion commune ; Basilicos, fils d'Alexandros, voisine sur l'album avec Flavius Symphoros et P. Aelius Hermerôs. En Anatolie, les membres des meilleures familles n'étaient-ils point affiliés à quelque confrérie de Cybèle ? Mais il ne faudrait pas croire à une prédominance des traditions religieuses de l'Orient. Ne voyons ici qu'un effet de la politique romaine. Les princes les plus libéraux se refusent à autoriser dans les provinces orientales toute association professionnelle. Trajan défend au gouverneur de Bithynie de fonder un corps de charpentiers-pompiers dans son chef-lieu. Il lui rappelle combien, là-bas, de tels collèges sont dangereux pour l'ordre public : « quelque nom qu'on leur donne, quel que soit le motif de leur établissement, ils deviennent des hétairies, » c'est-à-dire des factions.* Cette défiance faisait peser la même interdiction sur l'Afrique. On n'y a découvert aucun vestige de grandes corporations industrielles ; et les Dendrophores n'y paraissent vivre que dans la fréquentation des mystes d'Attis. C'est en Italie, en Gaule, en Dalmatie, dans les provinces danubiennes, peuplées de colonies romaines, que leur confrérie est subordonnée à la corporation. Aussi manifestent-ils particulièrement leur vitalité dans les centres propices au commerce et à l'industrie du bois. Ils prenaient une importance exceptionnelle dans les ports, comme Ostie, Pouzzoles, Luna, Pesaro, Rimini, Aquilée, Pola, Marseille, ou dans les villes de commerce fluvial, comme Vienne, Lyon, à cause des chantiers de construction navale. Ils y sont, du reste, en relations avec le monde des charpentiers, des patrons de barques, des commissaires de la navigation, des armateurs.* Leur collège est prospère dans les régions boisées, à proximité des montagnes dont on exploite les vastes forêts: en Suisse, à Amsoldingen, qui avait aussi sa corporation de charpentiers ; au pied des Alpes,* à Bellune, Feltre, Vérone, Brescia, Bergame, Côme, Milan, Cimiez. Sans quitter l'Italie, nous le retrouvons florissant au pied de l'Apennin ligurien, à Tortona ; sur le versant oriental de l'Apennin toscan et romain, à Sassina et Sassoferrato ; dans le massif de l'Ombrie, à Bevagna, Urbin et Assise ; sur les monts Albains, à Segni et Veroli ; dans la haute vallée du Liris et près des bois qui entouraient le lac Fuein, à Antinum, Alba, Carsioli ; sur les contreforts du Matese, que couvrent encore les maquis* ; dans la haute vallée du Frento (Fortore)* ; dans celle du Silarus (Sélé), que domine le mont Alburne, « tout vert de chênes rouvres, » dit Virgile* ; au pied des forêts calabraises, à Reggio.
 
-*) Cultores Silvani Sancti D(endrofori), à Rome en 97, _CIL._ VI, 642 ; cf. en Lucanie, sous Domitien, cullores .Silvani, X, 114. Silvain dendrophore dans Virg., Georg. I, 20 : « tenerum... ferens, Silvane, cupressum. » Sur le culte de Silvain par les marchands de bois, Visconti dans Annali 1868, p. 366 ss. De Boissieu, Inscr. de Lyon, 1846-54, p. 412, émet cette idée que Silvain fut d'abord leur unique patron, puis céda le premier rang à Cybèle et Attis : idée reprise par Mauer, Vereine, p. 21. Sur les rapports de Cybèle et de Silvain, cf. _CIL._ XIV, 53, signum Silvani dans la schola des Dendr. d'Ostie ; IX, 3375 = Buecheler, Carm. Epigr. 250 : «Magne deum, Silvane potens, sanctissime pastor, qui nemus Idaeum Romanaque castra gubernas ».
+*) _Cultores Silvani Sancti D(endrofori)_, à Rome en 97, _CIL._ 6, 642 ; cf. en Lucanie, sous Domitien, _cultores Silvani_, 10, 444. Silvain dendrophore dans Virg., _Georg._ 1, 20 : « tenerum... ferens, Silvane, cupressum. » Sur le culte de Silvain par les marchands de bois, Visconti dans _Annali_ 1868, p. 366 ss. De Boissieu, _Inscr. de Lyon_, 1846-54, p. 412, émet cette idée que Silvain fut d'abord leur unique patron, puis céda le premier rang à Cybèle et Attis : idée reprise par Mauer, _Vereine_, p. 21. Sur les rapports de Cybèle et de Silvain, cf. _CIL._ 14, 53, _signum Silvani_ dans la schola des Dendr. d'Ostie ; 9, 3375 = Buecheler, _Carm. Epigr._ 250 : « Magne deum, _Silvane potens_, sanctissime pastor, qui _nemus Idaeum_ Romanaque castra gubernas. »
 
-*) Cf. un relief d'Aquincum, Arch. ep. Mitth. Vil, 1883, p. 86.
+*) Cf. un relief d'Aquineum, _Arch. ep. Mitt._ 7, 1883, p. 86.
 
-*) _CIL._ VIH, 7956 et p. 1878 : « sancto Attidi sacrum genio dendrofororum. » ARorne, dès le ri” s., ilsontpris le titre officiel de collegium dendrophor or)um Ma Iris Deum M. I. et Altis : VI, 30973.
+*) _CIL._ 8, 7956 et p. 1878 : « sancto Attidi sacrum genio dendrofororum. » A Rome, dès le 2e s., ils ont pris le titre officiel de _collegium dendrophor(or)um Matris Deum M. I. et Attis_ : 6, 30973.
 
-*) Le nom de dendrophores, appliqué à des gens de métier, ne se comprendrait guère s'il ne leur venait pas de leur rôle religieux. La qualification de corpus que nous trouvons à Marseille et Pouzzoles indique, du moinsau iv's., un collège obligatoire.
+*) Le nom de dendrophores, appliqué à des gens de métier, ne se comprendrait guère s'il ne leur venait pas de leur rôle religieux. La qualification de corpus que nous trouvons à Marseille et Pouzzoles indique, du moins au 4e s., un collège obligatoire.
 
-*) Cf. supra, p. 1J5, n. 7, le passage important de Lydus.
+*) Cf. supra, p. 115, n. 7, le passage important de Lydus.
 
-*) Plin., Ep. X, 33. Le mot d'hétairie paraît correspondre, en général, à celui de colleçjium illicitum.
+*) Plin., _Ep._ 10, 33. Le mot d'hétairie paraît correspondre, en général, à celui de _collegium illicitum_.
 
-*) A Ostie, p. ex,, ils sont cités à côté des corporati curatores navium marinarnm et navinm amnalium, _CIL._ XIV, 361, des corporati scapharii et lenuncularii, 109. A Pesaro, XI, 6362 : « coll(egia) fabr(orum), cent(onariorum), navic(ulariorum)., dendr(ofororum) ; 6378 : « patrono colleg'iorum fabr. cent, dendr. navic. etc. ».
+*) A Ostie, p. ex., ils sont cités à côté des _corporati curatores navium marinarum et navium amnalium_, _CIL._ 14, 364, des _corporati scapharii et lenuncularii_, 409. A Pesaro, 11, 6362 : « coll(egia) fabr(orum), cent(onariorum), navic(ulariorum), dendr(ofororum) ; 6378 : « patrono collegiorum fabr. cent. dendr. _navie._ etc. »
 
-*) Sur les forêts delà Cisalpine, Strab. V, 1, 12 ; de la Tyrrhénie (Luna) « qui fournissent à toute l'Italie la plus grande quantité des bois de construction et les poutres les plus droites et les plus longues » V, 2, 5 ; des monts Pisans, « dont le bois est particulièrement propre aux constructions navales » ibid. ; des environs de Rome V, 3, 7 ; de l'Ombrie, Liv. XXVIII, 45.
+*) Sur les forêts delà Cisalpine, Strab. 5, 1, 12 ; de la Tyrrhénie (Luna) « qui fournissent à toute l'Italie la plus grande quantité des bois de construction et les poutres les plus droites et les plus longues » 5, 2, 5 ; des monts Pisans, « dont le bois est particulièrement propre aux constructions navales » _ibid._ ; des environs de Rome 5, 3, 7 ; de l'Ombrie, Liv. 28, 45.
 
-*) _CIL._ IX, 1159, 1163, macchia di Reino, près du munie Mutrio. contrefort S. E. du massif du Matese.
+*) _CIL._ 9, 1459, 1463, macchia di Reino, près du munie Mutrio. contrefort S. E. du massif du Matese.
 
-*) Ibid., 939.
+*) _Ibid._, 939.
 
-*) Virg., Georg. III. 116 : « est lucos Silari circa, ilicibusque virentem... Alburuum ».
+*) Virg., _Georg._ 3. 146 : « est lucos Silari circa, ilicibusque virentem... Alburnum. »
 
 Un certain nombre de confrères étaient agents du domaine forestier des Césars.* On rencontre en effet parmi les Dendrophores d'Italie et de Gaule plusieurs affranchis impériaux. A Rome, le confrère Eutyehès, qui meurt en l'an 107, est un affranchi de Trajan* ; un président du même collège se nomme Ti. Claudius Chresimus.* A Vienne, Ti. Julius Diadochus descend d'un esclave impérial, à moins qu'il ne soit l'affranchi d'un affranchi d'empereur. A Lyon, un Dendrophore assez riche pour offrir à la ville une libéralité de 240.000 sesterces, c'est-à-dire d'à peu près 64.000 francs, est l'affranchi d'un César Flavien. A Luna, on lit même sur l'album le nom d'un esclave du prince régnant.
 
-*) De Boissieu, laser, de Lyon, p. 414, supposait que les Dendr. Augustaux étaient les agents des forêts appartenant au domaine privé des princes.
+*) De Boissieu, _Inscr. de Lyon_, p. 414, supposait que les Dendr. Augustaux étaient les agents des forêts appartenant au domaine privé des princes.
 
 *) Waltzing, 1377.
 
-*) _CIL._ VI, 29691.
+*) _CIL._ 6, 29691.
 
 Enfin la corporation avait le droit, sous certaines réserves, de s'adjoindre des membres étrangers au métier ; le cas est prévu parla loi.* Deux présidents, à Rome, sont marchands de perles* ; un Dendrophore d'Alba Fucensis est maître queux ; un Dendrophore de Pola est foulon. Le personnel du collège pouvait donc atteindre un chiffre assez élevé, même dans les petites localités. A Cumes, en 251, il est de quatre-vingt-sept ; une liste de Luna comporte une trentaine de noms, mais doit être incomplète. Un album d'Ostie, rédigé vers l'an 200, contient les noms de cinq patrons et de vingt-cinq dignitaires, ce qui laisse à supposer que le collège comptait au moins une centaine de membres. Aussi bien voyons-nous que, dans une ville tant soit peu importante, un corps de cent cinquante charpentiers passait pour constituer une association peu nombreuse.*
 
-*) Le Digeste, L, 6, 5, 12, déclare que les corporations qui obtiennent des privilèges attachés à l'exercice du métier peuvent recevoir des étrangers, mais (pie seuls les artisans jouissent de l'immunité.
+*) Le Digeste, 50, 6, 5, 12, déclare que les corporations qui obtiennent des privilèges attachés à l'exercice du métier peuvent recevoir des étrangers, mais (pie seuls les artisans jouissent de l'immunité.
 
-*) Tuticius Hylas, _CIL._ VI, 1925 ; M'. Poblilius Ililarus, 30973.
+*) Tuticius Hylas, _CIL._ 6, 1925 ; M'. Poblilius Hilarus, 30973.
 
-*) Plin., l. c.
+*) Plin., _l. c._
 
 Ainsi que les autres collèges, les Dendrophores se recrutaient sans doute par _adlectio_. Mais le droit à la dendrophorie, considérée comme élément d'un culte officiel, exige un mandat qui les met sous la dépendance immédiate des municipalités. Le titre même par lequel ils se désignent, sur les documents publics, paraît bien exprimer l'appartenance légale du collège à la ville et rappelle celui que prennent les prêtres municipaux de la Grande Mère. Ils se disent les Dendrophores des habitants d'Ostie, des habitants de Pola, de la colonie de Milan ou d'Apulum, du municipe de Sassina ou de Bergame. La simple mention de la résidence est très rare.* Il faut donc admettre que les autorités communales intervenaient dans le fonctionnement de cet organisme. Mais nous ignorons l'étendue de leur intervention. Un décret du conseil municipal était la première formalité nécessaire pour rendre licite la fondation du collège. Ce décret, avec les statuts des confrères, était transmis ensuite au pouvoir central. Car aucune association n'est licite si elle n'est spécialement autorisée par le Sénat ou par le Prince* ; et la loi Julia, qui réglementait le droit de s'associer, reste en vigueur jusqu'à la fin de l'Empire. Mais la Curie locale devait-elle aussi ratifier le choix de tous les nouveaux membres ? Existait-il une procédure spéciale à l'égard de ceux qui n'étaient pas du métier ? Un Dendrophore de Rusicade, en Numidie, s'intitule _decretarius_* ; le décret en question émane-t-il du sénat de la colonie ou simplement de l'assemblée collégiale ? Devait-on soumettre toutes les décisions de cette assemblée à l'approbation du dit conseil ? En 196, les Dendrophores de Pouzzoles le consultent sur la formule de dédicace d'une statue ; mais cette mesure s'explique sans difficulté, si le monument doit s'élever sur une place publique, _loco dato decreto decurionum_. Nous ne sommes pas mieux renseignés sur les rapports de la confrérie avec les bureaux du Quindécemvirat, qui centralisaient les affaires du culte métroaque. Les Dendrophores sont officiellement, _sub cura 15virorum_.* Probablement l'administration municipale transmettait à la chancellerie le compte rendu de leur situation financière et la consultait en cas de conflits.
 
-*) Elle semble indiquer que la corporation renferme des individus étrangers à la cité. Elle n'apparaît que dans certaines villes comme Lyon (CIL. XIII, 1 752, dendr. Luguduni consislentes, en 190), dont le commerce était en partie aux mains des gens du dehors. Cf. Maue, Vereine, p. 19: Mommsen dans Westd. Iiorresp. Blatt, VIII, ISN9, p. 23 (il faudrait dir cdendr. Lugudunenses et Luguduni consislentes ; il y avait les deux éléments) ; Waltzing 11, p. ISO (résidence de fait dans la ville, non appartenance légale par la naissance).
+*) Elle semble indiquer que la corporation renferme des individus étrangers à la cité. Elle n'apparaît que dans certaines villes comme Lyon (_CIL._ 13, 1752, _dendr. Luguduni consistentes_, en 190), dont le commerce était en partie aux mains des gens du dehors. Cf. Maue, _Vereine_, p. 49 ; Mommsen dans _Westd. Korresp. Blatt_, 8, 1889, p. 23 (il faudrait dir _dendr. Lugudunenses et Luguduni consistentes_ ; il y avait les deux éléments) ; Waltzing 2, p. 180 (résidence de fait dans la ville, non appartenance légale par la naissance).
 
-*) Les formules ex S. C.dendrofori creati qui surit et dendrofori quitus ex [S. C. coire lie et], à Cumes, quib(us) ex S. C. coire licet ou p(ermissum) est, à Rome et à Cimiez, sont expliquées par cette autre, CIL VI, 2193 : quihus Senatus coire, convocari, cogi perrnisit e lege lulia ex auctoritate Augusti. Il ne s'agit donc pas ici du sénat local. Sur cette loi qui réglait sévèrement le droit d'association et interdisait, entre autres, les confréries vouées aux cultes exotiques, v Waltzing I, p. 115 ss. C'est aux kalendes d'août que les Dendr. de Rome fêtaient le natalis collegii.
+*) Les formules _ex S. C. dendrofori creati qui sunt et dendrofori quibus ex [S. C. coire licet]_, à Cumes, _quib(us) ex S. C. coire licet ou p(ermissum) est_, à Rome et à Cimiez, sont expliquées par cette autre, _CIL._ 6, 2193 : _quibus Senatus coire, convocari, cogi permisit e lege Iulia ex auctoritate Augusti_. Il ne s'agit donc pas ici du sénat local. Sur cette loi qui réglait sévèrement le droit d'association et interdisait, entre autres, les confréries vouées aux cultes exotiques, v Waltzing 1, p. 115 ss. C'est aux kalendes d'août que les Dendr. de Rome fêtaient le _natalis collegii_.
 
-*) L'interprétation ex decreto XVvirorum Urhis Romae, qui figure au Corpus, n'est guère vraisemblable ; cf. à propos d'un décret du collège, exemplum decreti : V, 56.
+*) L'interprétation _ex decreto 15virorum Urbis Romae_, qui figure au Corpus, n'est guère vraisemblable ; cf. à propos d'un décret du collège, _exemplum decreti_ : 5, 56.
 
-*) _CIL._ X,3699. La surveillance des collèges appartient au gouverneur, dans les provinces.
+*) _CIL._ 10, 3699. La surveillance des collèges appartient au gouverneur, dans les provinces.
 
 Quelle qu'ait été l'ingérence du pouvoir central et des pouvoirs municipaux, elle ne constituait pas une mise en tutelle. Les Dendrophores conservent, comme toutes les associations reconnues, la capacité de recevoir des legs et des donations,* de gérer leurs deniers, de choisir leurs administrateurs et leurs patrons. Leurs magistratures sont celles de tout collège romain. Ils ont des présidents ou maîtres,* des curateurs chargés de la gestion des finances, de l'exécution des décrets, de l'inspection des travaux* ; ils ont leurs questeurs, qui sont les comptables. Ces magistrats sont annuels, même les curateurs gratifiés du titre de perpétuels, même les présidents, malgré leur titre de quinquennaux ; mais ils sont rééligibles. Les dignitaires sortis de charge deviennent des _Honorati_ et constituent un ordre. Quand de riches patrons acceptent la présidence, ils se font parfois suppléer dans leur office par des « _officiales_.* » Ailleurs nous trouvons un « recteur quinquennal, » choisi parmi les patrons.* Il est une seule fois question d'un préfet. Mais il ne s'agit pas ici d'un fonctionnaire délégué par l'empereur, le gouverneur ou le municipe ; ce préfet est encore un élu du collège.* Les Dendrophores tiennent des réunions plénières, des « convents, » où ils discutent leurs intérêts, règlent les affaires courantes, nomment leurs dignitaires, votent des distinctions aux membres qui les ont méritées ou dont ils escomptent la générosité. Ils peuvent accorder la perpétuité des magistratures, purement honorifique, la double part de sportules, le droit de s'asseoir sur un _bisellium_, le titre de _munificus_, l'immunité ou exemption des cotisations mensuelles,* privilège qui procure en même temps l'avantage de figurer à part sur l'album ; ils peuvent décerner des statues.* Ils se créent aussi toute une famille de pères, de mères, de filles* : gens de leur condition, confrères plus vénérables qu'ils veulent honorer pour leur dévouement ou leur piété, femmes ou proches parentes de confrères, qui sont leurs bienfaitrices, jeunes affranchies dont ils se font les protecteurs ; sur l'album on inscrit ces privilégiés après les _immunes_.
 
-*) Capital de 10.000 sesterces aux Dcndr. de Rome, _CIL._ VI, 1925 ; de 1000, Waltzing 1377 ; deux fois de 1000 à ceux de Brescia, _CIL._ V, 4418, 4449 ; de 4000 à ceux de Milan, 5840 ; de 8000 à ceux d'Eboli, X, 451 ; de 6000 à ceux de Sarsina, XI, 6520.
+*) Capital de 10.000 sesterces aux Dendr. de Rome, _CIL._ 6, 1925 ; de 1000, Waltzing 1377 ; deux fois de 1000 à ceux de Brescia, _CIL._ 5, 4418, 4449 ; de 4000 à ceux de Milan, 5840 ; de 8000 à ceux d'Eboli, 10, 451 ; de 6000 à ceux de Sarsina, 11, 6520.
 
-*) Sur les fonctions de ces magistri, qui ne sont pas seulement religieuses, v. Waltzing I, p. 389.
+*) Sur les fonctions de ces _magistri_, qui ne sont pas seulement religieuses, v. Waltzing 1, p. 389.
 
-*) C'està ce titre que leurs noms figurent sur les bases des statues élevées par le collège ou encore sur le frontispice de la schola. Ces fonctions sont généralement confiées à des notables ; cf. XIII, 1961 ; XIV, 281.
+*) C'est à ce titre que leurs noms figurent sur les bases des statues élevées par le collège ou encore sur le frontispice de la schola. Ces fonctions sont généralement confiées à des notables ; cf. 13, 1961 ; 14, 281.
 
-*) _CIL._ V, 4449.
+*) _CIL._ 5, 4449.
 
-*) _CIL._ X, 5968.
+*) _CIL._ 10, 5968.
 
-*) _CIL._ XIV, 2634 : « honorera oblatum a collegio ».
+*) _CIL._ 14, 2634 : « honorem oblatum a collegio. »
 
-*) _CIL._ XIII, 2026 (quaestor duplicarius), XI, 1355 (hisellarius ) ; XII, 1917 (le munificus avait peut-être donné des jeux en l'honneur des Dendr.) ; VI, 612 ; X, 3764 ; XIV, 107 (immunes colleqii).
+*) _CIL._ 13, 2026 (_quaestor duplicarius_), 11, 1355 (_bisellarius_) ; 12, 1917 (le _munificus_ avait peut-être donné des jeux en l'honneur des Dendr.) ; 6, 642 ; 10, 3764 ; 14, 107 (_immunes colleqii_).
 
-*) _CIL._ V, 56, 4311 ; VIII, 17907 ; IX, 1459, 3836-37, 3842, 4067-68, 5439 ; X, 451, 596S ; XIV, 2809.
+*) _CIL._ 5, 56, 4341 ; 8, 17907 ; 9, 1459, 3836-37, 3842, 4067-68, 5439 ; 10, 451, 5968 ; 14, 2809.
 
 *) Ex. à Luna, Ostie, Tomi.
 
 Les Dendrophores ont leur maison ou salle corporative, la _Schola_, dont la ville a parfois concédé l'emplacement et qu'ils ont construit le moins souvent possible à leurs frais. Dès le début du 2e siècle, ceux de Rome siégeaient au Cælius, dans la basilique Hilarienne, que leur avait offerte un de leurs présidents ; la basilique perpétuait le nom de ce bienfaiteur, M'. Poblilius Hilarus, bijoutier de profession. A Tusculum, au 1er siècle, c'est la municipalité qui a donné le terrain. Les confrères y bâtissaient une _Schola_ modeste quand un haut personnage, membre du sénat local, la fit agrandir et achever de ses deniers. Ils venaient, à vrai dire, de provoquer sa générosité en lui conférant .la magistrature suprême du collège. A Cimiez, un président se charge de faire paver la _Schola_, construire un vestibule et dresser l'autel des sacrifices.* Mais à Fiesole, quand ils veulent ajouter un portique « pour leurs commodités, » ils sont obligés de recourir à leur propre caisse.
 
-*) Sur la présence de l'autel, autres ex. dans Wallzing I, pp. 213 et 222 ss.
+*) Sur la présence de l'autel, autres ex. dans Waltzing 1, pp. 213 et 222 ss.
 
 Cette grande famille possède également son champ de sépulture, dont bénéficient les confrères pauvres. Toute corporation se double, en effet, d'un collège funéraire ; et les Dendrophores prennent parfois le titre caractéristique de _Cultores_.* Ceux de Pola reçoivent d'un prêtre de la Mère des Dieux un _locus cum sepultura_ de 42 pieds carrés. Ceux de Volceii, en Lucanie, partagent leur terrain funéraire avec une sodalité de _Geniales_. Sur le cippe qui surmonte chaque tombe, on grave le nom du collège avec celui du défunt. Tantôt l'association supporte les frais des funérailles et du monument* ; tantôt elle y contribue par un secours aux familles.* Les confrères plus aisés, qui possèdent un tombeau familial ou personnel, lui laissent volontiers des capitaux pour fondations d'anniversaires de deuil. C'est ainsi qu'à Rome les Dendrophores sont tenus d'honorer la mémoire d'un ancien président par une cérémonie et un banquet annuel. Ils y affectent les rentes de dix mille sesterces (2.680 francs environ), octroyés à cet effet. Ils doivent s'acquitter de ce pieux devoir durant les _Parentalia_, qui sont la principale fête des morts (13-21 février) ; sinon, passé le délai du 23 février, ils perdront le capital, dont profitera le trésor du peuple romain. En l'an 107, un confrère leur avait déjà versé 1.000 sesterces pour une fondation semblable. A Sassina, une citoyenne romaine, prêtresse de la Diva Marciana et femme d'un Augustal, lègue aux Dendrophores, aux Cannophores et à une autre confrérie du municipe 6.000 sesterces : « je les commets à votre bonne foi collégiale, pour que, du revenu de 4.000 sesterces, tous les ans, le 12 juin, jour anniversaire de ma naissance, vous partagiez entre vous l'huile et que, du revenu des deux autres milliers, vous honoriez mes Mânes. »
 
 *) Ex. à Antinum, chez les Marses.
 
-*) _CIL._ V, 5298 ; IX. 939, 1488 ; X, 8100, S107-8.
+*) _CIL._ 5, 5296 ; 9, 939, 1468 ; 10, 8100, 8107-8.
 
-*) _CIL._ X, 445.
+*) _CIL._ 10, 445.
 
 Si l'association religieuse ne s'était doublée d'une association professionnelle, combien eût été moins brillante la destinée de la confrérie ! Dans l'Italie septentrionale, on parle souvent des « trois collèges, » qui constituent le principal groupe des corps de métiers. Les Dendrophores y figurent à côté des _Fabri_, qui sont les ouvriers du bâtiment, et des _Centonarii_, qui paraissent tirer leur nom des bâches (_centones_) utilisées pour l'extinction des incendies.* Les trois collèges ont très souvent les mêmes patrons. Ils ont parfois les mêmes chefs. Ils sont l'objet de libéralités communes et se cotisent pour des œuvres communes. C'est la communauté des charges qui détermine les intérêts communs. Il semble en effet certain, malgré l'absence de preuves directes, que les Dendrophores coopéraient avec les Fabres et les Centonaires au service municipal des incendies.* C'est pour ce motif sans doute que Constantin prescrit en 315 d'adjoindre partout ce collège aux deux autres afin d'augmenter leur effectif.* D'autres obligations étaient probablement imposées aux Dendrophores par les villes et par l'État, lequel possédait la majeure partie des forêts de l'Empire. Peut-être exigeait-on d'eux la coupe et le transport gratuit du bois nécessaire au chauffage des thermes,* ou à la construction des édifices publics, ou à la marine impériale. En revanche, on leur accordait certaines immunités fiscales ou juridiques.*
 
-*) Ex. à Falerio, Sentimim, Rimini, Pesaro, Sassina, Parme, Feltre, Brescia, Vérone, Cimiez ; cf. Nîmes, Lyon, Salone, Apulum etc. Les trois collèges sont déjà groupés à Milan au temps de Trajan.
+*) Ex. à Falerio, Sentinum, Rimini, Pesaro, Sassina, Parme, Feltre, Brescia, Vérone, Cimiez ; cf. Nîmes, Lyon, Salone, Apulum etc. Les trois collèges sont déjà groupés à Milan au temps de Trajan.
 
-*) Bibliogr. de cette question dans Waltzing II, p. 195. A Rome, les Dendr. n'ont pas celte charge, qui incombe aux vigiles.
+*) Bibliogr. de cette question dans Waltzing 2, p. 195. A Rome, les Dendr. n'ont pas celte charge, qui incombe aux vigiles.
 
-*) Cocl. Theod. XIV, 8, 1.
+*) Cod. _Theod._ 14, 8, 1.
 
-*) Question controversée ; Hirseht'eld, Ga.ll.Stud. III, p. 12 ; Maue, Vereine p. 21, n. 11 ; Waltzing I, p. 242.
+*) Question controversée ; Hirsehfeld, _Gall. Stud._ 3, p. 12 ; Maue, _Vereine_ p. 21, n. 11 ; Waltzing 1, p. 242.
 
-*) On est mal renseigné sur la nature des immunités dont jouissaient certaines corporations d'utilité publique ; les principales étaient l'exemption de charges municipales et de la tutelle ; les Dendr. de Brescia jouissent d'une immunité non spécifiée, _CIL._ V, 4341.
+*) On est mal renseigné sur la nature des immunités dont jouissaient certaines corporations d'utilité publique ; les principales étaient l'exemption de charges municipales et de la tutelle ; les Dendr. de Brescia jouissent d'une immunité non spécifiée, _CIL._ 5, 4341.
 
 Mais la véritable compensation de ces charges est le grand crédit dont jouissent les Dendrophores dans la cité. Les trois collèges ne sont jamais confondus avec le reste de la plèbe urbaine. Ils sont nommés à part ; ils reçoivent, les jours de distribution publique, des sportules plus considérables. Dans la hiérarchie municipale ils sont classés aussitôt après l'ordre augustal, qui forme l'aristocratie du monde plébéien. Mais il arrive souvent que des Dendrophores sont en même temps Sévirs Augustaux. Nous en connaissons de nombreux exemples à Ostie, Gabies, Pouzzoles, Alba Fucensis, Milan, Brescia, Lyon, Vieu en Val Romey. Volontiers aussi les Dendrophores élisent des Sévirs à la présidence.* A Lyon, Munatius Félix est curateur des deux collèges. Les Augustaux font preuve d'une considération particulière pour les Dendrophores. Le 1er Juin 197, l'ordre augustal de _Verulæ_ inaugurait la statue d'un décurion, son protecteur. La cérémonie se termina, comme toujours, par un festin ; et le héros de la fête en paya les frais. Décurions et Augustaux purent banqueter à dix deniers par tête ; le reste du peuple ne toucha qu'un denier par homme ; mais les Dendrophores reçurent trois deniers, le pain et le vin. Ailleurs, eux-mêmes s'intitulent Dendrophores Augustaux,* comme s'ils assuraient le service d'un culte impérial ; et ce titre officiel les pare d'un éclat emprunté à la majesté du souverain. Du reste aucun collège, aucune confrérie ne manifeste plus de dévouement et de dévotion aux empereurs. Ils élèvent des statues et des bustes à l'Auguste, dédient son portrait dans leur salle corporative,* associent son _numen_ à celui des Tout-Puissants qu'ils adorent,* consacrent des autels en l'honneur de la « Maison Divine, » offrent en corps ou isolément des sacrifices pour le salut du prince et de sa famille.* Ces témoignages constants de loyalisme, l'étroite union des Dendrophores avec les Sévirs, leur droit, en certaines villes, à l'augustalité, la présence d'affranchis impériaux parmi les confrères, tout porte à croire que la protection impériale leur était spécialement acquise. Elle se mesurait sans doute aux services qu'attendait d'eux l'État ; mais elle pouvait être une conséquence de la faveur dont jouissait le culte auprès de beaucoup d'empereurs et surtout d'impératrices. Les Dendrophores de Rome et d'Ostie paraissent avoir été les protégés directs des Antonins et des Sévères. Partout le collège obtient l'appui des représentants et délégués du prince, gouverneurs de provinces,* procurateurs, juges régionaux (_Juridici_), gouverneurs de villes (_Præsides_), inspecteurs-contrôleurs des finances municipales (_Curatores rei publicæ_). A Brescia, au début du 3e siècle, il vote une statue au _Juridicus_ de la région transpadane, personnage consulaire, qui a fait confirmer ses privilèges. Dans l'enceinte même de la commune, les Dendrophores ne manquent point d'illustres patronages. Ils peuvent toujours inscrire en tête de l'album les noms de quelques hommes opulents et influents, dont la libéralité leur est aussi précieuse que le crédit : patrons de la ville, patrons des Augustaux, patrons des autres grandes corporations, chevaliers romains, négociants enrichis, affranchis parvenus. Mais ils comptent avant tout sur l'assistance des citoyens qui occupent les dignités municipales. Parmi leurs patrons il y a toujours des membres de la curie, des magistrats municipaux, duumvirs, décurions, préteurs, édiles, questeurs du trésor, curateurs du registre des comptes, curateurs des approvisionnements de blé, des prêtres municipaux, pontifes, augures, flamines, clergé de la Mère des Dieux. Ils ont pour patronnes des femmes de décurions, des prêtresses de _Divæ_. Quelques-uns de ces patrons acceptent même la présidence. Le monde officiel a des égards pour le « très honorable* » et puissant collège.
 
 *) Ex. à Ostie et Brescia.
 
-*) Ex. à Lyon et Amsoldingen ; cf. Beurlier, Culte rendu aux empereurs, 1890, p. 258.
+*) Ex. à Lyon et Amsoldingen ; cf. Beurlier, _Culte rendu aux empereurs_, 1890, p. 258.
 
-*) Ex. à Ostie, _CIL._ XIV, 97 (Antonin le pieux), 107 (L. Aurelius Verus) ; Thugga en Afrique (Alexandre Sévère ?).
+*) Ex. à Ostie, _CIL._ 14, 97 (Antonin le pieux), 107 (L. Aurelius Verus) ; Thugga en Afrique (Alexandre Sévère ? ).
 
-*) Les Dendr. d'Ostie dédient leur schola « Numinidomus Aug., » ihid. 45.
+*) Les Dendr. d'Ostie dédient leur schola « Numini domus Aug., » _ibid._ 45.
 
 *) Ex. à Valence, Lyon, Tomi.
 
 *) Ex. à Tomi, au début du 3e s.
 
-*) _CIL._ X, 1786 : « a honestissimum ».
+*) _CIL._ 10, 1786 : « honestissimum. »
 
 Aussi voyons-nous s'exalter chez les Dendrophores l'orgueil corporatif et le patriotisme local. Ils ne se contentent pas d'associer la prospérité de leur ville au salut de l'empereur dans leurs prières et leurs sacrifices. S'agit-il d'élever un monument à quelque bienfaiteur de la cité ? Ils sont parmi les premiers souscripteurs. Parfois, avec les deux autres collèges, ou même avec un seul, ils se font les interprètes de la population et supportent tous les frais. Un _Juridicus per Flaminiam et Umbriam_ s'était donné beaucoup de mal pour prévenir une disette dans le pays ; ce furent les trois collèges des villes soumises à sa juridiction qui lui élevèrent une statue dans Rimini. Chez les Ligures Bæbiani, un vétéran de Marc Aurèle et de Vérus, décurion de son municipe, n'avait cessé de prouver un exemplaire attachement h ses concitoyens ; ce furent les Dendrophores qui s'unirent aux Fabres pour l'honorer d'une statue. A Antinum, chez les Marses, ils se joignent aux Centonaires pour en offrir une à Q. Novius Félix, membre important de l'aristocratie régionale, patron du municipe. D'autre part, quelques-unes de leurs fêtes domestiques deviennent facilement celles de la cité tout entière. Quand ils érigent la statue d'un généreux patron, c'est très souvent sur le forum ou sur un terrain public mis à leur disposition par la municipalité. Le jour de la dédicace est un jour d'allégresse générale ; toute la ville prend part à la cérémonie et même au banquet. Dans le petit municipe d'Eburum, on se souvint longtemps d'un certain 28 mars. Le personnage qu'immortalisait le marbre des Dendrophores distribua des sesterces à tout le monde, 20 (environ 5 fr. 33) à chaque autre patron et aux anciens magistrats, 18 (4 fr. 80) aux décurions, 12 (3 fr. 20) aux Augustaux, quelques-uns seulement, mais avec des portions de viande, à chaque homme de la plèbe ; il donna un millier de sesterces à son collège, autant aux Fabres, et invita tous les confrères à un festin. A Antinum, dans des circonstances analogues, Tin patron remit à chaque Dendrophore 12 sesterces pour le repas public ; mais en même temps chaque décurion en recevait 9, chaque sévir 6, chaque homme de la plèbe urbaine 4.
 
 Les fêtes religieuses du collège ne pouvaient être moins belles que ses fêtes civiques. Les confrères n'oublient pas qu'ils sont les Dendrophores de la Mère des Dieux et d'Attis. Ils ont à cœur de se montrer dignes du couple divin qui les prend sous sa tutelle, dignes aussi de la cité dont ils sont les mandataires. Ils organisent avec apparat leur procession de l'_Arbor intrat_ et figurent, précédés de leur bannière,* au cortège des _Hilaria_. On les voit aux principaux tauroboles ; eux-mêmes en font célébrer à leurs frais.* Insignes bienfaiteurs du sanctuaire, ils l'ornent d'ex-voto et y consacrent des statues à leur génie Attis.* Si le temple est ravagé par un incendie, volontiers ils contribuent de leurs deniers à sa restauration, à sa décoration picturale et à l'achat de nouvelles images cultuelles. S'agit-il de remplacer le matériel usé, de remettre à neuf le char de la déesse, ils apportent leur cotisation.* Aussi ne peut-on leur refuser certains privilèges. L'un d'eux, à Ostie, en 203, désira placer dans le _Campus Matris Deum_ l'image de son fils, un petit enfant qu'il venait de perdre ; le Curateur des édifices sacrés lui en accorda l'autorisation.* En général, ils installent leur _Schola_ dans l'enceinte ou à proximité du Metrôon ; et quand la confrérie des Cannophores est trop pauvre, ils lui offrent l'hospitalité. Ils se plaisent à l'ombre sacrée du temple, dans la compagnie des Religieux et des Initiés.* Il leur arrive d'v voisiner avec Mithra, qui parfois venait chercher asile auprès de l'Idéenne ; quelques-uns finissent par associer les deux religions : un Dendrophore de Milan occupe le grade de Lion dans la hiérarchie mystique des Mithriastes. Quand leur local corporatif est situé dans une autre partie de la ville, il comprend une chapelle. Parfois même il a, comme à Cimiez, l'aspect d'un petit temple, avec pronaos.* Dès l'entrée, sur la mosaïque du sol, on lit de pieuses maximes qu'accompagnent des symboles.* Nombreuses sont les statues et les statuettes divines, en marbre, en bronze, en argent, dons de patrons, d'honoraires, de pères, de mères, de confrères, de prêtres, d'_apparatores_. Aux côtés de Cybèle, d'Attis et de Silvain Dendrophore, on aperçoit Terra Mater,* Castor et Pollux,* que la théologie métroaque transformait en acolytes de la Grande Mère, Mars,* dieu printanier, rapproché par les Romains de leur Dame des Victoires, Virtus, qui est identifiée à Bellone,* des divinités topiques,* sans parler des empereurs et des _Divæ_. Le Collège a ses autels propres, majeur et mineur, où les présidents en toge blanche peuvent brûler l'encens et répandre le vin.* Les « Pères » et les « Mères » ont-ils aussi des attributions religieuses, comme dans les Orgéons, dans les thiases bachiques, dans les communautés mithriaques, isiaques, syriennes et juives, comme enfin dans les dendrophories grecques, où le Père prenait rang aussitôt après le prêtre, avant l'Archidendrophore ? On n'en peut douter puisque certaines Mères portent le titre de _Matres sacrorum_.* A Ostie, un même personnage est _Pater et Sacerdos_.* Les confrères entretiennent d'excellentes relations avec le clergé. Ils l'invitent à leurs fêtes intimes,* consultent l'Archigalle,* inscrivent des prêtres sur la liste de leurs patrons, en nomment à la présidence du collège,* leur élèvent même quelquefois des statues avec la dédicace : « au plus digne.* » Le personnel du sacerdoce, il est vrai, se recrute souvent parmi leurs chefs et leurs membres d'honneur Ils participent eux-mêmes à l'élection des _Antistites_, là où elle est confiée à la communauté métroaque.*
 
-*) Les bannières des corporations prennent part à toutes les grandes cérémonies ; cf. Treb.Poll., Gallien. 8 ; Vopisc., Aurelian. 34. Vexillifer des Fabri: _CIL._ III, 7900.
+*) Les bannières des corporations prennent part à toutes les grandes cérémonies ; cf. Treb. Poll., _Gallien._ 8 ; Vopisc., _Aurelian._ 34. Vexillifer des _Fabri_ : _CIL._ 3, 7900.
 
-*) A Lyon, Valence et Mactaris ; cf. supra, p. 159, n. 2, a, h, y, s, ee.
+*) A Lyon, Valence et Mactaris ; cf. supra, p. 159, n. 2, _a_, _h_, _y_, _z_, _ee_.
 
 *) Ex. à Tomi et Rusicade.
 
 *) Ex. à Sétif en 288.
 
-*) _CIL._ XIV, 324.
+*) _CIL._ 14, 324.
 
-*) Ex. à Mactaris et Sétif, « una cum religiosis'et dendroforis ».
+*) Ex. à Mactaris et Sétif, « una cum religiosis et dendroforis. »
 
-*) _CIL._ V, 7904 : « Aram et pavimentum scholae et pronavi, etc. ».
+*) _CIL._ 5, 7904 : « Aram et pavimentum scholae et pronavi, etc. »
 
-*) Ex. à Rome ; cf. infra, chap. ix.
+*) Ex. à Rome ; cf. infra, chap. 9.
 
-*) A Ostie, _CIL._ XIV, 67 ; don d'un Honoratus, le 19 avril 142.
+*) A Ostie, _CIL._ 14, 67 ; don d'un _Honoratus_, le 19 avril 142.
 
 *) Ex. à Cirta, ex-voto d'un curateur du collège.
 
-*) A Ostie, 33 ; don d'un Quinquennal et Ilonoratus, 15 mai 143.
+*) A Ostie, 33 ; don d'un Quinquennal et _Honoratus_, 15 mai 143.
 
-*) Ibid. 69, 70 ; statuette en argent, du poids de deux livres, don d'une Mater.
+*) _Ibid._ 69, 70 ; statuette en argent, du poids de deux livres, don d'une _Mater_.
 
-*) Le Dieu Nemausus, _CIL._ XII, 5953 et add.
+*) Le Dieu Nemausus, _CIL._ 12, 5953 et add.
 
-*) Cf. le réglement d'un collège de Diane et Antinoüs ; _CIL._ XIV, 2112.
+*) Cf. le réglement d'un collège de Diane et Antinoüs ; _CIL._ 14, 2112.
 
-*) Cf. Cumont, Mithra I, p. 334, n. 3 ; Waltzing I, pp. 253, 447 et 524. Oh honorem sacri matratus, sur une inscr. de Cologne. A Carthage, dans le culte de Jupiter Hammon, une mater sacrorum est rangée dans la catégorie des sacerdotes : Cagnat, Ann. épigr., 1899, 46.
+*) Cf. Cumont, _Mithra_ 1, p. 334, n. 3 ; Waltzing 1, pp. 253, 447 et 524. _Ob honorem sacri matratus_, sur une inscr. de Cologne. A Carthage, dans le culte de Jupiter Hammon, une _mater sacrorum_ est rangée dans la catégorie des _sacerdotes_ : Cagnat, _Ann. épigr._, 1899, 46.
 
-*) _CIL._ XIV, 70.
+*) _CIL._ 14, 70.
 
-*) Ibid. ; une statue donnée au collège a d'abord été remise entre les mains du prêtre, cpii a été invité à faire lui-même la dédicace.
+*) _Ibid._ ; une statue donnée au collège a d'abord été remise entre les mains du prêtre, qui a été invité à faire lui-même la dédicace.
 
-*) _CIL._ XIII, 1752.
+*) _CIL._ 13, 1752.
 
-*) Ex. à Cumes en 251, _CIL._ X, 3699.
+*) Ex. à Cumes en 251, _CIL._ 10, 3699.
 
-*) Ex. à Clierchell.
+*) Ex. à Cherchell.
 
-*) Ex. à Clierchell, à Suessula.
+*) Ex. à Cherchell, à Suessula.
 
 *) Ex. à Mactaris.
 
@@ -817,37 +816,37 @@ En somme, la corporation ne paraît pas avoir porté tort à la confrérie. Le c
 
 Les confréries de Cannophores et de Dendrophores furent officiellement dissoutes en 415. A cette date, une loi de Théodose et Honorius supprime les associations religieuses d'un caractère païen, en leur confisquant trésors et immeubles. Parmi les collèges dont le fisc s'approprie les biens affectés à des œuvres pieuses,* figurent spécialement les Dendrophores.
 
-*) « Omnis expensa... ad superstitionem pertinens, ...omniaque loca quae dendrophori... tenuerunt epholis (epulis ?) vel sumptibus depulata etc». Mais il est vraisemblable que Théodose laissa subsister la corporation civile avec ses charges civiles.
+*) « Omnis expensa... ad superstitionem pertinens, ...omniaque loca quae dendrophori... tenuerunt epholis (epulis ? ) vel sumptibus deputata etc. » Mais il est vraisemblable que Théodose laissa subsister la corporation civile avec ses charges civiles.
 
 ## 3\.
 
 Les Doryphores ou Hastifères ne peuvent être confondus avec les Dendrophores.* Nous voyons les deux collèges coexister séparément en Narbonnaise, à Vienne.* Des compagnies d'Hastifères sont signalées sur le _Limes_ germanique, à Cologne et au Castellum des Mattiaci (Kastel), qui défendait le passage du Rhin en face de Mayence.* Leur nom fait supposer qu'il s'agit de gens d'armes et que ces confréries de la lance constituaient une milice municipale. A Kastel, l'institution paraît avoir pris un caractère officiel entre 224 et 236 ; c'est précisément le temps où les premières invasions commencent à inquiéter les villes rhénanes. Les Hastifères de 224 se disent aussi les _pâtres_ résidant au château ; et ils consacrent un autel au _Numen_ de l'Auguste, le 24 mars, jour du _Sanguis_. On a comparé ces pâtres aux _boukoloi_ des cultes orgiastiques de l'Asie Mineure. Ils porteraient un titre mystique. Pourquoi ne seraient-ils point tout simplement des gardiens de troupeaux ? Dans les pâturages d'une frontière peu sûre, ils échangent la pacifique houlette contre une arme guerrière. Ils adorent la déesse du Courage, tantôt Virtus Bellona, tantôt Juno Virtus. Mais il est naturel de les voir participer aux fêtes d'Attis. Ils se sont mis aussi sous le patronage du dieu pasteur. Sans doute confondent-ils dans la même dévotion Bellone et Cybèle Bérécynthienne, qui parfois emprunte le nom même de Minerve ; en 236, ils restaurent et consacrent à Bellone un mont Vatican, tumulus sacré qui renfermait, ce semble, la fosse taurobolique. A Rome, dans un complot contre l'empereur Commode, les assassins s'étaient déguisés en Doryphores pour se mêler à la mascarade et au cortège des Hilaria. Ces Doryphores dont ils avaient pris le costume et la lance sont-ils les prétoriens du César ou les Hastifères de la Mère des Dieux ? Des confréries d'Hastifères n'auraient-elles pas remplacé, dans le culte métroaque, les fanatiques armés de javelots qui gesticulaient comme des furieux, dit Lucrèce, devant l'image processionnelle ? Même sous l'Empire, les fanatiques de Bellone portent comme insignes le glaive ou la double hache ; et ils ont coutume de lui dédier des hastes.* En Orient, des confrères Corybantes exécutaient aux fêtes de la Mère des Dieux la danse des armes.* Ils figuraient les Corybantes mythiques, dieux guerriers que l'imagerie religieuse conservait encore aux côtés de Rhéa-Cybèle et que les théologiens désignaient comme les Doryphores d'Attis.* Peut-être les Hastifères exerçaient-ils des fonctions rituelles de même ordre.
 
-*) Comme le faisait Mommsen ; cf. Wesld. Z., Korresp. Bla.lt VIII, 1889, pp. 19 ss, 52.
+*) Comme le faisait Mommsen ; cf. _Westd. Z., Korresp. Blatt_ 8, 1889, pp. 19 ss, 52.
 
-*) _CIL._ XII, 1814: « Namerius Euprepes magist(er) astiferor(um) ».
+*) _CIL._ 12, 1814 : « Namerius Euprepes magist(er) astiferor(um). »
 
-*) _CIL._ XIII, 7250: « Vicanis [hastif]eris Castelli, etc. » ; 7281 : «In h. d. d., Deae Virtuti Bellonae montem Vaticanum vetustate conlabsum restitueront liastiferi civitatis Mattiacor., etc. » (23 août 236) ; 73J7 : « In h. d. d., numini Aug hastiferi sive pastores consistentes Kastello, etc. » (24 mars 224) ; à Cologne : « Genio hastifer(or)um » ; bibliogr. dans Hepding, _op. l._, p. 169.
+*) _CIL._ 13, 7250 : « Vicanis [hastif]eris Castelli, etc. » ; 7281 : « In h. d. d., Deae Virtuti Bellonae montem Vaticanum vetustate conlabsum restituerunt hastiferi civitatis Mattiacor., etc. » (23 août 236) ; 7317 : « In h. d. d., numini Aug hastiferi sive pastores consistentes Kastello, etc. » (24 mars 224) ; à Cologne : « Genio hastifer(or)um » ; bibliogr. dans Hepding, _op. l._, p. 169.
 
-*) _CIL._ VI, 2232.
+*) _CIL._ 6, 2232.
 
-*) Demetr. Skeps. (ne s.) dans Strab., X, 3, 21. Corybantes à Erythrae, me s. avant notre ère ; Dittenberger, Syll. 370 ; Michel, Rec. d'inscr. gr. 839. Apollonius, Argon. 1, 113-5, décrit la même danse, exécutée par les Argonautes eux-mêmes en l'honneur de la Dindymène. Le motif paraît être représenté sur une mosaïque noire à fond blanc, dans le Metrôon d'Ostie.
+*) Demetr. Skeps. (2e s.) dans Strab., 10, 3, 21. Corybantes à Erythrae, 3e s. avant notre ère ; Dittenberger, _Syll._ 370 ; Michel, _Rec. d'inscr. gr._ 839. Apollonius, _Argon._ 1, 1134, décrit la même danse, exécutée par les Argonautes eux-mêmes en l'honneur de la Dindymène. Le motif paraît être représenté sur une mosaïque noire à fond blanc, dans le Metrôon d'Ostie.
 
-*) Julian., Or. V, p. 168 B. Sur l'origine phrygienne du mot Corybantes (Curbantes, dans Callimaque) = les démons dansant, cf. Vanicek, Fremdwoerter im gr. u. lat. 1878, s. v.
+*) Julian., _Or._ 5, p. 168 B. Sur l'origine phrygienne du mot Corybantes (Curbantes, dans Callimaque) = les démons dansant, cf. Vanicek, _Fremdwoerter im gr. u. lat._ 1878, s. v.
 
 Rome possédait une confrérie de Compagnons Baladins de Cybèle, _Sodales Ballatores Cybelae_.* Ils dansaient devant les autels pendant les sacrifices, et devant les saintes images pendant les processions. L'élément orchestique était fort important dans le culte phrygien. Aussi le mythe essayait-il d'en expliquer l'origine. On contait que la déesse dansait en présence d'Attis, pour se faire aimer du jeune berger, qu'Attis avait dansé devant la déesse, pour lui rendre hommage, et enfin que Rhéa, passionnée pour cet art, en avait elle-même imposé la pratique aux Corybantes de Phrygie.* A Autun, les Danseurs de la Bérécynthienne ont gardé leur ancien nom de Corybantes* ; et ce type de confréries est évidemment importé d'Orient.* Étaient-ils armés du glaive et du bouclier ? Leur ballet consistait-il en un pas d'armes ? Peut-être ces Corybantes remplaçaient-ils les attributs guerriers par des tambourins ou plutôt par des cymbales ; car c'étaient en général les cymbales qui rythmaient les danses.* La danse rituelle s'exécute d'abord sur un rythme à trois temps, comme le tripudium des Galles. Mais, dans ce culte orgiastique, elle ne tarde pas à se transformer en mouvements violents et effrénés. Sursauts brusques de tout le corps, genoux ployés, tête rejetée en arrière, bras levés au-dessus du visage, contorsions du buste, elle manifeste toute la mimique de la fureur sacrée.* Enfin, après avoir tourné autour de l'autel ou de l'icône, les danseurs tournoient sur eux-mêmes ; le mouvement se précipite, et un dernier vertige les abat aux pieds de la divinité. La confrérie romaine du « ballet » se composait d'affranchis dont beaucoup, sinon tous, appartenaient à la maison impériale. Elle était funéraire en même temps que religieuse. Son terrain de sépulture se trouvait le long de la Via Ostiensis, entre l'Almo et la basilique de saint Paul, dans une région particulièrement chère aux serviteurs de la Mère des Dieux, qui avaient installé là leur principale nécropole.
 
-*) _CIL._ VI, 2265 : « D. M. T. Flavio Chrysopaedi sodales, etc.. » Henzen, suivi par Hepding, Attis, p. 158, n. 4, croit à tort que ce sont des Galles.
+*) _CIL._ 6, 2265 : « D. M. T. Flavio Chrysopaedi sodales, etc. » Henzen, suivi par Hepding, _Attis_, p. 158, n. 4, croit à tort que ce sont des Galles.
 
-*) Arnob. IV, 35 (représentations théâtrales inspirées du mythe) ; Julian., l. c., p. 165 C : [GREC] ; Lucian., De Sait. 8 : [GREC] ; cf. 79, où il réunit les Corybantes aux Satyres et aux Boukoloi des cultes dionysiaques.
+*) Arnob. 4, 35 (représentations théâtrales inspirées du mythe) ; Julian., _l. c._, p. 165 C : [GREC] ; Lucian., _De Salt._ 8 : [GREC] ; cf. 79, où il réunit les Corybantes aux Satyres et aux Boukoloi des cultes dionysiaques.
 
 *) Supra, p. 133, n. 7.
 
-*) Cf. des [GREC], à Kotiaion : CIG. 3827 add. ; des [GREC] à Ephèse et à Magnésie du Méandre : Poland, Gesch. d. gr. Vereinswesens, p. 398.
+*) Cf. des [GREC], à Kotiaion : _CIG._ 3827 add. ; des [GREC] à Éphèse et à Magnésie du Méandre : Poland, _Gesch. d. gr. Vereinswesens_, p. 398.
 
-*) Corybantes d'Autun, v. supra ; Suidas, s. v. [GREC] ; Isidor., Etymol. 111,22, Il (Migne, Pair. Lat. LXXXII) : « Dicta autem cymbala, quia cum ballematia simul percutiuntur ; ita enim Graeci dicunt cymbala ballematica. » Les danses s'accompagnaient parfois aussi de chants ; cf. les ballistea, airs que l'on chante en dansant, à certaines fêtes (Vopisc., Aurel. 6), et les [GREC] des Grecs.
+*) Corybantes d'Autun, v. supra ; Suidas, s. v. [GREC] ; Isidor., _Etymol._ 3, 22, 11 (Migne, _Patr. Lat._ 82) : « Dicta autem cymbala, quia cum ballematia simul percutiuntur ; ita enim Graeci dicunt cymbala ballematica. » Les danses s'accompagnaient parfois aussi de chants ; cf. les _ballistea_, airs que l'on chante en dansant, à certaines fêtes (Vopisc., _Aurel._ 6), et les [GREC] des Grecs.
 
-*) Sur la jactalio fanatica, cf. chapitre vin : Les Galles.
+*) Sur la _jactatio fanatica_, cf. chapitre 8 : Les Galles.
 
 ## 4\.
 
@@ -857,53 +856,53 @@ Ces confréries se sont organisées elles-mêmes autour d'un temple ou d'une sim
 
 Au 3e siècle, une chapelle dédiée à la Mère des Dieux et à Navis Salvia se dressait au pied de l'Aventin, près du port de Rome* : un collège de _Cultores_ y est attaché, qui doit être en même temps, selon la coutume, une confrérie de la mort. Les confrères appartiennent aux deux sexes. Ce sont des gens du quartier, marins ou marchands du port, dévots de la déesse qui avait accompli le miracle d'Ostie et protégeait la navigation du Tibre. Le président ou « Maître » que nous connaissons est un affranchi. Deux autels votifs perpétuent le nom de l'affranchie Claudia Syntychè ; elle avait une foi fervente en Celle qui favorisa de plusieurs miracles la famille Claudienne.
 
-*) Cf. supra, p. 66. Sur le caractère funéraire des collèges de cultores, Waltzing, I, p. 260, avec bibliogr. et liste de 113 confréries connues.
+*) Cf. supra, p. 66. Sur le caractère funéraire des collèges de _cultores_, Waltzing, 1, p. 260, avec bibliogr. et liste de 113 confréries connues.
 
 A Salone, dès la première moitié du 1er siècle, il existait des _Cultores Matris Magnae Cognationis_.* Un Sévir augustal, C. Turranius Cronius, affranchi d'une importante famille de la région,* avait fait vœu de dédier un sanctuaire et un autel à la Grande Mère de la Parenté. Il avait élevé, orné, meublé l'édifice à ses frais, sur la rive droite et près de la source du Giadro. Une confrérie se forma qui fut appelée _Cognatio_. Elle s'inspirait des syggénies grecques, dont on connaît plusieurs exemples à Smyrne, Halicarnasse, Kyaneai (Lydie), Cos, Théra, et en Crète.* Les confrères, de condition libertine, étaient tous unis par les liens du sang, apparentés par les femmes comme parles hommes. Peut-être choisit-on précisément Cybèle comme protectrice de cette association familiale, parce qu'elle était la Mère et Parente de tous les Dieux ; mais la popularité de son culte à Salone suffirait pour expliquer ce choix. L'une des principales fêtes devait être celle des Caristies ou de la chère Parenté, _Cara Cognatio_, qui avait lieu le 22 février. Mais cette fête des vivants suivait immédiatement les Parentalies, fête des morts. On célébrait sans doute l'une et l'autre, selon la tradition des collèges funéraires ; car il est probable que la confrérie de Salone avait sa sépulture commune. Parmi les associations purement funéraires qui pullulaient en Italie, et dont Septime Sévère autorisa l'extension dans les provinces, beaucoup durent se mettre sous la tutelle du couple phrygien. Car elles se consacrent de préférence aux divinités chthoniennes. Pouvaient-elles trouver un plus puissant patronage que celui d'Attis ressuscité ? Cybèle n'était-elle pas depuis des siècles, dans ses pays d'Orient, la gardienne des morts ?
 
-*) _CIL._ III, 8675. Les nos 8676, 8687 se rapportent à une autre cognatio, consacrée à Vénus.
+*) _CIL._ 3, 8675. Les n°s 8676, 8687 se rapportent à une autre _cognatio_, consacrée à Vénus.
 
-*) Turranius ou Turannius, ibid. 2085, 2744, 2810, 2816, 2871.
+*) Turranius ou Turannius, _ibid._ 2085, 2744, 2810, 2816, 2871.
 
-*) Ziebarth, Griech. Vereinswesen, 1896, pp.7-10 ; Poland, op. L, 1909, p. 87 s. Celle de Crète, CIG. 2562, date de l'époque impériale.
+*) Ziebarth, _Griech. Vereinswesen_, 1896, pp. 7-10 ; Poland, _op. l._, 1909, p. 87 s. Celle de Crète, _CIG._ 2562, date de l'époque impériale.
 
 Les mystes des deux sexes se désignent d'une façon générale sous le nom de _Sacrati_,* c'est-à-dire d'initiés ; sacrement et mystère sont devenus synonymes. Les Co-Initiés sont les _Consecranei_, terme qui traduit le vocable grec de Symmystes et se déforme, dans la langue provinciale, en _Consacrani_.* Leurs confréries peuvent être mixtes ; dans certaines villes, cependant, les femmes constituaient une confrérie à part.* Frères et sœurs en Attis ont à leur tête des Pères et des Mères, élus sans doute par la communauté sous le contrôle du clergé. A Rome, au 4e siècle, les Clarissimes et les nobles matrones qui se glorifient d'avoir reçu le baptême taurobolique prennent le nom de « Tauroboliés. » L'un d'eux, Vettius Agorius Praetextatus, est qualifié de _Pius Mystes_,* expression empruntée à l'Orient et que nous retrouvons dans les mystères de Samothrace.* Mais l'initiation majeure leur a conféré, dans la hiérarchie des adeptes, un titre supérieur ; Rufius Caeonius s'intitule chef des Mystes, _Dux Misticus_.* Ces personnages, toutefois, pour des raisons politiques autant que religieuses, se sont fait initier également aux religions d'Isis, de Mithra, de Demeter-Cérès, de Dionysos-Liber. Le véritable zélateur ne connaît pas cet éclectisme. Car le premier article du credo, pour un myste, est d'admettre que ses dieux sont les plus puissants et les seuls Tout-Puissants. On est de la Religion, ce qui veut dire que cette religion est exclusive.*
 
-*) « Sacrati utriusque sexus, » à Mactaris ; cf. dans Baehrens, Poet. Lat. Min. III p. 286 s, Contra paganos 76.
+*) « Sacrati utriusque sexus, » à Mactaris ; cf. dans Baehrens, _Poet. Lat. Min._ 3 p. 286 s, _Contra paganos_ 76.
 
-*) _CIL._ XIII, 7865, à Pier, près de Düren ; même terme, III, 2109 (Salone), VII, 1039 (Angleterre), XIII, 147 et 397 (Pyrénées).
+*) _CIL._ 13, 7865, à Pier, près de Düren ; même terme, 3, 2109 (Salone), 8, 1039 (Angleterre), 13, 147 et 397 (Pyrénées).
 
-*) A Sofia, époque de M. Aurèle : Walter dans Ath. Mitlh. 1910, p. 144, Elles sont désignées sous le nom de Mystriai.
+*) A Sofia, époque de M. Aurèle : Walter dans _Ath. Mitt._ 1910, p. 144. Elles sont désignées sous le nom de Mystriai.
 
-*) _CIL._ VI, 1779.
+*) _CIL._ 6, 1779.
 
-*) _CIL._ III, 713-7J7, 720 ; elle traduisait la formule grecque MûcrTïjç èjasSr) ;. Dans laVulgate, le titre d'Eusébès est traduit par le vocable Religiosus.
+*) _CIL._ 3, 713-717, 720 ; elle traduisait la formule grecque [GREC]. Dans la Vulgate, le titre d'Eusébès est traduit par le vocable _Religiosus_.
 
-*) Cf. supra, p. 172 ; ce titre est l'équivalent de celui d'Archimyste ou de Mvstarque ou de Patromyste.
+*) Cf. supra, p. 172 ; ce titre est l'équivalent de celui d'Archimyste ou de Mystarque ou de Patromyste.
 
-*) Cf. Apul., Met. XI, 14 : « E cohorte Religionis unus » ; 25 : « Te jam nunc obsequio Religionis nostrae dedica. » Ce mot Ileligio revient souvent dans Apulée. Pour la M. d. D.,cf. _CIL._ XII, 405 ; pour Caelestis, II, 4310.
+*) Cf. Apul., _Met._ 11, 14 : « E cohorte Religionis unus » ; 25 : « Te jam nunc obsequio Religionis nostrae dedica. » Ce mot _Religio_ revient souvent dans Apulée. Pour la M. d. D., cf. _CIL._ 12, 405 ; pour Caelestis, 2, 4310.
 
 Celui qui s'intitule Religieux de la Grande Mère* s'est donc voué au culte de sa Dame. Par certaines pratiques de dévotion et par des marques extérieures il prétend se distinguer des simples initiés.* Il s'astreint sans doute à des obligations spéciales d'abstinence et de pénitence.* Il en est qui font vœu d'héberger les Galles mendiants.* D'autres, imitant les Galles « à la longue chevelure, » laissent pousser leurs cheveux en l'honneur d'Attis ; ce sont les « Religieux chevelus.* » D'autres aussi s'affublent d'un costume particulier, _religiosa vestis_.* Mais il ne faudrait pas les considérer comme des moines païens ; ils sont mariés et pères de famille.* Ils sont organisés en petites églises, qui ont leurs dignitaires, leurs fonctionnaires, leur fortune et leurs intérêts temporels. On se réunit dans un local qui n'est pas nécessairement le temple. Les Religieux de Pouzzoles sont assez nombreux et assez riches pour posséder un _ager_, entouré d'un portique et de sièges en pierre ; c'est leur cloître et leur Schola.* Le trésor, constitué par des cotisations, des amendes, des fondations, des dons, permet de bâtir des chapelles, d'orner les sanctuaires, d'accomplir les sacrifices et d'entretenir le culte. Les Religieux de Sitifis participent, en 228, à la restauration du _Religiosissimum templum_ des Omnipotents, ruiné par un incendie, à la réfection des autels et d'un portique décoré de peintures murales, à l'érection d'une statue de Liber « devant les portes du sanctuaire, » au rajeunissement du matériel, à l'achat d'un dais neuf, avec pompons de laine, pour le char processionnel, et de statues cultuelles en argent pour la cella.* Sur le marbre dédicatoire, au-dessous du texte qui énumérait leurs bienfaits, les donateurs s'étaient récompensés eux-mêmes en faisant graver leurs noms. Ils voulaient faire parler d'eux, disaient-ils, éternellement. Mais les noms ont péri, comme le temple et les statues divines. C'est grand dommage ; il eût été fort intéressant de savoir dans quel milieu se recrutait l'église métroaque de cette petite ville africaine. En Italie, la majorité des Religieux était formée d'affranchis. L'église était accessible aux esclaves, qui venaient y chercher, pour leur réconfort, l'intimité d'une famille et l'espérance du bonheur. La foi, surtout la croyance en l'efficacité du taurobole, y conduisaient les ingénus, et non des moindres. Le Religieux qui, dans le roman d'Apulée, héberge les Galles, est l'un des premiers citoyens de son municipe. En Numidie, un décurion de la colonie de Cherchell est de la Religion ; c'est à ce titre qu'on l'a choisi pour _Antistes_. La fraternité en Attis groupait les éléments les plus divers, effaçait un peu les distinctions de la hiérarchie sociale. Elle rapprochait aussi les âges. Car on peut être initié enfant ou vieillard ; et beaucoup de parents font consacrer leurs fils et leurs filles dès la naissance.* Enfin la religion de Cybèle ne séparait pas les sexes, comme celle de Mithra, qui ne laissait aux femmes qu'une place minime dans l'église et les éliminait du sacerdoce. Au contraire, elle attribue aux deux sexes le même rôle, partage entre eux le ministère, les convie aux mêmes sacrements et aux mêmes fêtes ; elle élève les femmes au rang de « sœurs, » de « mères » et de prêtresses. Celles-ci lui furent reconnaissantes de satisfaire à la fois leur dévotion passionnée et leur ambition. Zélatrices ardentes, elles mirent à son service leur esprit de prosélytisme. Dans la compétition des églises rivales, qui se disputaient l'empire des âmes, la « sainte milice » de la Mère des Dieux n'eut pas de meilleures recrues.
 
-*) _CIL._ VI, 2262 : « D. M., L. Vettio Syntrophio, Religioso a Maire Magna capillato, Vettia Amor de suo fecit posterisque eorum » ; IX, 734, à Larinum : « C. Iulius Epaenitus, Religiosus, sibi et L. Raio Felici saccrdoti Matris Deum b. m. p. posterisque suis » (sur le monument sont sculptés un tympanon, des cymbales et un bonnet phrygien) ; VIII, 9401 : <> ...enio C. f. Fatali, decurioni splendidissimae coloniae Caesariensis, Religioso, antistiti sanctissimi numinis Matris Deum, etc. » (à moins que religiosus ne soit que l'épithète d'antistes) ; 8 157 : Religiosi de Mater Deum Phrygia ( ? ) et Attis, à Sétif, en 288 ; X, 1894 : Ager Religiosorurn ; « C. Iulius Aquilinus porticus et sedilia de suo exstruxit » (s'agil-il des Religieux de Mater Deum ?) ; cf. VI, 2263 : « Sex. Annius Celer, Religiosus de Capitolio » (sans doute de la Dea Virgo Caelestis, praesentissimum numen loci Montis Tarpei, cf. Not. Scavi, 1892, p. 407). Religieux d'Esculape, à Lambessa : Cagnat, Ann. épigr. 1908, 11. II est possible que l'épitaphe _CIL._ VI, 10558 : « Bene valeas, religiose, qui hoc legis •>, appartienne aussi à un Religieux.
+*) _CIL._ 6, 2262 : « D. M., L. Vettio Syntrophio, _Religioso a Matre Magna capillato_, Vettia Amor de suo fecit posterisque eorum » ; 9, 734, à Larinum : « C. Iulius Epaenitus, _Religiosus_, sibi et L. Raio Felici sacerdoti Matris Deum b. m. p. posterisque suis » (sur le monument sont sculptés un tympanon, des cymbales et un bonnet phrygien) ; 8, 9401 : « ...enio C. f. Fatali, decurioni splendidissimae coloniae Caesariensis, _Religioso_, antistiti sanctissimi numinis Matris Deum, etc. » (à moins que _religiosus_ ne soit que l'épithète d'_antistes_) ; 8457 : _Religiosi_ de Mater Deum Phrygia ( ? ) et Attis, à Sétif, en 288 ; 10, 1894 : _Ager Religiosorum_ ; « C. Iulius Aquilinus porticus et sedilia de suo exstruxit » (s'agil-il des Religieux de Mater Deum ? ) ; cf. 6, 2263 : « Sex. Annius Celer, _Religiosus de Capitolio_ » (sans doute de la Dea Virgo Caelestis, praesentissimum numen loci Montis Tarpei, cf. _Not. Scavi_, 1892, p. 407). Religieux d'Esculape, à Lambessa : Cagnat, _Ann. épigr._ 1908, 11. Il est possible que l'épitaphe _CIL._ 6, 10558 : « Bene valeas, religiose, qui hoc legis, » appartienne aussi à un Religieux.
 
-*) D'une façon générale, Nigidius dans Aul. Gell. IV, 9, donne cette définition : « Religiosus is appellabatur qui nimia et superslitiosa religione sese alligaverat » ; et le mot était pris, dit-il, en mauvaise part. Aulu-Gelle en corrige ainsi le sens péjoratif : « Religiosus pro casto atque observanli cohibentique sese certis leqibus ûnibusque » ; cf. Boissier, Reliqion romaine, I, 1874, in-8. p. 429.
+*) D'une façon générale, Nigidius dans Aul. Gell. 4, 9, donne cette définition : « Religiosus is appellabatur qui _nimia et superstitiosa religione sese alligaverat_ » ; et le mot était pris, dit-il, en mauvaise part. Aulu-Gelle en corrige ainsi le sens péjoratif : « _Religiosus pro casto atque observanti cohibentique sese certis teqibus finibusque » ; cf. Boissier, _Religion romaine_, 1, 1874, in-8. p. 429.
 
-*) [GREC], dans une confrérie bithynienne : Poland, _op. l._, p. 573, B 418 a ; v. aussi supra, p. 119. Les purifications mensuelles paraissent avoir eu lieu le 9 ou le 20 du mois (peut-être le chiffre 20 était-il sacré ; cf. son rôle dans le taurobole) : Schol. ad Nicand., Alexiph. 218.
+*) [GREC], dans une confrérie bithynienne : Poland, _op. l._, p. 573, B 418 a ; v. aussi supra, p. 119. Les purifications mensuelles paraissent avoir eu lieu le 9 ou le 20 du mois (peut-être le chiffre 20 était-il sacré ; cf. son rôle dans le taurobole) : Schol. ad Nicand., _Alexiph._ 218.
 
-*) Apul. VIII, 30 : « Vir principalis et alias religiosus.., tinnitu cymbalorum et sonu tympanorum canlusque Phrygii mulcentibus modulis excitus, procurrit obviam, deamque votivo suscipiens hospitio, etc. ».
+*) Apul. 8, 30 : « Vir principalis et alias _religiosus_..., tinnitu cymbalorum et sonu tympanorum cantusque Phrygii mulcentibus modulis excitus, procurrit obviam, _deamque votivo suscipiens hospitio_, etc. »
 
-*) Anthol. Gr. VI, 234, 1 : [GREC] ; Val. Place., Argon. VII, 635 : «Exsectos comatos » ; Lucian., Tragodop. 114 : [GREC] (= qui pousse librement! ; Apul. VIII, 27 : « Crmes pendulos » ; V, 7 : « Iuppiter rogatus ab Agdesti... condonat ne corpus eius (Attidis) putrescat, crescanl ut comae semper, etc. » ; cf. Ovid., Fast. IV, 238 : « Longa coma (Attidis) ».
+*) _Anthol. Gr._ 6, 234, 1 : [GREC] ; Val. Flace., _Argon._ 7, 635 : « Exsectos comatos » ; Lucian., _Tragodop._ 114 : [GREC] (= qui pousse librement) ; Apul. 8, 27 : « Crines pendulos » ; 5, 7 : « Iuppiter rogatus ab Agdesti... condonat ne corpus eius (Attidis) putrescat, _crescant ut comae semper_, etc. » ; cf. Ovid., _Fast._ 4, 238 : « Longa coma (Attidis). »
 
-*) Stolis des « Myslriai, » à Sofia, v. p. 283, n. 2 ; cf. le taurobolié qui garde ses vêtements ensanglantés, le riche dévot qui s'habille en mendiant, Poel. Lat. Min., I. c., vers 57 ss. « Habitu religioso » dans Apul., Met. XI, 24. Costume spécial des « sacratae » dans le culte de Cérès, à Carthage : Pass. S. Perpet. 18.
+*) _Stolis_ des « Mystriai, » à Sofia, v. p. 283, n. 2 ; cf. le taurobolié qui garde ses vêtements ensanglantés, le riche dévot qui s'habille en mendiant, _Poet. Lat. Min._, _l. c._, vers 57 ss. « Habitu religioso » dans Apul., _Met._ 11, 24. Costume spécial des « sacratae » dans le culte de Cérès, à Carthage : _Pass. S. Perpet._ 18.
 
-*) De même, dans le vocabulaire primitif du christianisme, les Religieux sont tous les membres des communautés chrétiennes, et non seulement ceux qui ont quitté la vie séculière. C'est évidemment par opposition aux Religieux païens que Tertullien, Ad nal. I, 12, appelle les chrétiens « les Religieux de la Croix, » Crucis Religiosi. Il y avait aussi parmi ces chrétiens beaucoup d'ascètes qui continuaient à vivre dans la société commune et dans leur famille ; cf. Duchesne, II. anc. de l'Église, II, 1908, p. 487.
+*) De même, dans le vocabulaire primitif du christianisme, les Religieux sont tous les membres des communautés chrétiennes, et non seulement ceux qui ont quitté la vie séculière. C'est évidemment par opposition aux Religieux païens que Tertullien, _Ad nat._ 1, 12, appelle les chrétiens « les Religieux de la Croix, » _Crucis Religiosi_. Il y avait aussi parmi ces chrétiens beaucoup d'ascètes qui continuaient à vivre dans la société commune et dans leur famille ; cf. Duchesne, _Il. anc. de l'Église_, 2, 1908, p. 487.
 
-*) A moins qu'il ne s'agisse d'un champ funéraire ; cf. cependant _CIL._ X, 1579, où il est question d'un ager cum cisterna et labernis appartenant aux cullores de Jupiter Héliopolitain.
+*) A moins qu'il ne s'agisse d'un champ funéraire ; cf. cependant _CIL._ 10, 1579, où il est question d'un _ager cum cisterna et tabernis_ appartenant aux _cultores_ de Jupiter Héliopolitain.
 
-*) Cf. Graillot dans Rev. archéol., 1904, I, p. 322 ss.
+*) Cf. Graillot dans _Rev. archéol._, 1904, 1, p. 322 ss.
 
-*) Cf. le mythe phrygien de Kybélè composant des remèdes pour purifier les nouveau-nés et guérissant par des chants magiques les enfants qu'elle tient dans ses bras, supra, p. 206. De même, enfants voués à Caelestis : Salv., De gubern. Dei VIII, 2, 10.
+*) Cf. le mythe phrygien de Kybélè composant des remèdes pour purifier les nouveau-nés et guérissant par des chants magiques les enfants qu'elle tient dans ses bras, supra, p. 206. De même, enfants voués à Caelestis : Salv., _De gubern. Dei_ 8, 2, 10.
 
 # Chapitre 8
 
@@ -917,13 +916,13 @@ Ils sont en dehors de la religion officielle. --- 1. Nom théophore des Galles. 
 
 Les Galles sont restés en dehors de la religion officielle, parce qu'ils sont en dehors de la cité. Ils sont étrangers à la cité romaine par leur origine et leur naissance. Ils arrivent en général d'Asie Mineure. Un Galle que connaissait Martial, à Rome, s'appelle Dindymus* ; c'est un compatriote de la Meter Dindyménè. Une porte qu'un nom, comme les gens de condition servile. En Orient même, ces serviteurs de la Dame se recrutent dans la populace.* Un autre se nomme Baeticus* ; c'est quelque ancien esclave, natif d'Andalousie. Aussi bien les esclaves fanatisés étaient-ils fort nombreux ; on les appréciait peu sur le marché, et leur vente donnait souvent lieu à des discussions d'intérêt.* Plus d'un Galle sans doute était un serf fugitif, que son maître n'avait point osé revendiquer de peur d'offenser la divinité. On trouve aussi des affranchis : tel Genucius, qui nous est signalé à Rome en 78 avant notre ère et qui avait gardé le nom de son patron. Les Galles sont étrangers à la cité par leur genre de vie. C'est un personnel itinérant. Si quelques-uns se groupent en colonies autour d'un sanctuaire fameux, presque tous mènent une existence nomade. Ce sont, dans les villes, des voyageurs bruyants qui passent. Ce sont, pour les églises locales, non des recrues, mais des hôtes. Enfin la cité les ignore parce que leur déchéance sexuelle a fait d'eux des êtres anormaux. Ils ne sont rien, parce que, selon la formule même des juristes, ils ne sont « ni hommes ni femmes. » C'est pourquoi ce Genucius fut privé d'une succession, encore que le testament fût rédigé en bonne et due forme. Mais, si le code les élimine en quelque sorte de la société, le fisc ne perd pas ses droits. Ils payaient l'impôt infamant de la capitation, _tributum capitis_, qui frappe les gens de la plus basse classe sans biens ni métier patentable ; et ils étaient inscrits sur les rôles dans la catégorie des courtisanes et des prostitués.*
 
-*) Martial. XI, 81 (livre daté de l'an 96).
+*) Martial. 11, 81 (livre daté de l'an 96).
 
-*) Cf. Sôtéridès à Cyzique, au temps de Jules César, CIG. 3668 ; Alexis, dans Anthol. Gr.VI, 51.
+*) Cf. Sôtéridès à Cyzique, au temps de Jules César, _CIG._ 3668 ; Alexis, dans _Anthol. Gr._ 6, 51.
 
-*) Martial. III, 81.
+*) Martial. 3, 81.
 
-*) Vivianus (époque de Trajan) dans Dig. XXI, 1, 1, 9 et 10.
+*) Vivianus (époque de Trajan) dans Dig. 21, 1, 1, 9 et 10.
 
 *) Hephaest. Alex., Schol., p. 194, éd. Westphal : [GREC]. Les Romains n'ont fait sans doute que suivre une tradition de la Grèce ou de l'Asie Mineure.
 
@@ -933,7 +932,7 @@ A côté du sacerdoce romain, comme jadis à côté du sacerdoce hellénique, le
 
 Les Galles constituent dans la hiérarchie phrygienne un clergé secondaire, un ordre mineur, la plèbe du sacerdoce.* A Pessinonte, on les distingue des prêtres proprement dits ; le titre d'hiereus paraît être réservé aux Attis. Dans les autres sanctuaires d'Asie Mineure, à Cyzique, par exemple, la même distinction subsiste entre les titulaires du haut sacerdoce et ces ministres subalternes ; on la retrouve aussi dans la religion syrienne. Les Galles se déclarent humblement les serviteurs de la Mère. C'est une expression qu'ils ont empruntée au vocabulaire des religions sémitiques. Les Romains l'ont traduite par le terme de _famuli Matris_.* Sous la République, on désignait ainsi les desservants phrygiens de la Dame Noire. Le mot révélait la condition servile d'un clergé recruté parmi les Barbares ; il signifiait en même temps que ces ministres étaient des hiérodules volontaires.*
 
-*) « Tympana plebeia, » dans Juv. VI, 515 s.
+*) « Tympana plebeia, » dans Juv. 6, 515 s.
 
 *) Cf. supra, p. 77. Ajouter CatulL, Attis 68 ; Val. Flacc., Argon. 111,20. Eu grec, Thérapeutes. On disait aussi « ministri Matris Deum » : CatulL, l. c. ; Ovid., Fast. IV, 2i3 ; Mart. Cap. VI, 687. Mais on donnait également aux Galles le titre de prêtres : Plin., H. n., V, 147 ; XXXV, 165 : « Matris Deum sacerdotes qui Galli vocantur » ; Ilieronym., Comm. in Iloseam I, 4, 14 ; Lactant., Epitome S : « sacerdotes » ; Divin. Inst . V, 9, 17 : « religionis antistites » (cf. Apul. IX, 10) ; Ps. Cyprian., Ad senatorem 9. Ce titre apparaît surtout à la fin de l'Empire, alors que les Galles ont envahi les temples romains.
 
