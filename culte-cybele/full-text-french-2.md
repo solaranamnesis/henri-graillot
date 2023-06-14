@@ -3211,28 +3211,28 @@ A une autre extrémité de l'Europe, en Espagne, se manifeste également la doub
 *) « Koina » de Malaca ; _CIL._ 2, p. 251. Culte de Caelestis à Tarragone et Lugo, cf. _ibid._ 2570, 4310 ; d'Hypsistos Serapis en Portugal, cf. Cagnat, _Ann. épigr._ 1897, 86.
 
 *) Localités où le culte est signalé.  
-BALÉARES  
-Mago, ni un. Flavium (Mahon, Minorque). --- _CIL._ II, 3706, sur un linteau : « M. Badius Honor[atus] et// Cornélius Silvficus] /// templum Matri Mafgnae et] Atthin (i) de s(ua) p(ecunia). » Un Badius Macrinus et un Cornélius Silvicus à Tarragone, 4106, 4108, 4297.  
-BÉTIQUE.  
-Arva (Peha de la Sâl, en amont d'Aie oie a del Rio. --- Attis funéraire, adossé à un pilastre, au Cerro de la Camorra : Engel, dans Nouv. Archives des Missions III 1892, p. 148 fig. 2.  
-Coruvba (Cordoue) . --- _CIL._ II, 5521, taurobole « ex iussu Matris Deum, » en 238, cf. supra, p. 159 n. 2 u.  
-Gades (Cadix). --- Statuette mutilée d'Attis, vue par Albertini chez un antiquaire de Madrid.  
-Nabrissa Veneria (Lebrija). --- Figurine d'Attis dont fait mention Caro, Antiguedades de Sevilla, 1634, p. 119 ; cf. Huebner, Ant. Bildw. in Madrid, 1862, p. 319.  
-LUSITANIE  
-Capera (V entas de Caparra, près de Plasencia, Estrémadure). --- _CIL._ II, 805 : « Matri Deum Britta ///. »  
-Emerita Avgvsta (Merida, Estrémadure). --- _CIL._ II, 5260, autel taurob., cf. supra pp. 171,234 (archigalle), 242 (prêtre) ; reproduit dans la Ilustracion esp. y americana, 1899, n° 36 (30 sept.), p. 192.  
-Metellinvm (Medellin, ibid.). --- _CIL._ II, 606, autel taurob. mal lu et perdu, cf. supra, p. 171 .  
-Ousipo (Lisbonne). --- _CIL._ II, 178 : « Deum MatriT. Licinius Amaranthus v. s. 1. m. » ; --- 179, taurobole, cf. supra p. 171.  
-TARRACONAISE  
-Barcino (Barcelona). --- Mosaïque : jeux du Cirque ; Cybèle sur le lion, ornant la spina. De Molins, Mnseo prov. de antigueda des 1888, pp. 102-106 n° 1152, reprod. et bibliogr. ; Rémy, La statue équestre de Cyb. dans le Musée belge XI, 1907, p. 251. Mais rien ne prouve que cette mosaïque représente le cirque de la ville.  
-Gervnda (Gerona). --- Mosaïque, avec même motif ; cf. Lanciani, Ancient Rom in the light of rec. discov., p. 214 s, et pl.  
-Legio vu Gemina (Leon). --- Boletin Acad, de la Historia LVIII, 1911, p. 229 s : « Minervae et [M. D.] Matri I(daeae), patriae conserv[atricibu]s et n(umini) imp(eratoris) Cacs(aris) M. Aur. [///cura]nte Castifno ? ///e(x) Voto). » Marbre trouvé près de la cathédrale, qui aurait remplacé un temple.  
-Limïcorvm civitas (près de Ginzo de Limia, Galice). --- _CIL._ II, 2521 : « Iunoni [Matjris Deum Aemilia Flavina. »  
-Tarraco (Tarragona). --- Figurine de déesse mère assise, en terre cuite : Huebner, op. p. 216, n° 473. --- Sur le tombeau dit des Scipions (cf. Laborde, Voyage pittor. en Esp., I, pl. xi.m-iv, et Puig y Cadafalch, Arquitectura rom. Catalunya I, 1909, p. "0. fig. 58), les deux personnages ont le costume et l'attitude des Attis funéraires, jambes croisées, main sous le menton.  
-Valentia (Valence). --- Attis funéraire, adossé à un pilier: S. Reinach, Répert. Slat. II, 471, 3, avec bibliogr. --- Attis de type funéraire, appuyé à un pilier ; trouvé au fond du port, à la suite d'un dragage (communication de M. Pierre Pâris) ; au Musée.  
-Vellica ? (au monte Cildad, près d'Aguilar de Campôo, Vieille Castille). --- Ephem. epiyr. VIII (1899) : « Matri Deum C. Licinius Cisus templum ex voto///. » Epigraphie du ne siècle. Du même lieu, _CIL._ II, 6297-6304.  
-Vizella ou Caldas de V., Portugal. --- _CIL._ II, 2407 ; cf. Graillot dans Rev. Archéol., 1904. I, p. 325.  
-Provenance inconnue ; Musées de Madrid. --- Real Academia de la Historia. Statuette en argent, applique de vase : Attis en court manteau, couronné de pin. tenant pedum et syrinx. --- Museo arqueologico. Bronzes : Attis ( ? ) nu, dansant ; Calai, d. Mnseo I, 1883, n° 2975 ; --- Attis enfant, dansant: ihid. 2982 (anc. collection du marquis de Salamanca, en partie formée en Italie ; --- Attis enfant, tenant des fruits dans sa tunique, 3015. Ladite Cybèle, 2899, avec ses cornes d'abondance, est une Fortuna Tutela. --- Real Museo. Cybèle assise entre deux lions, marbre italien ; Huebner, op. l. 12.
+Baléares  
+Mago, mun. Flavium (_Mahon_, Minorque). --- _CIL._ 2, 3706, sur un linteau : « M. Badius Honor[atus] et// Cornelius Silv[icus]/// templum Matri Ma[gnae et] Atthin (i) de s(ua) p(ecunia). » Un Badius Macrinus et un Cornelius Silvicus à Tarragone, 4106, 4108, 4297.  
+Bétique  
+Arva (_Peña de la Sâl_, en amont d'_Alcolea del Rio_. --- Attis funéraire, adossé à un pilastre, au Cerro de la Camorra : Engel, dans _Nouv. Archives des Missions_ 3 1892, p. 148 fig. 2.  
+Cordvba (_Cordoue_) . --- _CIL._ 2, 5521, taurobole « ex iussu Matris Deum, » en 238, cf. supra, p. 159 n. 2 _u_.  
+Gades (_Cadix_). --- Statuette mutilée d'Attis, vue par Albertini chez un antiquaire de Madrid.  
+Nabrissa Veneria (_Lebrija_). --- Figurine d'Attis dont fait mention Caro, _Antiguedades de Sevilla_, 1634, p. 119 ; cf. Huebner, _Ant. Bildw. in Madrid_, 1862, p. 319.  
+Lusitanie  
+Capera (_Venlas de Caparra_, près de Plasencia, Estremadure). --- _CIL._ 2, 805 : « Matri Deum Britta///. »  
+Emerita Avgvsta (_Merida_, Estremadure). --- _CIL._ 2, 5260, autel taurob., cf. supra pp. 171, 234 (archigalle), 242 (prêtre) ; reproduit dans la _Ilustracion esp. y americana_, 1899, n° 36 (30 sept.), p. 192.  
+Metellinvm (_Medellin_, _ibid._). --- _CIL._ 2, 606, autel taurob. mal lu et perdu, cf. supra, p. 171.  
+Olisipo (_Lisbonne_). --- _CIL._ 2, 178 : « Deum Matri T. Licinius Amaranthus v. s. l. m. » ; --- 179, taurobole, cf. supra p. 171.  
+Tarraconaise  
+Barcino (_Barcelona_). --- Mosaïque : jeux du Cirque ; Cybèle sur le lion, ornant la spina. De Molins, _Museo prov. de antiguedades_ 1888, pp. 102-106 n° 1152, reprod. et bibliogr. ; Rémy, _La statue équestre de Cyb. dans le Musée belge_ 11, 1907, p. 251. Mais rien ne prouve que cette mosaïque représente le cirque de la ville.  
+Gervnda (_Gerona_). --- Mosaïque, avec même motif ; cf. Lanciani, _Ancient Rom in the light of rec. discov._, p. 214 s, et pl.  
+Legio 7 Gemina (_Leon_). --- _Boletin Acad. de la Historia_ 58, 1911, p. 229 s : « Minervae et [M. D.] Matri I(daeae), patriae conserv[atricibu]s et n(umini) imp(eratoris) Caes(aris) M. Aur. [/// cura]nte Casti[no ? ///e(x) v(oto). » Marbre trouvé près de la cathédrale, qui aurait remplacé un temple.  
+Limicorvm civitas (près de _Ginzo de Limia_, Galice). --- _CIL._ 2, 2521 : « Iunoni [Mat]ris Deum Aemilia Flavina. »  
+Tarraco (_Tarragona_). --- Figurine de déesse mère assise, en terre cuite : Huebner, _op. l._ 216, n° 473. --- Sur le tombeau dit des Scipions (cf. Laborde, _Voyage pittor. en Esp._, 1, pl. 43-4, et Puig y Cadafalch, _Arquitectura rom. Catalunya_ 1, 1909, p. 70. fig. 58), les deux personnages ont le costume et l'attitude des Attis funéraires, jambes croisées, main sous le menton.  
+Valentia (_Valence_). --- Attis funéraire, adossé à un pilier : S. Reinach, _Répert. Stat._ 2, 471, 3, avec bibliogr. --- Attis de type funéraire, appuyé à un pilier ; trouvé au fond du port, à la suite d'un dragage (communication de M. Pierre Pâris) ; au Musée.  
+Vellica ? (au monte Cildad, près d'Aguilar de Campoo, Vieille Castille). --- _Ephem. epigr._ 8 (1899) : « Matri Deum C. Licinius Cisus templum ex voto///. » Épigraphie du 2e siècle. Du même lieu, _CIL._ 2, 6297-6304.  
+_Vizella ou Caldas de V._, Portugal. --- _CIL._ 2, 2407 ; cf. Graillot dans _Rev. Archéol._, 1904, 1, p. 325.  
+Provenance inconnue ; Musées de Madrid. --- Real Academia de la Historia. Statuette en argent, applique de vase : Attis en court manteau, couronné de pin. tenant pedum et syrinx. --- Museo arqueologico. Bronzes : Attis ( ? ) nu, dansant ; _Catal. d. Museo_ 1, 1883, n° 2975 ; --- Attis enfant, dansant ; _ibid._ 2982 (anc. collection du marquis de Salamanca, en partie formée en Italie) ; --- Attis enfant, tenant des fruits dans sa tunique, 3015. La dite Cybèle, 2899, avec ses cornes d'abondance, est une Fortuna Tutela. --- Real Museo. Cybèle assise entre deux lions, marbre italien ; Huebner, _op. l._ 12.
 
 Des côtes et des plaines Cybèle avait gagné les montagnes, dont elle est souveraine maîtresse. Remontant un affluent du Tage, que suivit la route de Mérida vers Salamanque et Léon, elle a franchi le massif central ; au pied des sauvages sierras « de las Jurdes, » percées de grottes encore habitées, on l'adorait dans l'oppidum de Capera. Elle pénètre jusque dans les régions moins romanisées du nord, en Galice, en Asturie, chez les Cantabres. Nous là retrouvons deux fois entre Minho et Duero, sur la frontière de l'Espagne et du Portugal. A Caldas de Vizella, dont on utilisait déjà les eaux sulfureuses, Cybèle et Attis furent qualifiés de Dieux Omnipotents sur une dédicace panthéistique ; dans la « Civitas Limicorum, » qui occupait la haute vallée de la Limia, près de Ginzo et du lac Béon, une femme dédie un autel à la Junon de la Mère des Dieux. Près d'Aguilar de Campôo, dans cette Cantabrie montagneuse où l'onomastique est presque entièrement indigène et la latinité plutôt barbare, un temple votif de Mater Deum se dresse sur un haut lieu. A Léon, un autel votif réunit au « Numen » de l'empereur la Mère Idéenne et Minerve, « conservatrices de la patrie. » Ce furent les soldats qui, dans ces contrées mal soumises, introduisirent les religions orientales : légionnaires de la VII Gemina qui tient garnison à Léon, vétérans des cohortes recrutées parmi les tribus montagnardes et envoyées comme auxiliaires sur le Danube et sur le Rhin.*
 
