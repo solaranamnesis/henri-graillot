@@ -312,8 +312,7 @@ Orgiasmes et extatisme, aberrations sexuelles dont témoignent les légendes d'A
 
 *) Demosth., _Pro cor._, 259-260.
 
-*) Aelian., _Var. Hist._ 9, 8 : τελευταῖον δὲ μητραγυρτῶν καὶ κρούων τύυπανα
-καὶ καταυλούμενος.
+*) Aelian., _Var. Hist._ 9, 8 : τελευταῖον δὲ μητραγυρτῶν καὶ κρούων τύυπανα καὶ καταυλούμενος.
 
 *) V. les textes de Ménandre groupés et commentés par Foucart, _op. l._, p. 173 ss.
 
