@@ -910,9 +910,12 @@ Celui qui s'intitule Religieux de la Grande Mère* s'est donc voué au culte de 
 
 Ils sont en dehors de la religion officielle. --- 1. Nom théophore des Galles. Attis et Gallos. Origine vraisemblablement sémitique de l'éviration rituelle, et importation relativement récente du rite. Galles et Bakèles. --- 2. L'éviration est un sacrifice de rachat et un sacrement d'initiation suprême. Moisson sacrée du 24 mars. Phases de l'ordination. Insignes des Galles : robe, pectoraux, colliers, boucles d'oreilles, mitre. La chevelure taboue. Le fard religieux. --- 3. Culte orgiastique des Galles. Psalmodies et cris, danses, courses, flagellations, mutilation de la chair, théopneustie. --- 4. Différentes formes de la divination chez les Galles. Médecins de l'âme, médecins du corps. Remèdes pour le bétail, pour les champs. Prophétie et magie. --- 5. Existence nomade. Mendicité rituelle. Colonies de Galles auprès des grands sanctuaires. Tendance à supplanter le clergé officiel.
 
-[GREC] (Euripid., _Bacch. 395_)
+Τὸ σοφὸν δ᾽ οὐ σοφία.  
+(Euripid., _Bacch. 395_)
 
-[GREC] (Plat., _Respubl._ 2, 6, p. 363 D.)
+ Ἡγησάμενοι κάλλιστον ἀρετῆς μισθὸν  
+μέθην αἰώνιον  
+(Plat., _Respubl._ 2, 6, p. 363 D.)
 
 Les Galles sont restés en dehors de la religion officielle, parce qu'ils sont en dehors de la cité. Ils sont étrangers à la cité romaine par leur origine et leur naissance. Ils arrivent en général d'Asie Mineure. Un Galle que connaissait Martial, à Rome, s'appelle Dindymus* ; c'est un compatriote de la Meter Dindyménè. Une porte qu'un nom, comme les gens de condition servile. En Orient même, ces serviteurs de la Dame se recrutent dans la populace.* Un autre se nomme Baeticus* ; c'est quelque ancien esclave, natif d'Andalousie. Aussi bien les esclaves fanatisés étaient-ils fort nombreux ; on les appréciait peu sur le marché, et leur vente donnait souvent lieu à des discussions d'intérêt.* Plus d'un Galle sans doute était un serf fugitif, que son maître n'avait point osé revendiquer de peur d'offenser la divinité. On trouve aussi des affranchis : tel Genucius, qui nous est signalé à Rome en 78 avant notre ère et qui avait gardé le nom de son patron. Les Galles sont étrangers à la cité par leur genre de vie. C'est un personnel itinérant. Si quelques-uns se groupent en colonies autour d'un sanctuaire fameux, presque tous mènent une existence nomade. Ce sont, dans les villes, des voyageurs bruyants qui passent. Ce sont, pour les églises locales, non des recrues, mais des hôtes. Enfin la cité les ignore parce que leur déchéance sexuelle a fait d'eux des êtres anormaux. Ils ne sont rien, parce que, selon la formule même des juristes, ils ne sont « ni hommes ni femmes. » C'est pourquoi ce Genucius fut privé d'une succession, encore que le testament fût rédigé en bonne et due forme. Mais, si le code les élimine en quelque sorte de la société, le fisc ne perd pas ses droits. Ils payaient l'impôt infamant de la capitation, _tributum capitis_, qui frappe les gens de la plus basse classe sans biens ni métier patentable ; et ils étaient inscrits sur les rôles dans la catégorie des courtisanes et des prostitués.*
 
@@ -924,7 +927,7 @@ Les Galles sont restés en dehors de la religion officielle, parce qu'ils sont e
 
 *) Vivianus (époque de Trajan) dans Dig. 21, 1, 1, 9 et 10.
 
-*) Hephaest. Alex., Schol., p. 194, éd. Westphal : [GREC]. Les Romains n'ont fait sans doute que suivre une tradition de la Grèce ou de l'Asie Mineure.
+*) Hephaest. Alex., Schol., p. 194, éd. Westphal : οἱ Γάλλοι διαβάλλονται ὡς θήλειαν νόσον ἔχοντες, διὸ καὶ σώματα φόρον ἐτέλουν Ῥωμαίοις εἰς τοῦτο. Les Romains n'ont fait sans doute que suivre une tradition de la Grèce ou de l'Asie Mineure.
 
 A côté du sacerdoce romain, comme jadis à côté du sacerdoce hellénique, les Galles représentent l'élément barbare. Mais Rome ne peut les empêcher de propager à travers l'Empire leurs superstitions ni de perpétuer à travers les siècles les antiques traditions du sacerdoce phrygien.
 
@@ -940,17 +943,17 @@ Les Galles constituent dans la hiérarchie phrygienne un clergé secondaire, un 
 
 Leur nom est théophore, comme celui des Attis, comme celui des Bacchi et Archibacchi dans les thiases dionysiaques. De même, on les nommait primitivement en Ionie les Kybèbes* ; et les femmes attachées au culte sont les Kybélides. Gallos était l'un des surnoms mystiques d'Attis.* Cependant, s'il faut en croire des textes obscurs, Attis et Gallos n'avaient pas toujours été confondus.* La distinction entre les deux divinités correspond à celle des Attis et des Galles. Or c'est en général le vocable du dieu qui explique celui du prêtre. Les anciens admettaient que les Galles tiraient leur nom d'un cours d'eau sacré, le Gallos.* Ce nom est celui d'un fleuve de Bithynie et, ce semble, de plusieurs rivières de la Phrygie.* L'une d'elles, affluent du Sangarios, passait à Pessinonte,* au pied du mont Agdos et du Dindymos. C'est sur les eaux du Gallos pessinontien que l'on avait exposé Attis enfant* ; ce qui signifie sans doute qu'on leur immolait primitivement des enfants nouveau-nés.* C'est dans ses eaux que l'on baignait l'idole du temple. C'est sur ses bords qu'avaient lieu les orgiasmes et que des fanatiques sacrifiaient leur virilité. Aussi disait-on qu'il provoquait le délire et la folie de la mutilation ; « qui boit de son eau devient insensé.* » On lui attribua l'acte auquel il présidait ; Gallos s'était mutilé, comme Attis.
 
-*) Hesych., s. v. [GREC] ; Cratin., in Phot. _Lex._, p. 183, 2 : [GREC]. Le nom de [GREC], pour les femmes, se trouve dans Nonn. 10, 387. --- _Dindymarii_ dans Commodian., _Instruct._ 1, 17, 6, éd. Oehler 1847, est une simple conjecture ; cf. éd. Dombart 1887.
+*) Hesych., s. v. Kύβηβος ; Cratin., in Phot. _Lex._, p. 183, 2 : Kύβηβον Ἴωνες τὸν μητραγύρτην καὶ γάλλον νῦν καλούμενον. Le nom de Kυβηλίς, pour les femmes, se trouve dans Nonn. 10, 387. --- _Dindymarii_ dans Commodian., _Instruct._ 1, 17, 6, éd. Oehler 1847, est une simple conjecture ; cf. éd. Dombart 1887.
 
 *) Julian., _Or._ 5, p. 159 A.
 
-*) Ce sont deux personnages différents dans Arnob. 5, 7 et 13, et dans Steph. Byz., s. v. [GREC].
+*) Ce sont deux personnages différents dans Arnob. 5, 7 et 13, et dans Steph. Byz., s. v. γάλλος.
 
-*) Cf. Ovid., _Fast._ 4, 361 ss ; Plin., _H. n._ 5, 147 ; Herodian. 1, 11 ; _Fest._ 1, p. 67, éd. Thewrewk de Ponor, 1889, s. v. _Galli_ ; Steph. Byz., _l. c._ ; Mart. Cap., _l. c._ ; Etymol. Magn., 220, 26, s. v. [GREC].
+*) Cf. Ovid., _Fast._ 4, 361 ss ; Plin., _H. n._ 5, 147 ; Herodian. 1, 11 ; _Fest._ 1, p. 67, éd. Thewrewk de Ponor, 1889, s. v. _Galli_ ; Steph. Byz., _l. c._ ; Mart. Cap., _l. c._ ; Etymol. Magn., 220, 26, s. v. γάλλος.
 
 *) Cf. Ovid., _l. c._, qui place le cours du Gallos « entre le vert Cybèle et les hauteurs de Celaenae » (Apamée).
 
-*) Herodian., _l. c._ : [GREC].
+*) Herodian., _l. c._ : ἐν Πεσσινοῦντι πάλαι μὲν Φρύγες ὠργίαζον ἐπὶ τῷ ποταμῷ Γάλλῳ παραρρέοντι.
 
 *) Julian., _l. c._, p. 165 B.
 
@@ -962,7 +965,7 @@ Mais, avant de le concevoir comme un dieu de démence, on l'avait adoré comme u
 
 *) Plin., 2. n 31, 9 : « calculosis mederi... auetor est in Phrygiae Gallo flumine Callimachus. »
 
-*) Steph. Byz., _l. c._ : [GREC]. Tyras était le nom grec du Dniester, en Sarmatie ; cf. Tyrodiza, ville de Thrace. A rapprocher de Têrias, fleuve de Phrygie, et delà Meter Tereia sur un haut lieu de Mysie, Strab. 13, 1, 17 ; cf. Têrès, roi des Odryses, Têreus, roi thrace.
+*) Steph. Byz., _l. c._ : τὸν Γάλλον καὶ τὸν Ἄττιν ἀποκόψαι τὰ αἰδοῖα, καὶ τὸν μὲν Γάλλον ἐλθεῖν ἐπὶ τὸν Τυρίαν ποταμὸν καὶ οἰκῆσαι καὶ τὸν ποταμὸν Γάλλον καλέσαι. Tyras était le nom grec du Dniester, en Sarmatie ; cf. Tyrodiza, ville de Thrace. A rapprocher de Têrias, fleuve de Phrygie, et delà Meter Tereia sur un haut lieu de Mysie, Strab. 13, 1, 17 ; cf. Têrès, roi des Odryses, Têreus, roi thrace.
 
 Ce rite de l'éviration semble être de provenance sémitique. Les Mégabyzes de la Dame d'Éphèse sont des prêtres eunuques ; mais ou bien cette Artémis tout orientale est une Sémite qui a franchi le Taurus, ou bien elle a subi très profondément l'influence du sémitisme. Ses prêtres eux-mêmes sont des étrangers ; on les faisait venir de fort loin, nous apprend Strabon.* En Babylonie, à Ourouk, le culte indigène d'Ishtar-Nana était desservi par des eunuques volontaires. En Phénicie, à Byblos, et de même dans les sanctuaires phéniciens de Chypre, Astartè et Thammouz-Adônis avaient leurs ministres eunuques. A Bambykè, la ville sainte (Hiérapolis) de Syrie, Atargatis possède un personnel de castrats, vêtus et parés comme des femmes ; ils portent aussi le nom de Galles.* On prétendait que le temple primitif de Bambykè était l'œuvre d'une reine légendaire d'Assyrie, et que les Galles se mutilaient à l'exemple de Combabos, le compagnon de la reine. Cette tradition locale prouve à la fois l'antiquité du temple et le caractère assyrio-babylonien du culte. De même, dans le mythe phrygien, le nom de Nana, mère d'Attis, rappelle l'influence lointaine de la religion assyrienne. Les vocables persistent avec les rites. C'est peut-être en Assyrie qu'il faut chercher l'origine du nom de Galles. Ils seraient les Grands,* non sans doute à cause de la haute taille qui les caractérise,* mais en raison de la dignité supérieure qu'ils occupent dans la hiérarchie des mystes.
 
@@ -988,7 +991,7 @@ Importé en Phrygie, chez un peuple qui toujours passa pour fanatique, leur ordr
 
 On appelait aussi Bakèles les eunuques de Cybèle. Nous trouvons le mot avec cette acception au 4e siècle avant notre ère,* et probablement même dès le 5e siècle.* Les Grecs de Béotie et d'Arcadie conservaient le souvenir lointain des Bakides, prophètes mendiants qui, vers le 7e siècle, commencèrent à parcourir l'Hellade* ; Bakides et Bakèles ont peut-être la même origine. Un Bakèle, écrit un grammairien de l'époque antonine,* « c'est ce que Bithyniens et Asians nomment Galle. » De même, nous lisons dans Lucien :« au son des flûtes et des tympanons, les Bakèles mendient pour la Mère.* » Lucien explique ailleurs quelle distinction il convient d'établir entre Bakèles et eunuques proprement dits. Ceux-ci avaient subi la castration dès l'enfance. Ceux-là avaient été quelque temps des hommes. C'étaient donc des eunuques volontaires. Tel est le cas des Galles, dont le volontaire sacrifice rend plus complète la communion entre la victime, le sacrifiant et le dieu. Aussi bien les deux termes paraissent-ils exprimer, en deux langues différentes, la même idée de supériorité dans la hiérarchie mystique. Hésychius et Suidas attribuent au mot Bakèle le sens de Grand, avant de le traduire par fou et eunuque.
 
-*) Antiphan. dans Athen. 4, 134 b ; le bakèle est représenté comme exécutant une danse gesticulée, sans doute parce qu'il joue en même temps du tambourin ; cf. Ménandre dans Hesychius, s. v. [GREC]. Un Lydien de Sardes dit dans une pièce de l'_Anthol. Gr._ 7, 709, attribuée à Alexandre d'Etolie : « si j'étais resté dans ma ville, je serais kernophore ou bakèle ([GREC] en dorien), frappant sur les beaux tambourins. »
+*) Antiphan. dans Athen. 4, 134 b ; le bakèle est représenté comme exécutant une danse gesticulée, sans doute parce qu'il joue en même temps du tambourin ; cf. Ménandre dans Hesychius, s. v. Βάκηλος. Un Lydien de Sardes dit dans une pièce de l'_Anthol. Gr._ 7, 709, attribuée à Alexandre d'Etolie : « si j'étais resté dans ma ville, je serais kernophore ou bakèle (Βακέλας en dorien), frappant sur les beaux tambourins. »
 
 *) Un « Bakalos, » attaché à un sanctuaire privé de Théra, d'après une inscr. archaïque du 5e s. ; Hiller von Gaertringen, _Die Insel Thera_, 1899, pp. 159 et 172.
 
@@ -1018,17 +1021,18 @@ Les Galles sont des mystes qui ont reçu l'initiation majeure. Ils ont atteint l
 
 *) Catull. _Attis_ 17 : « et corpus evirastis Veneris nimio odio » ; cf. Julian., _l. c._ p. 174 B : « Je me reconnais infiniment redevable à la Mère des Dieux..., de m'avoir commandé de me mutiler, non du corps sans doute, mais de tous les appétits déraisonnables, etc. »
 
-*) Julian., _l. c._ 179 G : [GREC].
+*) Julian., _l. c._ 179 C : Ἄττις διὰ τὴν ἐκτομὴν σοφός.
 
-*) _Anthol. Gr._ 6, 220, 3 : [GREC] ; Ps. Cyprian., _Ad senatorem_ 16 : « castos » ; cf. Apul. 9, 8 : « purissimi. »
+*) _Anthol. Gr._ 6, 220, 3 : ἀγνός ; Ps. Cyprian., _Ad senatorem_ 16 : « castos » ; cf. Apul. 9, 8 : « purissimi. »
 
-*) Hieronym., _l. c._ : [GREC].
+*) Hieronym., _l. c._ : τετελεσμένοι.
 
 *) _Ibid._ : « Cadesoth » = Kedeshim, les Saints ; Tertull., _Apol._ 25 ; cf. Movers, _op. l._, 1, p. 686. Ce mot indique originairement l'inaccessibilité de l'objet du culte, la séparation avec le monde profane : Baudissin, _Studien zur semit. Religionsgesch._ 1878, 2, p. 1 ss.
 
 *) Augustin., _Civ. Dei_ 7, 26 : « Ut post mortem vivat beate. »
 
-*) _Anthol. Gr._ 6, 219 : « [GREC] (même racine que [GREC], moissonner) ; Minuc. Fel., _Oct._ 24, 4 : « obscena demessa » ; Arnob. 5, 11 : « qui sibi demessucrint has partes » ; Lactant., _Div. Inst._ 5, 9, 17 : « qui virilia sua ferro _metant_ » ; Firm. Mat., _l. c._ : « poenam quam sustinuit (Attis) hoc volunt esse, quod falce _messor_ maturis frugibus facit » ; Prudent., _Peristeph._ 10, 1066 : « hic _metenda_ dedicat genitalia » ; Julian., _l. c._ 168 D : [GREC].
+*) _Anthol. Gr._ 6, 219 : « ῎ιθρις (même racine que θερίζειν, moissonner) ; Minuc. Fel., _Oct._ 24, 4 : « obscena demessa » ; Arnob. 5, 11 : « qui sibi demessucrint has partes » ; Lactant., _Div. Inst._ 5, 9, 17 : « qui virilia sua ferro _metant_ » ; Firm. Mat., _l. c._ : « poenam quam sustinuit (Attis) hoc volunt esse, quod falce _messor_ maturis frugibus facit » ; Prudent., _Peristeph._ 10, 1066 : « hic _metenda_ dedicat genitalia » ; Julian., _l. c._ 168 D : τέμνεται τὸ ἱερὸν καὶ ἀπόρρητον θέρος
+τοῦ θεοῦ Γάλλου.
 
 A la mutilation des hommes correspondaient autrefois une mutilation des femmes. Certains hiérodules, en se consacrant à la déesse, se coupaient un sein ou les deux seins. C'était également un sacrifice de rachat ; il dut succéder au sacrifice de la femme elle-même. Le mythe, arrivé à la dernière phase de son évolution, combina les deux éléments successifs ; la fiancée d'Attis, après s'être arraché les seins, se tuait.* L'existence de ces Amazones métroaques explique l'intervention de la Mère des Dieux dans la légende Amazonienne d'Asie Mineure.*
 
@@ -1046,11 +1050,11 @@ La sainte moisson s'effectue pendant les fêtes publiques du printemps, non poin
 
 *) Lactant., _op. l._ 1, 21, 16, dit formellement que cette cérémonie a lieu pendant les _publica sacra Matris_ ; cf. dans le rite syrien.
 
-*) Plut., _Nicias_ 18 : [GREC] ; (l'homme bondit sur l'autel), [GREC] (il en fait le tour ou le chevauche, car [GREC] signifie aussi enfourcher un cheval). Médaillon contorniate : Galle se mutilant ( ? ), genou droit sur un autel : Robert, _Phases du mythe_ dans _Rev. Numism._ 1885, p. 41.
+*) Plut., _Nicias_ 18 : ἀναπηδήσας ; (l'homme bondit sur l'autel), εἶτα περιβὰς (il en fait le tour ou le chevauche, car περιβαίνειν signifie aussi enfourcher un cheval). Médaillon contorniate : Galle se mutilant ( ? ), genou droit sur un autel : Robert, _Phases du mythe_ dans _Rev. Numism._ 1885, p. 41.
 
 *) Cf. la mutilation d'Attis « sub pini arbore, » Arnob. 5, 7 ; Serv., ad _Aen._ 9, 115.
 
-*) Plut., _l. c._ : [GREC] ; Catull., _Attis_, 5 : « acuto... pondere silicis » ; Ovid., _Fast._ 4, 237 : « saxo acuto. » De même les embaumeurs égyptiens ne se servaient que de couteaux de silex pour pratiquer des incisions sur les cadavres.
+*) Plut., _l. c._ : λίθῳ ; Catull., _Attis_, 5 : « acuto... pondere silicis » ; Ovid., _Fast._ 4, 237 : « saxo acuto. » De même les embaumeurs égyptiens ne se servaient que de couteaux de silex pour pratiquer des incisions sur les cadavres.
 
 *) Lucil., _Satur._ 7, p. 209 Baehr., 15 Mueller : « testam samiam » ; Plin., _H. n._ 35, 165 : « samia testa... Galli virilitatem amputare, _nec aliter citra perniciem_, M. Caelio credamus » ; Juven. 6, 514 (à propos de l'Archigalle) : « testa » ; Mart. 3, 81, 3 (à un Galle) : « samia testa » ; Min. Fel., _l. c._ : « testa. »
 
@@ -1082,7 +1086,7 @@ Aussitôt après l'ordination,* les Galles revêtent la longue robe et prennent 
 
 *) Varr., _Eumenid._, _l. c._
 
-*) _Anthol. Gr._ 6, 219, 3 : [GREC] ; Varr., _l. c._ 120 (4) : « venusta muliebri ornati stola » ; Dion. Hal. 2, 19 : [GREC] = Euseb., _Praep. ev._ 2, 8 : « stola versicolor » ; Suidas s. v. [GREC] ; cf. Apul. 8, 27 : « tunicas » ; Firm. Mat., _op. l._ 4, 2 : « delicatis amicti vestibus » ; Ps. Cyprian., _l. c._ 9 : « sacerdotes tunicis muliebribus. » Lucien, _l. c._ 51, appelle de même le vêtement des Galles syriens [GREC].
+*) _Anthol. Gr._ 6, 219, 3 : θηλυχίτων ; Varr., _l. c._ 120 (4) : « venusta muliebri ornati stola » ; Dion. Hal. 2, 19 : ποικίλην στολήν = Euseb., _Praep. ev._ 2, 8 : « stola versicolor » ; Suidas s. v. Γάλλοι : ἐν γυναικείαις στολαῖς ; cf. Apul. 8, 27 : « tunicas » ; Firm. Mat., _op. l._ 4, 2 : « delicatis amicti vestibus » ; Ps. Cyprian., _l. c._ 9 : « sacerdotes tunicis muliebribus. » Lucien, _l. c._ 51, appelle de même le vêtement des Galles syriens ἐσθῆτα θηλέην.
 
 *) Apul., _l. c._ : « cingulo subligati. »
 
@@ -1096,7 +1100,7 @@ Aussitôt après l'ordination,* les Galles revêtent la longue robe et prennent 
 
 Les insignes de l'ordre consistent en « prostêthidia » ou pectoraux, images pieuses, suspendues à des colliers ou agrafées au vêtement.* Cybèle, Zeus Idaios, Attis surtout, parfois aussi Mercure y sont représentés, soit en buste, soit en médaillon, soit sur des plaquettes qui ont l'aspect de petits temples et ressemblent aux stèles votives.* Les Archigalles du culte phrygio-romain ont conservé officiellement cette parure. Elle indique l'appartenance du personnage à la divinité ; de même, les prêtresses de Demeter et Coré cousaient sur leurs robes des plaques d'or où figuraient les deux déesses.* Telle est aussi la signification religieuse des colliers, que superposent les Galles avec un luxe d'Orientaux* ; ils marquent l'être voué aux dieux. Enfin leurs boucles d'oreilles ne sont pas un simple ornement. Quiconque se voue à la divinité en devient comme l'esclave ; et l'oreille percée pour recevoir l'anneau est l'un des symboles matériels de cette condition servile. « Il aura l'oreille percée avec un poinçon, » lisons-nous dans l'Exode ; « et il sera son esclave à jamais.* » La couronne d'or était réservée, ce semble, aux Attis, aux Archigalles et aux prêtres proprement dits. Mais les Galles portent la mitre,* sorte de turban à bandelettes qui tombent sur les épaules et qui paraissent être, comme le voile, un symbole de consécration. Ils se coiffent aussi du bonnet phrygien, en feutre, noué sous le menton.* Ils ont parfois, comme les femmes, une résille élégante et savamment agencée, qui maintient l'ordonnance compliquée de la chevelure.*
 
-*) Polyb. 21, 37 ; Dion. Hal., _Antiq. rom._ 2, 19, 4 ; Suidas, s. v. [GREC]. Ou les distinguait des [GREC], qui paraissent être de petites idoles, statuettes ou bustes (cf. celui de Zeus sur la poitrine d'une Sacerdos Maxima). On en décorait également les statues de la Grande Mère : Cornut., _Theol. gr. compend._ 6, éd. Lang.
+*) Polyb. 21, 37 ; Dion. Hal., _Antiq. rom._ 2, 19, 4 ; Suidas, s. v. προστηθίδια. Ou les distinguait des τύποι, qui paraissent être de petites idoles, statuettes ou bustes (cf. celui de Zeus sur la poitrine d'une Sacerdos Maxima). On en décorait également les statues de la Grande Mère : Cornut., _Theol. gr. compend._ 6, éd. Lang.
 
 *) Cf. supra, p. 237, à propos de l'Archigalle.
 
@@ -1116,7 +1120,7 @@ Car il leur est interdit de couper leurs cheveux : tout leur être appartient à
 
 *) Cf. supra, p. 284, et l'explication que le mythe donnait de cette coutume.
 
-*) _Anthol. Gr._ 6, 217, 237 ; l'expression [GREC] indique plutôt des tresses que des boucles ; cf. Helbig, _Épopée homérique_, tr. Trawinski 1894, p. 310 s. Consécration de chevelures : _Bull. Corr. Hell._ 12. p. 479 ss ; dans le temple d'Atargatis : Lucian., _l. c._ De même, les tresses coupées aux Vestales étaient suspendues aux branches d'un vieil arbre : Plin., _H. n._ 16, 235. Dès la plus haute antiquité les perruques figurent en Égypte sur les listes d'offrandes : Maspero, _H. anc. des peuples de l'Or._, 1, p. 54.
+*) _Anthol. Gr._ 6, 217, 237 ; l'expression πλοκάμους indique plutôt des tresses que des boucles ; cf. Helbig, _Épopée homérique_, tr. Trawinski 1894, p. 310 s. Consécration de chevelures : _Bull. Corr. Hell._ 12. p. 479 ss ; dans le temple d'Atargatis : Lucian., _l. c._ De même, les tresses coupées aux Vestales étaient suspendues aux branches d'un vieil arbre : Plin., _H. n._ 16, 235. Dès la plus haute antiquité les perruques figurent en Égypte sur les listes d'offrandes : Maspero, _H. anc. des peuples de l'Or._, 1, p. 54.
 
 *) Robertson Smith, _Relief. d. Semiten_, p. 257 ; Chantepie de la Saussaye, _Manuel d'hist. des relig._, 1904, p. 184 ; Hepding, _Attis_, p. 162.
 
@@ -1158,7 +1162,7 @@ Leurs chants spéciaux se réduisent à d'interminables litanies en l'honneur d'
 
 *) Dans Lucien, _Tragodopod._ 30 ss, cette recherche de l'assonance est sans doute une imitation des hymnes métroaques.
 
-*) _Anthol. Gr._ 6, 173 : [GREC] ; cf. 219, 17 ; Lucian., _l. c._ 31 ; Greg. Naz., _Carmina hist._ 2, 2, 7, v. 267 = Migne, _P. G._ 37, p. 1572.
+*) _Anthol. Gr._ 6, 173 : γαλλαῖον ὀλόλυγμα ; cf. 219, 17 ; Lucian., _l. c._ 31 ; Greg. Naz., _Carmina hist._ 2, 2, 7, v. 267 = Migne, _P. G._ 37, p. 1572.
 
 *) Mart. 5, 41, 2 ; cf. Lucan., _Phars._ 1, 567.
 
@@ -1176,9 +1180,9 @@ A ces ululements et au jeu des tympanons correspondent une série de gestes et d
 
 *) Catull., _Attis_ 26 : « citatis tripudiis » ; Ovid., _Fast._ 6, 330 (fête donnée par la Mère des Dieux) : « celeri ter pede pulsat humum » ; cf. Hor., _Od._ 4, 1, 27 ; Apul. 8, 27 : « lymphaticum tripudium. » La danse des Saliens à Rome était aussi un tripudium.
 
-*) Plut., _Amator._ 16, p. 759 B : [GREC] ; Greg. Naz., _Contra Julian._ 1, 103. Bonds d'Attis, Julian., _Or._ 5, p. 165 C.
+*) Plut., _Amator._ 16, p. 759 B : τὰ βακχικὰ καὶ κορυβαντικὰ σκιρτήματα ; Greg. Naz., _Contra Julian._ 1, 103. Bonds d'Attis, Julian., _Or._ 5, p. 165 C.
 
-*) _Anthol. Gr._ 6, 219, 19 : [GREC]. Sur cette mimique des bras levés, cf. _C. R. Commission de Saint-Pétersbourg_, 1859, pl. 1 et 4 et p. 120 (figurines de terre cuite) ; 1865, pp. 60-70 ; _Monumenti_ 4, pl. 43 (noces de Thésée) ; _Archaeol. Zeit._ 1, pl. 24, 1 (aryballe de Nola : fête en l'honneur de Cybèle et des Curètes ? ) ; Kekulé, _Terracotten von Sicil._, pl. 58 et p. 83 ; Furtwaengler, _Coll. Sabouroff_ pl. 137 (six femmes dansant autour de Cybèle) ; Id., _Coll. Somzée_, 101 (terre cuite attique, 5e-4e s.) ; Prat, _Hist. d'Arton_, pl. 58, 59 (femmes dansant, reliefs funéraires) ; Conze, _Sculpturen in Pettau_, dans _Wien. Akad. Denkschriften_ 1875, pl. 5 et 6 (id.). --- Sur les danses orgiastiques : Emmanuel, _Orchestique grecque_, p. 300 ss.
+*) _Anthol. Gr._ 6, 219, 19 : χειρὶ δ᾽ἀνασχόμενος μέγα τύμπανον ἐπλατάγησε. Sur cette mimique des bras levés, cf. _C. R. Commission de Saint-Pétersbourg_, 1859, pl. 1 et 4 et p. 120 (figurines de terre cuite) ; 1865, pp. 60-70 ; _Monumenti_ 4, pl. 43 (noces de Thésée) ; _Archaeol. Zeit._ 1, pl. 24, 1 (aryballe de Nola : fête en l'honneur de Cybèle et des Curètes ? ) ; Kekulé, _Terracotten von Sicil._, pl. 58 et p. 83 ; Furtwaengler, _Coll. Sabouroff_ pl. 137 (six femmes dansant autour de Cybèle) ; Id., _Coll. Somzée_, 101 (terre cuite attique, 5e-4e s.) ; Prat, _Hist. d'Arton_, pl. 58, 59 (femmes dansant, reliefs funéraires) ; Conze, _Sculpturen in Pettau_, dans _Wien. Akad. Denkschriften_ 1875, pl. 5 et 6 (id.). --- Sur les danses orgiastiques : Emmanuel, _Orchestique grecque_, p. 300 ss.
 
 *) _De salt._ 34.
 
@@ -1192,9 +1196,9 @@ Bonds et courses ne sont pour les Galles que la préparation à la phase du vert
 
 *) C'est ce que l'on appelait _iactatio fanatica_, Liv. 39, 13 ; cf. _Anthol. Gr._ 6, 51, 8 ; Alcaios, _ibid._ 218, 8 ss (ce mouvement giratoire de la tête est considéré comme « la danse de Kybélè » ) ; Antipater, _ibid._ 219, 2 et 18 ; Maecen., _Fragm._ 4 : « sonante typano quate flexibile caput » ; Ovid., _Fast._ 4, 244 : « iactatis comis » ; Quintil. 11, 3, 71 : « iactare caput et comas excutientem rotare fanaticum est » ; Stat., _Theb._ 10, 173 : « sanguineosque rotat crines » ; Vivian., _l. c._ : « iactare caput » ; Apul. 8, 27: « fanatice pervolant diuque capite demisso cervices lubricis intorquentes motibus crinesque pendulos in circulum volantes etc. » ; Lucian., _Tragodop._ 114 ; Florus, 2, 7 : « fanatico furore simulato Syriae deae comas iactat » ; Lamprid., _Heliog._ 7: « iactavit caput inter praecisos fanaticos » ; Prudent., _Peristeph._ 1063 : « furere ac rotari ius putatur mysticum » ; Augustin., _Civ. D._ 7, 24: « iactatio insana membrorum » ; cf. 28 ; Serv. ad _Aen._ 10, 220 : « semper Galli per furorem motu capitis comam rotantes ululatu futura pronuntiabant. »
 
-*) _Etym. magn._ 276, 32 : [GREC].
+*) _Etym. magn._ 276, 32 : δίνησις τῶν θεοφορήτων.
 
-*) Arnob. 5, 13 ; cf. _Anthol. Gr._ 6, 219, 1 : [GREC] ; 220, 2 : [GREC].
+*) Arnob. 5, 13 ; cf. _Anthol. Gr._ 6, 219, 1 : θεᾶς οἵστρῳ ; 220, 2 : ἔκφρων.
 
 Toutefois, avant d'être un possédé de la divinité, il faut avoir mérité sa paix par des sacrifices propitiatoires. Les Galles lui offrent des libations de leur propre sang, symbole de l'oblation volontaire de leur vie. On retrouve ce même rite dans les cultes cappadociens, syriens et phéniciens ; mais les Thraces le pratiquaient également. Il fait partie du fonds commun à toutes les religions primitives. De successives mortifications constituent le sacrifice sanglant des Galles, que précède peut-être une confession publique.* D'abord ils se frappent la poitrine avec des pommes de pin,* rite recommandé à tous les mystes durant les fêtes de la Passion. Puis, ils s'infligent la discipline. Car ces prêtres hurleurs et danseurs sont aussi des flagellants.* Composé de trois cordes ou lanières, qui sont garnies d'osselets, le fouet déchire les flancs, le dos, les épaules, meurtrit la chair et fait jaillir le sang. Comme la cravache ou l'aiguillon dont parle l'Avesta, il est un instrument de pénitence et de purification. Il contribue à expulser du corps les mauvais démons et à détruire leurs influences pernicieuses. Sans doute même, à l'origine, les coups portés soit avec le fruit du pin, soit avec le cuir d'un bouc ou d'une chèvre, devaient-ils faire passer dans le corps du patient la vitalité de l'arbre ou de l'animal.* La flagellation apparaît ainsi comme un rite barbare de communion avec les Dieux. Cette pratique rituelle, survivance du lointain totémisme, avait subsisté pareillement chez certaines sectes de Ménades.* Les Galles se frappent eux-mêmes ou entre eux, tout en hurlant, en bondissant et en courant. Parfois, dans leur furie, ils se mordent.* Enfin ils saisissent les poignards sacrés à double tranchant.* On en voit qui brandissent un glaive dans chaque main. Les manches retroussées, ils s'entaillent les bras* et y tracent des signes mystiques.* Le sang coule en l'honneur des Tout-Puissants. Cette libation s'accompagne d'une supplication,* rite d'un caractère oriental. Le suppliant se prosterne devant l'image du dieu, lui baise les mains et les pieds, et touche du visage le sol. Les armes sont lavées solennellement dans l'eau courante, le jour du Bain.
 
@@ -1202,7 +1206,7 @@ Toutefois, avant d'être un possédé de la divinité, il faut avoir mérité sa
 
 *) V. supra, p. 123, n. 4 et 5, et p. 125, n. 2 ; cf. Lamprid., _Commod._ 9 : « isiacos pineis usque ad perniciem pectus tundere cogebat. »
 
-*) _Anthol. Gr._ 6, 234, 4 : consécration d'un fouet [GREC] ; Maecen., _Fragm._ 5 : « latus horrcat flagello » : Plut., _Adv. Colol._ 33 : [GREC] ; Lucian., _Tragodop._ 115 : [GREC] ; _Lucius_ 38 ; Apul. 8, 28 : « arrepto denique flagro quod semiviris proprium gestamen est, contortis tenis lanosi velleris prolixe fimbriatum et multijugis talis ovium tesseratum » ; 30 : « flagro pecuinis ossibus catenato » ; Poll., _Onom._ 10, 12, 54. Le fouet servait aussi à frapper le rhombos, qui était une sorte de gong en cuivre et dont il n'est plus question dans le culte phrygio-romain ; cf. Foucart, _op. l._, p. 59.
+*) _Anthol. Gr._ 6, 234, 4 : consécration d'un fouet πολυαστράγαλος ; Maecen., _Fragm._ 5 : « latus horrcat flagello » : Plut., _Adv. Colol._ 33 : τῆς ἀστραγαλωτῆς ᾖ τοὺς Γάλλους πλημμελοῦντας ἐν τοῖς Mητρῴοις κολάζουσιν ; Lucian., _Tragodop._ 115 : πολυκρότοις ἀστραγάλοις πέπληγε νῶτα ; _Lucius_ 38 ; Apul. 8, 28 : « arrepto denique flagro quod semiviris proprium gestamen est, contortis tenis lanosi velleris prolixe fimbriatum et multijugis talis ovium tesseratum » ; 30 : « flagro pecuinis ossibus catenato » ; Poll., _Onom._ 10, 12, 54. Le fouet servait aussi à frapper le rhombos, qui était une sorte de gong en cuivre et dont il n'est plus question dans le culte phrygio-romain ; cf. Foucart, _op. l._, p. 59.
 
 *) Cf. S. Reinach, _La flagellation rituelle_, dans _Cultes, mythés et religions_, 1, 1905, p. 173 ss.
 
@@ -1212,7 +1216,7 @@ Toutefois, avant d'être un possédé de la divinité, il faut avoir mérité sa
 
 *) _Ibid._ : « ancipiti ferro. »
 
-*) Aux textes cités supra, p. 126 s, ajouter : _Anthol. Gr._ 6, 51, 7 s (consécration de coutelas, [GREC], encore rougis de sang) ; Ovid., _Fast._ 4, 221 et 244 ; Propert. 2, 22, 15 s ; Senec., _De v. beata_ 27 : « secandi lacertos suos artifex brachia atque humeros suspensa manu cruentat » ; _Fragm._ 34, éd. Haase 3, p. 425 : « lacertos secat » ; Val. Flacc., _Argon._ 3, 20 : « Dindyma sanguineis famulum bacchata lacertis » ; cf. 7, 635 ; Apul. 8, 27 : « brachiis umero tenus renudatis, adtollentes immanes gladios,... sua quisque brachia dissicant » ; Tertull., _Apol._ 23 : « lacertos sibi prosecat » ; Augustin., _Civ. D._ 7, 28 : « mollium et abscisorum sese secantium. »
+*) Aux textes cités supra, p. 126 s, ajouter : _Anthol. Gr._ 6, 51, 7 s (consécration de coutelas, φάσγανα, encore rougis de sang) ; Ovid., _Fast._ 4, 221 et 244 ; Propert. 2, 22, 15 s ; Senec., _De v. beata_ 27 : « secandi lacertos suos artifex brachia atque humeros suspensa manu cruentat » ; _Fragm._ 34, éd. Haase 3, p. 425 : « lacertos secat » ; Val. Flacc., _Argon._ 3, 20 : « Dindyma sanguineis famulum bacchata lacertis » ; cf. 7, 635 ; Apul. 8, 27 : « brachiis umero tenus renudatis, adtollentes immanes gladios,... sua quisque brachia dissicant » ; Tertull., _Apol._ 23 : « lacertos sibi prosecat » ; Augustin., _Civ. D._ 7, 28 : « mollium et abscisorum sese secantium. »
 
 *) Cf. Dio Cass. 55, 31 ; femme fanatique inscrivant des « grammata » sur ses bras avec un couteau.
 
@@ -1222,7 +1226,7 @@ Ces mutilations, tandis que continuent les danses hallucinantes, ont déterminé
 
 *) Liv. 39, 13 : « cum iactatione fanatica corporis vaticinari » ; Apul. 8, 28 ; Prudent., _Contra Symm._ 2, 863 s : « Megalesius hinc spado diris | incensus furiis caeca ad responsa vocatur » ; _Acta S. Symphoriani_, _l. c._ : « fanatici furoris inflati insania » ; Serv. ad _Aen._ 10, 220 (v. supra, p. 304, n. 2) ; cf. les Yogins professionnels chez les Hindous.
 
-*) Senec., _Ep._ 18, 5, 7 : « ex imperio furentes » ; cf. _Anthol. Gr._ 6, 220, 4 : [GREC] ; Hor., _Od._ 1, 16, 5 : « Dindymene quatit mentem sacerdotum » (il compare ses oracles à ceux de la Pythie) ; Dio Cass. 48, 43 (v. supra, p. 100, n. 6). Sur les deux formes de l'extase et sur le délire-possession, cf. Weil (rectifiant Rohde, _Psyché_), _Études sur l'antiq. gr._ 1900, p. 29 s ; De Labriolle, _L'antimontanisme et la prophétie extatique_ dans _Rev. d'hist. et litt. relig._ 11, 1906, p. 97 ss.
+*) Senec., _Ep._ 18, 5, 7 : « ex imperio furentes » ; cf. _Anthol. Gr._ 6, 220, 4 : πνεύματα θεοφορίης ; Hor., _Od._ 1, 16, 5 : « Dindymene quatit mentem sacerdotum » (il compare ses oracles à ceux de la Pythie) ; Dio Cass. 48, 43 (v. supra, p. 100, n. 6). Sur les deux formes de l'extase et sur le délire-possession, cf. Weil (rectifiant Rohde, _Psyché_), _Études sur l'antiq. gr._ 1900, p. 29 s ; De Labriolle, _L'antimontanisme et la prophétie extatique_ dans _Rev. d'hist. et litt. relig._ 11, 1906, p. 97 ss.
 
 *) Liv. 38, 18 : « fanatico carmine » ; cf. Plut., _De Pyth. or._ 25 : ce qui a le plus contribué, dit-il, à décrier les oracles en vers, ce sont les Métragyrtes et les Sérapiastes.
 
