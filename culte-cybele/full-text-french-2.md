@@ -278,7 +278,7 @@ Roma.
 Antiochus, sacerdos Matris D..., sous Auguste. _CIL._ 6, 2211.  
 Onesimus, sac (erdos) M(atris) D(eum) M(agnae) I(daeae), sous Auguste. _Ibid._, 496.  
 M. Plaetorius Herculanius, sacerdos M. D. M. I. --- 2e siècle. _Ibid._, 2258.  
-Aurelius Antonius (mort à 7 ans), fils d'Aurelius Onesimus et d'Aurelia Antonia, [GREC] (Bonae Deae), [GREC]. --- _CIG._ 6206 ; _IGSI._, 1449.  
+Aurelius Antonius (mort à 7 ans), fils d'Aurelius Onesimus et d'Aurelia Antonia, ἱερεὺς... πρῶτον Βοναδίης (Bonae Deae), εἶτα Μητρὸς Θεῶν καὶ Διονύσου Kαθηγεμόνος. --- _CIG._ 6206 ; _IGSI._, 1449.  
 Fl. Antonius Eustochius, sacerdos phryx maximus, en 319 ; v. supra la liste des Archigalles.  
 Latium.  
 Ostia. --- Valerius Pancarpus, sacerdotes ( ? ) en 199. _CIL._ 14, 39.  
@@ -355,12 +355,12 @@ Caesarea (Cherchell, Maurétanie). --- ...] enius C. f(ilius) Fatalis, decurio r
 Mésie.  
 Tomi (Kustendje. --- Pôlliôn, fils de Pôlliôn, hiereus (dans une liste de dendrophores). En 210-211. _Arch. ep. Mitt._, 11, 1887, p. 44 s.  
 Achaie.  
-Athenae. --- Aurelios Dionusios, fils de Callipos, de la tribu de Lamptrai, [GREC] (Sévère ? cf. Goehler, p. 19). _CIA._ 3, 1062.  
+Athenae. --- Aurelios Dionusios, fils de Callipos, de la tribu de Lamptrai, ἱερεὺς Mητρὸς Θεῶν καὶ Ἀγαπητοῦ (Sévère ? cf. Goehler, p. 19). _CIA._ 3, 1062.  
 Epidavros. --- Diogénès, hiereus (se qualifie ailleurs d'hiérophante, de prêtre do Paieôn, de propolos de Déo). Fin du 3e s. _CIG. Pel._, 1, 1034.  
 Province d'Asie.  
 Attovda. --- Carminios, lils de Carminios Claudianos, prêtre de Meter Adrastos, 3e siècle. Sa mère, Flavia Apphia, était grande prêtresse d'Asie. _Ibid._, p. 189 ; _Bull. Cor. Hell._ 1887, p. 349, 15.  
 Evmeneia. --- Aurelios ? Monimos, fils d'Aristôn, prêtre de Zeus Sôter, Apollon, Mên Ascacnos, Mère des Dieux Agdistis, _CIG._ 3886 add. ; Ramsay, _Cities_, p. 246, 88 .  
-Proconnesos. --- Sôsigénès, fils de Ménéphrôn, [GREC]. Codratos (même titre), 2e s. --- _J. of Hell. St._ 26, 1906, p. 29 s.  
+Proconnesos. --- Sôsigénès, fils de Ménéphrôn, ἱερησάμενος τῆς [Mη]τρός. Codratos (même titre), 2e s. --- _J. of Hell. St._ 26, 1906, p. 29 s.  
 Galatie et Lycaonie.  
 Pessinvs. --- Héras, lils de..., tribu Quirina, le dixième Attis après l'Archiereus, le cinquième des Galates, prêtre à vie de la Grande Mère des Dieux à Pessinonte et à Midaion. Fin du 1er siècle. Cagnat, _Ann. épigr._ 1897, 123. Tiberius Claudius, Attis hiereus, fils d'Héras, tribu Quirina, Dejotarus, le neuvième après l'Archiereus, le quatrième des Galates. _Ibid._, 1901, 160.  
 Iconivm. --- Meleagros, fils de Diomédès, Archiereus de la Kuria Meter Zizimménè. _J. of. Hell. St._ 22, 1902, p. 341, n° 64.  
@@ -439,16 +439,16 @@ Lvgdvnvm (Lyon). --- Aemilia Secundilla, sacerdotia. En 197. _CIL._ 13, 1754.
 Lusitanie.  
 Olisipo (Lisbonne). --- Cass(ia) Sev(era). En 108. _CIL._ 2. 179.  
 Achaie.  
-Orchomenos. --- Hippareta, f. d'Herodotos, [GREC]. _CIG. Sept._ 1, 3216 ; cf. 3223.  
+Orchomenos. --- Hippareta, f. d'Herodotos, ἰερατεύουσα. _CIG. Sept._ 1, 3216 ; cf. 3223.  
 Macédoine.  
-Edessa. --- Aurelia Loukianè, [GREC]. En 237, 8. _Ath. Mitt._ 17, 1893, p. 416, 1.  
+Edessa. --- Aurelia Loukianè, ἰερατεύουσα. En 237, 8. _Ath. Mitt._ 17, 1893, p. 416, 1.  
 Mésie.  
-Tomi (Kustendje). --- Sossia Africana, fille de C. Iulius Africanus et femme de Quietus, [GREC]. _Arch. ep. Mitt._, 6, 1892, p. 23.  
+Tomi (Kustendje). --- Sossia Africana, fille de C. Iulius Africanus et femme de Quietus, ἰερασαμένη, Mητρὶ Θεῶν. _Arch. ep. Mitt._, 6, 1892, p. 23.  
 Province d'Asie.  
-Smyrna. --- Ulpia Marcella, fille de M. Ulpius Damas et de Canidia Bassa [GREC]. 1re moitié du 2e s. --- _CIG._ 3508 (femme de P. Aelius Paullus, archiereus d'Asie, _Bull. Corr. Hell._ 11, 1887, p. 178).  
-Trapezopolis. --- Inconnue, fille d'Asclepiadès, [GREC] (_CIG._ 3953 d) ou [GREC] (Goehler, _op. l._, p. 40).  
+Smyrna. --- Ulpia Marcella, fille de M. Ulpius Damas et de Canidia Bassa ἱέρεια διὰ βίου τῆς Mητρὸς τῶν Θεῶν. 1re moitié du 2e s. --- _CIG._ 3508 (femme de P. Aelius Paullus, archiereus d'Asie, _Bull. Corr. Hell._ 11, 1887, p. 178).  
+Trapezopolis. --- Inconnue, fille d'Asclepiadès, ἱέρεια τῆς πρὸ πόλεως Mεγάλης Θεᾶς [Τύ]χης (_CIG._ 3953 d) _ou_ [Kυβέ]λης (Goehler, _op. l._, p. 40).  
 Sarmatie.  
-Olbia. --- Inconnue, fille de..., fils de Dionysios, femme de Socratidès, fils de Philinos, [GREC]. Latyschev. _Inscr. orae sept. Ponti Eux._ 1, 107 ; cf. Hirst. _The cults of Olbia_ dans _J. of Hell. St._ 22, 1902. p. 266.
+Olbia. --- Inconnue, fille de..., fils de Dionysios, femme de Socratidès, fils de Philinos, Mητρὶ Θεῶν ἱερασαμένη. Latyschev. _Inscr. orae sept. Ponti Eux._ 1, 107 ; cf. Hirst. _The cults of Olbia_ dans _J. of Hell. St._ 22, 1902. p. 266.
 
 Un très grand nombre de prêtresses sont de condition libertine, et beaucoup sont des affranchies de leur ville : telle, à Vérone, Veronia Trofimè. Le père de Salonia Euterpè, laquelle exerce le sacerdoce au Port de Trajan, fut sans doute un esclave public de Salone, à moins qu'elle-mème ne soit une ancienne esclave. Le personnel romain se recrute de préférence, sinon exclusivement, parmi les libertines de la maison impériale. Livia Briseis était une affranchie de Livie, Claudia Acropolis une affranchie de la dynastie des Claudes, Aelia Antigona une affranchie de la famille automne. Mais les ingénues ne sont point rares. Voici à Corfinium Aeca Prima, qui est fille d'un citoyen romain et qui porte du reste un nom tout à fait indigène. Voici à Aeclanum, dès le temps des Flaviens, Cantria Longina, fille de Publius ; à Bénévent, au 2e siècle, Mummeia Attieilla, fille de C. Mummeius ; à Formies, Decimia Candida, fille de C. Decimius. A Lyon, Aemilia Secundilla paraît bien être aussi de condition ingénue. A Tomi, Sossia Africana est fille de C. Iulius Africanus. En Asie Mineure, les prêtresses de l'époque romaine sont de naissance libre, suivant la coutume grecque. Ce sacerdoce est accordé parfois à des jeunes filles ; mais les dignitaires sont le plus souvent mariées et d'un âge déjà mûr. Dans le clergé de Rome, Aelia est la veuve d'un certain Epulonius, affranchi ou fils d'affranchi des 7virs Épulons, homme de quelque importance, assimilé aux membres de l'ordre équestre ; une autre a pour mari un riche affranchi des Claudes ; Galena était épouse et mère. Une prêtresse de la colonie d'Ostie, vers le milieu du 2e siècle, est mariée à un citoyen romain, président de la puissante corporation des charpentiers du port. A Vérone, Trofimè est mère d'un Sévir Augustal. A Bénévent, Servilia Varia est mère d'un décurion. Caecilia Procula, de Brescia, n'ayant pas d'enfants, a élevé un pupille. Cantria Longina, d'Aeclanum, fille de citoyen romain, est femme d'un citoyen et mère d'un chevalier. Son mari est une célébrité locale, écrivain, poète mélancolique et traducteur de Ménandre, que ses concitoyens ont porté à la magistrature suprême du municipe. Le couple, de plus, est riche ; et si l'on accumule sur la tête de la matrone le triple sacerdoce de la Mère Idéenne, d'Isis Reine et de la Diva Julia, fille de Titus, l'hommage va peut-être moins à sa vertu qu'à sa fortune. Longina s'empresse de donner 50.000 sesterces à la ville, ce qui lui valut les honneurs publics d'une statue. De même, à Smyrne, au début du 2e siècle, Ulpia Marcella est une des plus grandes dames de la cité. Née à Thyatira, sous le principat de Trajan, fille de M. Ulpius Damas et d'une « civis romana, » orpheline de bonne heure avec un gros patrimoine, elle avait été d'abord prêtresse d'Artémis dans sa ville natale ; elle y exerça son sacerdoce avec une magnificence dont on gardait le souvenir. Plus tard, Marcelin fut archiprêtresse d'Asie près des temples de Smyrne, titre que devaient ambitionner les premières familles ; elle fut aussi trois fois présidente des jeux de sa patrie, honneur presque exclusivement réservé aux hommes. D'une façon générale, le sacerdoce féminin de la Mère des Dieux paraît avoir été très recherché dans tout l'Empire.
 
@@ -470,7 +470,7 @@ Quelles étaient leurs attributions cultuelles ? La dualité du sacerdoce corres
 
 *) _CIL._ 9, 1538, un prêtre _praeit_, les deux prêtresses et un autre prêtre _tradunt_ ; 1539, une prêtresse dédie l'autel taurobolique ; 1540, prêtre et prêtresse _tradunt_ ; 1541, la première prêtresse _tradit_, la seconde dédie l'autel : 1542, la première _tradit_ ; 10, 4726 et 6075, une prêtresse _facit_.
 
-*) Cf. _CIA._ 2, 622, décret des Orgéons du Pirée en l'honneur d'une prêtresse (217 ou 216 av. J.-C.) : il y est question des [GREC] ou sacrifices d'entrée en fonctions.
+*) Cf. _CIA._ 2, 622, décret des Orgéons du Pirée en l'honneur d'une prêtresse (217 ou 216 av. J.-C.) : il y est question des εἰσιτήρια ou sacrifices d'entrée en fonctions.
 
 Leur rôle paraît être beaucoup plus considérable dans les mystères que dans le culte public. Elles sont restées les Abeilles, _Melissae_,* qui nourrissent du miel de la pure doctrine les néophytes. Autrement dit, ce sont elles qui dirigent, en principe, les exercices préparatoires à l'initiation ; peut-être même président-elles seules à certaines cérémonies d'initiation.* Ce sont aussi les prêtresses qui disposent les trônes sacrés, pour la cérémonie d'intronisation des mystes, de même qu'elles dressent le lit funéraire d'Attis, après sa mort, et son lit hiérogamique, après sa résurrection.*
 
@@ -492,11 +492,11 @@ Prêtres et prêtresses ne constituent pas à eux seuls tout le clergé de la Gr
 
 *) Cf. des « diaeonoi » dans un collège de Cyzique, consacré à la Mêter Tolupiané : Michel, _op. l._ 1226.
 
-*) _CIL._ 10, 1803 : « D. M. Heriae Victorinae caernophoro M. Herius Valerianus filiae duleissimae » ; 2, 179 : « Matri Deum Mag(nae) Ideae Phryg(iae) Fl(avia) Tyche cernophor(us) etc., » dédicace taurobolique ? Au temps des Attalides, Nieander, _Alexipharm._ 217, parle d'une zacore kernophore attachée à l'autel de Rhéa ; il semble, d'après le v. 218, que le 9e ou 20e jour de chaque mois elle assistait à une procession orgiastique : cf. _Schol. vetera_, ad _l. c._, éd. Abel et Vari, Budapesth, 1891. D'après le scholiaste, la kernophore est une prêtresse ([GREC]) chargée de porter les cratères mystiques sur lesquels ou place des lampes. Les vierges kernophores seraient donc équivalentes aux vierges lampadophores. Autres types de Kernophorie, v. supra, p. 170.
+*) _CIL._ 10, 1803 : « D. M. Heriae Victorinae caernophoro M. Herius Valerianus filiae duleissimae » ; 2, 179 : « Matri Deum Mag(nae) Ideae Phryg(iae) Fl(avia) Tyche cernophor(us) etc., » dédicace taurobolique ? Au temps des Attalides, Nieander, _Alexipharm._ 217, parle d'une zacore kernophore attachée à l'autel de Rhéa ; il semble, d'après le v. 218, que le 9e ou 20e jour de chaque mois elle assistait à une procession orgiastique : cf. _Schol. vetera_, ad _l. c._, éd. Abel et Vari, Budapesth, 1891. D'après le scholiaste, la kernophore est une prêtresse (ἱέρεια) chargée de porter les cratères mystiques sur lesquels ou place des lampes. Les vierges kernophores seraient donc équivalentes aux vierges lampadophores. Autres types de Kernophorie, v. supra, p. 170.
 
 Les actes rituels s'accompagnent de cantiques en langue grecque* ; car le grec est ici la langue d'église. Ce sont en général de longues litanies, qui énumèrent les noms multiples de la divinité, ses attributs et les manifestations de sa puissance.* Ce sont aussi des thrènes de deuil qui pleurent la passion et la mort d'Attis, ou des hymnes de joie qui saluent et glorifient sa résurrection. A chaque fête correspondait une série de chants. Saint Augustin nous a conservé le souvenir de ceux qu'il entendit pendant la procession du Bain ; on y célébrait en termes peu chastes la hiérogamie de Cybèle et Attis. Il traite de vils comédiens les chantres qui précédaient la litière de la Dame, évidemment parce qu'ils mimaient les paroles de leurs cantiques. Mais ce n'étaient point, en général, des gens recrutés pour la circonstance. Le service divin comprenait, au moins dans les principaux sanctuaires, des chantres attitrés, qui appartenaient au monde des confrères et des dévots. On les appelait les Hymnologues.* A Rome ce personnel était nombreux. Le maître de chapelle s'intitule « premier Hymnologue public de la Mère des Dieux Idéenne et d'Attis.* » Celui que nous connaissons, Ti. Claudius Velox, est un affranchi impérial ou descend d'un affranchi de la maison claudienne. Ce personnage est sans famille ; la chapelle se recrutait peut-être parmi les castrats. Ti. Claudius Glyptus, qui se déclare Hymnologue « de Campo Caelemontano,* » faisait-il aussi partie de cette _Schola Cantorum_ ? Elle aurait donc eu son siège sur le Caelius, dans le voisinage de la « Schola » des Dendrophores, et peut-être dans le même groupe de constructions. Les Hymnologues, vêtus de la tunique, portaient dans les fêtes et les processions la couronne de laurier ; ils tenaient une palme.*
 
-*) Dion. Hal. 2, 19, 4 : [GREC]. Sur la langue liturgique : Serv. ad _Georg._ 2, 394 ; cf. supra, p. 124, n. 2 ; cf. des hymnes mithriaques en grec : Cumont, _Mithra_, 1, p. n. 238.
+*) Dion. Hal. 2, 19, 4 : τὰ μητρῷα μέλη. Sur la langue liturgique : Serv. ad _Georg._ 2, 394 ; cf. supra, p. 124, n. 2 ; cf. des hymnes mithriaques en grec : Cumont, _Mithra_, 1, p. n. 238.
 
 *) Cf. dans Arnob. 1, 41, le début d'une de ces litanies, psalmodiées « Magnae Matris in adytis » : _deum propitium, deum sanctum_. On retrouve ces exclamations rituelles dans tous les cultes orientaux : « Grande est Artémis d'Éphèse! Grande est Anaitis ! » Cf. _Journ. of Hell. St._ 10, 1889, pp. 222 et 226. Un vers de Catulle, _Attis_, 91, paraît être inspiré par les chants rituels : « _Dea magna, dea Cybebe, Didymei dea domina_. » Un vers de Callimaque, _Artem._ 136, rappelle sans doute aussi d'autres cantiques : « fais paître les bœufs, porte les moutons, porte l'épi, porte la moisson. » Des fragments d'hymnes à Attis nous ont été conservés par Hippolyte, _Refut. omn. haeres_. 5, 9 = _Lyrici Gr._, Bergk, 4e éd., p. 685 s ; bibliogr. dans Hepding, _Attis_, p. 35.
 
@@ -516,15 +516,15 @@ Les flûtes, dont le même musicien joue à la fois, sont celles de Phrygie. La 
 
 *) Sur les reliefs où figure la lutte d'Apollon et de Marsyas, Cybèle est représentée à côté du Phrygien. Dans un hymne homérique, 13, 4, elle est « celle à qui plaît le frémissement de la flûte. » Sur l'union étroite de la musique phrygienne et des fêtes de Meter Oreia : Teleste de Sélinonte (vers 400 av. J.-C.) dans Athen., 626 ; Dioscorides dans _Anthol. Gr._, 9, 340. Pour le jeu aulétique et le mode phrygien, voir Fr. Greif, _Études sur la musique antique_, dans _R. Et. Gr._ 23. 1910, p. 4 ss. avec notes bibliographiques. D'après Strabon, 12, 8, 15, c'est aux sources du fleuve Marsyas que se récoltait le roseau le plus propre à la fabrication des anches de flûtes. La double flûte était en effet un instrument à anche et rappelait beaucoup moins la flûte moderne que le hautbois et la clarinette. Le tuyau était généralement en buis, évasé à une extrémité et terminé à l'autre par une petite embouchure dans laquelle on insérait ou contre laquelle on appliquait une languette de roseau. Les flûtes phrygiennes sont sans doute les mêmes que les flûtes « masculine et féminine » des Lydiens, Herodot. 1, 17, 2.
 
-*) Pollux, 4, 10, 1, dit que l'elymos, en buis, est une invention des Phrygiens : [GREC] ; cf. Athen. 176 : Vanicek, _Fremdwoerter, im gr. u . lat._, s. v.
+*) Pollux, 4, 10, 1, dit que l'elymos, en buis, est une invention des Phrygiens : ἀυλεῖ δὲ τῇ φρυγίᾳ θεῷ ; cf. Athen. 176 : Vanicek, _Fremdwoerter, im gr. u . lat._, s. v.
 
 *) Peut-être aussi parce qu'il fut à l'origine une corne de taureau (_Anthol. Gr._ 6, 51, 6), ou encore par ce que son pavillon était en corne. Lucrèce, 2 619 s, et Catulle, 64, 263 s, distinguent la flûte recourbée (_cornu_) et la droite (_tibia_) ; cf. Hor., _Od._ 1, 18, 13 « cornu Berecynthio » ; Ovid., _Fast._ 4, 181 : « inflexo Berecynthia tibia cornu » ; _Metam._ 4, 392 : « adunco tibia cornu » ; cf. 11, 16 et _Pont._ 1, 1, 39 ; Apul., _Met._ 8, 26 : « deam cornu canens. » On appelait aussi la flûte _buxus_, buis : Virg., _Aen._ 9, 619 : « buxus... Berecyntia Matris Idaeae » ; Stat., _Theb._ 5, 93 et 8, 222 : Val. Flacc., _Argon._ 1, 319 ; _Acta S. Symphoriani_ dans Ruinart, p. 71 : « perstrepentes buxos et tibias, fanatici furoris inflati insania. »
 
 *) Lucret., _l. c._ : « raucisonoque _minantur_ cornua cantu » ; Catull., _l. c._ : « raucisonos efflabant cornua _bombos_, barbaraque horribili stridebat tibia cantu » ; cf. 63, 22 : « tibicen... canit Phryx... grave » ; cf. Varr. dans Serv., ad _Aen._ 9, 618 ; Claudian., _Rapt. Proserp._ 2, 267 : « Mygdonio buxus circumsonat _horrida_ cantu. » Greif, _l. c._, p. 14.
 
-*) [GREC], Poll., _l. c._ ; le gingras parait avoir etc plutôt une sorte de fifre, au son nasillard et plaintif.
+*) Αὐλὸς θρηνητικὸς, Poll., _l. c._ ; le gingras parait avoir etc plutôt une sorte de fifre, au son nasillard et plaintif.
 
-*) Lucret. 2, 620 : « Phrygio stimulat numero cava tibia mentes » ; Sen., _Ep._ 18, 5, 7 : « Nec aliter concitantur quam solent Phrygii tibicinis sono semiviri et ex imperio furentes » ; cf. _Agamemn._ 687 : « turritae turba parenti | pectora rauco concita buxo | furit, ut Phrygium lugeat Attin » ; Juven., 6, 314 : « tibia lumbos incitat » : Philostr., _Ep._ 69 : (au bruit des cymbales et des flûtes) [GREC] ; Greg. Naz., _Carm. histor._ 2, 2, 7 _ad Nemesium_ 262 (Migne, _Patr. Gr._ 37, p. 1571) : [GREC] ; _Contra Julian._ 1, 70 et 103 : Ps. Eudoc. _Violarium_, p. 369 (éd. Flach, 1880, p. 618), à propos des mystes de Cybèle : [GREC]. De même les Galles de Dea Syria se tailladent les chairs au son des flûtes : Luc., _Dea Syr._ 50.
+*) Lucret. 2, 620 : « Phrygio stimulat numero cava tibia mentes » ; Sen., _Ep._ 18, 5, 7 : « Nec aliter concitantur quam solent Phrygii tibicinis sono semiviri et ex imperio furentes » ; cf. _Agamemn._ 687 : « turritae turba parenti | pectora rauco concita buxo | furit, ut Phrygium lugeat Attin » ; Juven., 6, 314 : « tibia lumbos incitat » : Philostr., _Ep._ 69 : (au bruit des cymbales et des flûtes) οἱ τελούμενοι τῇ Ῥέᾳ μαίνονται ; Greg. Naz., _Carm. histor._ 2, 2, 7 _ad Nemesium_ 262 (Migne, _Patr. Gr._ 37, p. 1571) : μανιητόκος ἠχή ; _Contra Julian._ 1, 70 et 103 : Ps. Eudoc. _Violarium_, p. 369 (éd. Flach, 1880, p. 618), à propos des mystes de Cybèle : αὐλοὶ δέ τινες ἠύλουν καταθέλγοντες αὐτοὺς καὶ παρεγείροντες πρὸς ἐκτομήν. De même les Galles de Dea Syria se tailladent les chairs au son des flûtes : Luc., _Dea Syr._ 50.
 
 *) Lucien, _l. c._ 44, fait observer que les sacrifices de rite syrien à Zeus se font toujours avec calme et en silence, sans chants ni flûtes ; musique et cantiques ne commencent que lorsqu'on prélude aux offices de la déesse.
 
@@ -548,7 +548,7 @@ Les cymbales d'airain passaient aussi pour être d'invention phrygienne ; elles 
 
 Le tambourin ou tympanon, cercle d'airain couvert de peau tendue, est l'attribut propre de Cybèle.* Il y a peu d'images de la déesse qui ne la représentent munie du tympanon. Les symbolistes ne manquèrent point d'y voir l'emblème du disque terrestre.* On le croyait originaire de Phrygie : « prenez le tympanon dont on se sert au pays des Phrygiens, création de Rhéa. » D'après une légende hellénique, antérieure au 5e siècle, ce fut une invention des Corybantes qui protégeaient l'enfance de Zeus ; « ils en mêlèrent le bruit aux doux accents de la flûte phrygienne ; ils le placèrent dans les mains de Rhéa pour accompagner les cris des Bacchantes.* » Rhéa le donne ensuite aux satyres de Dionysos ; autrement dit, il passa du culte métroaque dans le culte bachique. Un mythe, qui paraît être plus purement phrygien, prétend que la déesse elle-même l'inventa pour accompagner ses danses alors que, tout enfant, elle jouait sur le mont Cybèle.* Il est l'instrument favori des Galles, « qui frappent à les rompre sur les beaux tambourins, » et qui parfois les égarent dans les tavernes où ils s'enivrent.* Dans le culte phrygio-romain, l'emploi est tenu par des femmes : _tympanistriae_. L'une d'elles, à Bénévent, en 228, est une affranchie de ville ; elle élève un autel taurobolique à l'occasion d'un sacrifice offert par la première prêtresse.* Une autre, à Rome, doit être une affranchie de la maison impériale.* Leurs fonctions, comme celles des cymbalistries, supposent toute une éducation mimétique et orchestique ; car ces musiciennes exécutent, en jouant, une sorte de danse rituelle.* Le tympanon, fabriqué peut-être avec la peau des taureaux sacrifiés,* généralement décoré de symboles mystiques et magiques,* avait un rôle analogue à celui des cymbales. Il possédait les mêmes vertus. Jadis il passait pour faire fuir les fauves dans les montagnes.* On en jouait pour écarter les démons malfaisants. Son bruit sourd imite le tonnerre* et s'associe au grondement sinistre de la flûte courbe, tandis que les sonorités éclatantes des cymbales s'unissent à la chanson perçante de la flûte droite. Dans les initiations, il se transforme en patère mystique, et l'on y dépose les mets sacrés dont il faut avoir goûté pour entrer dans la communion des fidèles. Peut-être s'en servait-on aussi comme de gong pour signaler l'heure des offices.* En tout cas, à l'époque impériale, il n'est plus question du rhombos, disque de cuivre que l'on frappait avec le fouet garni d'osselets. Il semble aussi que les crotales ou castagnettes, qui continuent à figurer dans les cultes syriens, aient disparu du culte phrygien. Quant à la syrinx à sept tuyaux, ou flûte de Pan, elle apparaît aussi souvent dans les mains d'Attis que le tympanon dans celles de Cybèle.* On la voit souvent représentée, sur les autels tauroboliques, à côté des flûtes et des cymbales. L'aulète en jouait-il dans certaines cérémonies ? Aucun texte, toutefois, ne permet d'affirmer qu elle ait été d'un usage rituel.
 
-*) _Hymn. orph._ 13, 3 et 26, 11 : Cybèle est la déesse [GREC] ; Catull. _Attis_, 9 : « typanum tuum, Cybele, tua, mater, initia » ; Virg., _Aen._ 9, 619 : « tympana... Matris Idaeae » ; Mart. Cap., 2, 170: « tympana Cybeleia. » On voit aussi le tympanon entre les mains d'Attis.
+*) _Hymn. orph._ 13, 3 et 26, 11 : Cybèle est la déesse τυμπανόδουπος, τυμπανοτερπής ; Catull. _Attis_, 9 : « typanum tuum, Cybele, tua, mater, initia » ; Virg., _Aen._ 9, 619 : « tympana... Matris Idaeae » ; Mart. Cap., 2, 170: « tympana Cybeleia. » On voit aussi le tympanon entre les mains d'Attis.
 
 *) Augustin., _Civ. Dei_ 7, 24 ; Isidor., _Etym._ 8, 11, 61 (387).
 
@@ -838,13 +838,13 @@ Rome possédait une confrérie de Compagnons Baladins de Cybèle, _Sodales Balla
 
 *) _CIL._ 6, 2265 : « D. M. T. Flavio Chrysopaedi sodales, etc. » Henzen, suivi par Hepding, _Attis_, p. 158, n. 4, croit à tort que ce sont des Galles.
 
-*) Arnob. 4, 35 (représentations théâtrales inspirées du mythe) ; Julian., _l. c._, p. 165 C : [GREC] ; Lucian., _De Salt._ 8 : [GREC] ; cf. 79, où il réunit les Corybantes aux Satyres et aux Boukoloi des cultes dionysiaques.
+*) Arnob. 4, 35 (représentations théâtrales inspirées du mythe) ; Julian., _l. c._, p. 165 C : σκιρτᾶν καὶ χορεύειν ; Lucian., _De Salt._ 8 : Ῥεὰν ἡσθεῖσαν τῇ τέχνῃ ἐν Φρυγίᾳ μὲν τοὺς Kορύβαντας ὀρχεῖσθαι κελεῦσαι ; cf. 79, où il réunit les Corybantes aux Satyres et aux Boukoloi des cultes dionysiaques.
 
 *) Supra, p. 133, n. 7.
 
-*) Cf. des [GREC], à Kotiaion : _CIG._ 3827 add. ; des [GREC] à Éphèse et à Magnésie du Méandre : Poland, _Gesch. d. gr. Vereinswesens_, p. 398.
+*) Cf. des ὀρχησταί, à Kotiaion : _CIG._ 3827 add. ; des ἀκροβάται à Éphèse et à Magnésie du Méandre : Poland, _Gesch. d. gr. Vereinswesens_, p. 398.
 
-*) Corybantes d'Autun, v. supra ; Suidas, s. v. [GREC] ; Isidor., _Etymol._ 3, 22, 11 (Migne, _Patr. Lat._ 82) : « Dicta autem cymbala, quia cum ballematia simul percutiuntur ; ita enim Graeci dicunt cymbala ballematica. » Les danses s'accompagnaient parfois aussi de chants ; cf. les _ballistea_, airs que l'on chante en dansant, à certaines fêtes (Vopisc., _Aurel._ 6), et les [GREC] des Grecs.
+*) Corybantes d'Autun, v. supra ; Suidas, s. v. Βαλλίζειν ; Isidor., _Etymol._ 3, 22, 11 (Migne, _Patr. Lat._ 82) : « Dicta autem cymbala, quia cum ballematia simul percutiuntur ; ita enim Graeci dicunt cymbala ballematica. » Les danses s'accompagnaient parfois aussi de chants ; cf. les _ballistea_, airs que l'on chante en dansant, à certaines fêtes (Vopisc., _Aurel._ 6), et les ὑπορχήματα des Grecs.
 
 *) Sur la _jactatio fanatica_, cf. chapitre 8 : Les Galles.
 
@@ -876,7 +876,7 @@ Les mystes des deux sexes se désignent d'une façon générale sous le nom de _
 
 *) _CIL._ 6, 1779.
 
-*) _CIL._ 3, 713-717, 720 ; elle traduisait la formule grecque [GREC]. Dans la Vulgate, le titre d'Eusébès est traduit par le vocable _Religiosus_.
+*) _CIL._ 3, 713-717, 720 ; elle traduisait la formule grecque Mύστης ἐυσεβής. Dans la Vulgate, le titre d'Eusébès est traduit par le vocable _Religiosus_.
 
 *) Cf. supra, p. 172 ; ce titre est l'équivalent de celui d'Archimyste ou de Mystarque ou de Patromyste.
 
@@ -888,11 +888,11 @@ Celui qui s'intitule Religieux de la Grande Mère* s'est donc voué au culte de 
 
 *) D'une façon générale, Nigidius dans Aul. Gell. 4, 9, donne cette définition : « Religiosus is appellabatur qui _nimia et superstitiosa religione sese alligaverat_ » ; et le mot était pris, dit-il, en mauvaise part. Aulu-Gelle en corrige ainsi le sens péjoratif : « _Religiosus pro casto atque observanti cohibentique sese certis teqibus finibusque » ; cf. Boissier, _Religion romaine_, 1, 1874, in-8. p. 429.
 
-*) [GREC], dans une confrérie bithynienne : Poland, _op. l._, p. 573, B 418 a ; v. aussi supra, p. 119. Les purifications mensuelles paraissent avoir eu lieu le 9 ou le 20 du mois (peut-être le chiffre 20 était-il sacré ; cf. son rôle dans le taurobole) : Schol. ad Nicand., _Alexiph._ 218.
+*) Ἁνγίστη = άγιστέια, dans une confrérie bithynienne : Poland, _op. l._, p. 573, B 418 a ; v. aussi supra, p. 119. Les purifications mensuelles paraissent avoir eu lieu le 9 ou le 20 du mois (peut-être le chiffre 20 était-il sacré ; cf. son rôle dans le taurobole) : Schol. ad Nicand., _Alexiph._ 218.
 
 *) Apul. 8, 30 : « Vir principalis et alias _religiosus_..., tinnitu cymbalorum et sonu tympanorum cantusque Phrygii mulcentibus modulis excitus, procurrit obviam, _deamque votivo suscipiens hospitio_, etc. »
 
-*) _Anthol. Gr._ 6, 234, 1 : [GREC] ; Val. Flace., _Argon._ 7, 635 : « Exsectos comatos » ; Lucian., _Tragodop._ 114 : [GREC] (= qui pousse librement) ; Apul. 8, 27 : « Crines pendulos » ; 5, 7 : « Iuppiter rogatus ab Agdesti... condonat ne corpus eius (Attidis) putrescat, _crescant ut comae semper_, etc. » ; cf. Ovid., _Fast._ 4, 238 : « Longa coma (Attidis). »
+*) _Anthol. Gr._ 6, 234, 1 : Γάλλος ὁ χαιτάεις ; Val. Flace., _Argon._ 7, 635 : « Exsectos comatos » ; Lucian., _Tragodop._ 114 : τριχὸς ἀφέτου (= qui pousse librement) ; Apul. 8, 27 : « Crines pendulos » ; 5, 7 : « Iuppiter rogatus ab Agdesti... condonat ne corpus eius (Attidis) putrescat, _crescant ut comae semper_, etc. » ; cf. Ovid., _Fast._ 4, 238 : « Longa coma (Attidis). »
 
 *) _Stolis_ des « Mystriai, » à Sofia, v. p. 283, n. 2 ; cf. le taurobolié qui garde ses vêtements ensanglantés, le riche dévot qui s'habille en mendiant, _Poet. Lat. Min._, _l. c._, vers 57 ss. « Habitu religioso » dans Apul., _Met._ 11, 24. Costume spécial des « sacratae » dans le culte de Cérès, à Carthage : _Pass. S. Perpet._ 18.
 
