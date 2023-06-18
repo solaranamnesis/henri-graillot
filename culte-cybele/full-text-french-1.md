@@ -2465,7 +2465,7 @@ C'est l'action des rayons solaires qui dans la nature est prépondérante. Espri
 
 *) Hippol., _op. l._ 5, pp. 9, 168, éd. Duncker et Schneidewin.
 
-*) Euseb., _Praep. evang._, 3, 11, 17: [GREC] ; cf. 11, 12 ; Fulgent., _Myth._, 3, 5, p. 713, éd. Staveren.
+*) Euseb., _Praep. evang._, 3, 11, 17 : τῶν ἐαρινῶν ἀνθέων ὁ Ἄττις σύμβολον ; cf. 11, 12 ; Fulgent., _Myth._, 3, 5, p. 713, éd. Staveren.
 
 *) Julian., _l. c._, p. 167 B et C ; cf. le rôle du lion dans l'Attis de Catulle, 76-89 et dans l'Anthologie grecque, 6, 217-220, 237, éd. Stadtmueller, 1894, 1, pp. 338-343 et 355.
 
@@ -2519,7 +2519,7 @@ Mais le soleil, roi des cieux, est en même temps « l'arbitre suprême de la te
 
 *) Julian., _l. c._, pp. 161 C, 165 B, 166 D ; Sallust. phil., _l. c._
 
-*) [GREC], Hippol., _l. c._, p. 166. Sur le rôle de l'amandier dans le mythe, cf. Hepding, _Attis_, p. 106. Cet arbre est généralement considéré comme originaire de l'Anatolie centrale et du Pont ; il pousse à l'état sauvage en Afghanistan. Son nom grec, « amugdalos, » n'a rien à voir avec l'hébreu 'êm gedôlâh = Grande Mère, contrairement à ce que croyait Movers, 1, 578, 586, suivi par Hehn, _Kulturpflanzen_, _etc._, note 81 ; cf. Schrader dans Hehn, 6e éd., 1894, p. 387, citant Muss-Arnolt, _Semitic words in Greek and Latin_ dans _Transactions of the American philol. Assoc._, 23, p. 106 s.
+*) Πατὴρ τῶν ὅλων, Hippol., _l. c._, p. 166. Sur le rôle de l'amandier dans le mythe, cf. Hepding, _Attis_, p. 106. Cet arbre est généralement considéré comme originaire de l'Anatolie centrale et du Pont ; il pousse à l'état sauvage en Afghanistan. Son nom grec, « amugdalos, » n'a rien à voir avec l'hébreu 'êm gedôlâh = Grande Mère, contrairement à ce que croyait Movers, 1, 578, 586, suivi par Hehn, _Kulturpflanzen_, _etc._, note 81 ; cf. Schrader dans Hehn, 6e éd., 1894, p. 387, citant Muss-Arnolt, _Semitic words in Greek and Latin_ dans _Transactions of the American philol. Assoc._, 23, p. 106 s.
 
 *) Apul., _Met._ 11, 5 : « primigenii Phryges. »
 
@@ -2543,7 +2543,7 @@ Par ce qu'il est le génie de la lumière, que l'air semble porter, Mithra passa
 
 *) Prospolos, dans Harpocration, _Lex._, s. v. _Attès_ ; Bekker, _Anecd. graeca,_ 1, p. 461 ; Suidas, s. v. _Attis_ ; cf. Julian., p. 171 C.
 
-*) Nonn. _Dionys._ 25, 313 : [GREC].
+*) Nonn. _Dionys._ 25, 313 : Ῥείης ταχὺς ἄγγελος.
 
 *) Hippol., _op. l._, p. 168 ; Julian., p. 179 C. Le texte d'Hippolyte paraît douteux à Wilamowitz-Moellendorf dans _Hermès_, 37, 1902, p. 328, suivi par Hepding, _Attis_, p. 34. Cependant Attis semble avoir porté le titre mystique de Mêtis, dont le sens est voisin de celui de Sophia ; et. supra, p. 213, n. 8.
 
@@ -2555,7 +2555,7 @@ Par ce qu'il est le génie de la lumière, que l'air semble porter, Mithra passa
 
 *) Julian., _l. c._, p. 165 C.
 
-*) _Invictus._ _CIL._ 6, 499. Épithète des dieux solaires. Les astres divins ne meurent pas ; chaque fois qu'ils semblent s'affaiblir, ils renaissent à une vie nouvelle, toujours invincibles. Le vocable est emprunté, par l'intermédiaire du grec [GREC], à la terminologie religieuse de l'Orient sémitique ; sur son caractère liturgique à Babylone, cf. King, _Babyl. Magie and Sorcery_, p. 111.
+*) _Invictus._ _CIL._ 6, 499. Épithète des dieux solaires. Les astres divins ne meurent pas ; chaque fois qu'ils semblent s'affaiblir, ils renaissent à une vie nouvelle, toujours invincibles. Le vocable est emprunté, par l'intermédiaire du grec ἀνίκητος, à la terminologie religieuse de l'Orient sémitique ; sur son caractère liturgique à Babylone, cf. King, _Babyl. Magie and Sorcery_, p. 111.
 
 *) _Tutator_ : _CIL._ 6, 512.
 
@@ -2589,7 +2589,7 @@ Dans un sanctuaire mysien, nous voyons Cybèle associée à Zeus Hypsistos, c'es
 
 *) V. supra, p. 200, n. 2.
 
-*) Nom d'Attis, ou du dieu équivalent, dans les mystères de Samothrace : hymne cité par Hippolyte, _l. c._ ; les mss. donnent [GREC]. D'après Hesychius, s. v. [GREC], ce serait un nom phrygien, synonyme de [GREC] ; cf. Tomaschek dans _Wien. Sitzungsber._, 130, 1894, p. 43.
+*) Nom d'Attis, ou du dieu équivalent, dans les mystères de Samothrace : hymne cité par Hippolyte, _l. c._ ; les mss. donnent Ἀδὰμ σεβάσμιον. D'après Hesychius, s. v. ἀδάμνειν, ce serait un nom phrygien, synonyme de φίλος ; cf. Tomaschek dans _Wien. Sitzungsber._, 130, 1894, p. 43.
 
 *) Cf. un phénomène analogue dans les mystères de Sabazios : Cumont, _op. l._, p. 9. La croyance relative aux conséquences de la chute d'Adam pour l'humanité est entièrement développée dès le 1er siècle. D'autre part, la doctrine du péché originel était déjà enseignée par l'orphisme : le genre humain, né de la cendre des Titans, qui sont fils du Ciel et de la Terre Mère, est d'origine divine : en lui subsiste un élément céleste ; mais le crime irrémissible des Titans y a mêlé un élément de péché et de corruption ; cf. S. Reinach, _Cultes, Mythes et Religions_, 3, 1908, p. 346 ; sur Cybèle et les Titans, v. Gruppe, _op. l._, p. 1286.
 
@@ -2597,7 +2597,7 @@ Dans un sanctuaire mysien, nous voyons Cybèle associée à Zeus Hypsistos, c'es
 
 *) Julian., pp. 168 C, 169 C ; cf. Buresch, _Aus Lydien_, p. 114.
 
-*) [GREC], dans Orph., _Hymn._ 48, 5.
+*) Βασιλεύτατος, dans Orph., _Hymn._ 48, 5.
 
 *) _CIL._ 6, 502, 503 ; 8, 8457, 20246 ; Graillot, dans _Rev. archéol._ 1904, 1, p. 325 s.
 
@@ -2615,7 +2615,7 @@ Aux idées connexes de domination et d'éternité s'associe l'idée de sainteté
 
 *) Sur le développement de l'idée de sainteté chez les Sémites, cf. Robertson Smith, _Religion of the Semites_, 2e éd. 1894, p. 446 ss ; Lagrange, _Études sur les rel. sém._, 2e éd. 1905, p. 141 ss. Sur l'épithète rituelle de _Sanctus_ : Baudissin, _Stud. zur sem. Religionsgesch._, 1876, 2, 33 ; Clermont-Ganneau, _Études d'archéol. or._, 1, 1896, p. 104 ; Cumont, _Relig. or._, p. 289.
 
-*) [GREC] : Socrat., _Hist. eccl._ 3, 23.
+*)  Ἁγνός : Socrat., _Hist. eccl._ 3, 23.
 
 *) _CIL._ 6, 501 ; 8, 7956 ; Arnob., 1, 41. De même, _Mater Deum Sancta_, 8, 19981.
 
@@ -2644,7 +2644,7 @@ Il ne faut pas conclure qu'avant le 3e siècle ces vocables n'étaient pas entr�
 
 Rome n'a donc fait qu'adopter des traditions qui s'étaient formées en Orient. Il n'en reste pas moins vrai que sa part fut grande dans l'élaboration définitive de la doctrine. Rome a désormais remplacé Pessinonte comme capitale du culte phrygien ; elle en est à la fois la ville sainte et le centre administratif. Attis est devenu un dieu de la cité et de l'Empire. Ses zélateurs le croient appeler au rôle de dieu universel. Les nouvelles destinées du culte devaient nécessairement influer sur le caractère de la divinité. Les théologiens se préoccupèrent de mettre en valeur, dans la complexité du mythe, ce qui pouvait rehausser la dignité d'un dieu si longtemps méprisé des vrais Romains. Mais il importait aussi de ne point exagérer sa puissance et de réagir contre la tendance des mystes à amplifier leur dieu jusqu'à la souveraine majesté. Ils trouvèrent dans le mythe sidéral d'Attis la raison d'être de son culte. Ils spéculèrent à leur tour sur la notion de l'Attis solaire. Elle leur permettait de concilier des éléments en apparence incompatibles : la barbarie de certains rites et leur noble signification morale, l'éviration répugnante du dieu et sa vertu merveilleuse de fécondité, sa situation inférieure auprès de la Mère des Dieux et son grand pouvoir. Leur Attis est un Médiateur, mais qui n'aspire pas à l'omnipotence. Dieu intermédiaire, il reste un dieu secondaire, un petit dieu, presque un demi-dieu.* Aussi, dans l'iconographie officielle du 2e siècle, Attis conserve-t-il encore la petite taille et l'attitude du Prospolos. Mais cette notion simpliste de l'Attis médiateur, qui pouvait satisfaire aux exigences religieuses de la Rome antonine, devenait insuffisante et caduque dans la Rome des Sévères. D'une part, c'est une loi constante que le concept d'une divinité s'élargit à mesure qu'augmente le nombre de ses fidèles. Attis tend à se métamorphoser en dieu panthée.* Comme Cybèle, il cumule les fonctions et concentre en lui les vertus de toutes les divinités similaires. De l'ensemble des puissances qu'il accapare se constitue sa toute-puissance. Les provinces contribuent à cet enrichissement et apportent leur contingent. Mais c'est à Rome, rendez-vous de tous les dieux et de toutes les races, que se coordonnent les efforts de ce syncrétisme. D'autre part l'action du sémitisme, qui fut si considérable en Anatolie, se continuait sans interruption dans Rome. Car les Syriens ont envahi la capitale de l'Empire. Ils colonisent l'Occident. Progressivement ils lui imposent la civilisation et les croyances de l'Orient. Cette conquête pacifique du monde latin par leurs marchands et leurs esclaves, résultat d'un irrésistible mouvement économique, avait commencé dès le début de notre ère.* Au temps des Flaviens et de Trajan, Juvénal se plaint de ne pouvoir sortir dans les rues de Rome sans entendre parler syriaque.* Il y l'encontre aussi trop de prêtres syriens. Les cultes sémitiques se sont multipliés très vite sur les bords du Tibre. Ils ne se confinent point dans le quartier populaire du Transtévère. Ils ont pris possession du Capitole, où trône une Caelestis. A l'avènement des Sévères, dont la famille et la cour sont plus qu'à demi syriennes, les Baals triomphent. Par reconnaissance, les Césars favorisent le culte de ces dieux, maîtres du destin, qui leur ont donné la couronne. Quatre dévotes et ambitieuses princesses, filles et petites filles d'un prêtre de Phénicie, se font auprès des fonctionnaires et de l'armée les propagandistes de leur religion nationale. Lorsqu'enfin le jeune Héliogabale, élevé du sacerdoce au trône, prétend imposer son Baal solaire comme dieu suprême de l'Empire, il est logique dans sa déraison. Car un Baal est, par essence, souverain du monde. Dieu éternel, il est universel ; son pouvoir est infini dans l'espace comme dans le temps. Il est le plus puissant et l'unique Tout-Puissant. Mais il partage cette toute puissance avec une déesse parèdre, la Dame des cieux. A son Elagabal Invictus d'Emèse, l'empereur associa la Magna* Caelestis de Carthage.
 
-*) La notion d'Attis [GREC] survit dans Julien, 168 A, qui essaie de la concilier avec la notion d'Attis [GREC]. Sur la différenciation entre les dieux premiers (Mêter) et les dieux seconds (Attis), cf. Sallust. phil., _l. c._
+*) La notion d'Attis ἡμιθεός survit dans Julien, 168 A, qui essaie de la concilier avec la notion d'Attis θεὸς τῷ παντί. Sur la différenciation entre les dieux premiers (Mêter) et les dieux seconds (Attis), cf. Sallust. phil., _l. c._
 
 *) Cf. l'hymne que nous fait connaître Hippolyte.
 
