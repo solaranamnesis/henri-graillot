@@ -1817,6 +1817,10 @@ _Sans nom d'empereur ni date_. --- _aa._ Ostie ; « pro salut, et redit. et vict
 _Douteux_. Laurolavinium, en 212, par un prêtre et une prêtresse ; Cagnat, _op. l._ 1895, n° 120. --- Narbonne, en 263, sous Postumus ; _CIL._ 12, 4324 add. --- 4328. --- Lyon ; 13, 1756, où Mater Deum est qualifiée d'Augusta.  
 Résumé géographique : Italie 5 (Rome 0, Ostie 4, Chieti 1). --- Gaule Narbonnaise 14 (Narbonne 3, Die 4, Vaison 1, Orange 1, Valence 2, Tain 1, Vienne 1, Fréjus 1). --- Lugdunaises 6 (Lyon 5, Auxerre 1). --- Novempopulanie et Aquitaine 6 (Lectoure 4, Périgueux 1, Aulnay 1). --- Espagne, Bétique 1 (Cordoue). --- Afrique procons., Byzacène et Numidie 4 (Mactar 2, Tipasa 1, Mileu 1). 
 
+[Planche 2. --- 1. _Autel de Périgueux_.](https://cdn.solaranamnesis.com/HenriGraillot/2-1.jpeg)
+
+[Planche 2. --- 2. _Autel d'Athènes_.](https://cdn.solaranamnesis.com/HenriGraillot/2-2.jpeg)
+
 Ne faut-il pas chercher encore en Orient l'origine de cette institution ? Un rite analogue avait dû s'y perpétuer à l'intention des rois et des villes. Tous les monarques orientaux, en effet, ne prétendaient pas être des incarnations de la divinité. On vénérait les rois de Perse, non point comme des dieux, mais comme les élus des dieux. Ils se proclament eux-mêmes, dans leur titulature, « ceux auxquels les dieux ont donné le grand hvarenô et la grande royauté. » Le hvarenô, Lumière de Gloire dont Anahita et Mithra nimbent les souverains, est un signe de la protection divine. Il représente victoire et félicité. Qui s'en rend indigne est voué à la défaite et au malheur. Avant d'être les Heureux et les Invaincus, les rois ont donc l'obligation d'être les Pieux. Cette conception religieuse de la monarchie fut adoptée par les Séleucides, les rois de Bactriane, de Commagène, d'Arménie. Elle fut très répandue en Asie Mineure. La Tychè Nicéphore, Épiphane, des rois de Cappadoce et de Pont n'est autre que la Gloire mazdéenne. C'est la Fortune qui leur donne la puissance dominatrice ; mais c'est par la grâce des dieux suprêmes que la Fortune s'attache à leur personne. Mên et Mâ possèdent le hvarenô. Mên Tyrannos lui doit, dans le royaume pontique, son titre de Pharnakou, et Mâ son épithète d'Anikêtos, Invincible.* D'autre part, l'influence du sémitisme, dont il faut toujours tenir grand compte en Anatolie, confirmait la dépendance absolue du monarque à l'égard du dieu, roi des rois et maître des couronnes. C'est donc le devoir des rois de sauvegarder leur propre couronne par des rites d'expiation et de rachat. Le taurobole constituait le plus efficace de ces rites. Peut-être même la diffusion des doctrines astrologiques avait-elle encore accru son importance. Car la lune, qui s'exalte dans le taureau zodiacal, est précisément identifiée à Tychè ; et le bélier du zodiaque est par excellence un signe royal.* Nous ignorons si criobole et taurobole, qui confèrent l'état de grâce et renouvellent l'homme, s'imposaient aux nouveaux rois d'Orient comme rites de consécration. Nous voyons toutefois que le sacre des rois de Perse était célébré dans un temple d'Anahita, à Pasargadès* ; et le culte d'Anahita comportait la pratique du taurobole. Une tradition, qui se perpétuait dans le clergé romain de la Mère des Dieux, nous reporte à la même idée théologique et venait certainement aussi d'Orient : les prêtres fêtaient volontiers par un crio-taurobole leur avènement au sacerdoce.*
 
 *) Sur le rôle du hvarenô dans les monarchies orientales, v. Cumont, _Mithra_, 1, pp. 229-233 et 284-287 ; Textes p. 12 (Arménie) et 89 s (Commagène). Les rois de Pont jurent par la Tychè royale et Mên Pharnakou ; Strab. 12, 3, 31. L'explication de Pharnakou a été donnée par Darmesteter, _Zend Avesta_, 2, pp. 13, 308 et 409. Sur Mâ Aniketos, cf. _Rev. Et. Gr._ 1899, p. 169 ss ; _Ath. Mitt._ 1904, p. 170.
@@ -2104,6 +2108,10 @@ Pendant de longs siècles, en effet, ceux de Phrygie n'avaient contenu aucun ens
 *) La tablette de bronze reproduite dans l'_Archaeol. Anzeiger_, _l. c._, forme diptyque avec une autre plaque où figure un dieu barbu (Sabazios ? ) à bonnet phrygien, entouré d'une quantité considérable de symboles évidemment magiques.
 
 *) Saint Augustin, _Civ. Dei_ 7, 26, indique nettement que la consécration du Galle correspond aux mêmes idées que celle du simple myste : « Ut post mortem vivat beate. » Sur la participation des Galles à la tradition des mystères dans les cérémonies d'initiation, cf. Justinus Martyr, _Apolog._ 1, 27, p. 70 E ; Augustin., _op. l._ 6, 7.
+
+[Planche 3. --- 1. Plaquette en bronze. _Cybèle au sceptre_, dans un naiskos (provenant de Salonique). --- Au Musée de Lyon.](https://cdn.solaranamnesis.com/HenriGraillot/3-1.jpeg)
+
+[Planche 3. --- 2. Diptyque en bronze : _Sabazius, Cybèle entre Hermès et Attis_ (provenant de Rome). --- Au Musée de Berlin.](https://cdn.solaranamnesis.com/HenriGraillot/3-2.jpeg)
 
 # Chapitre 5
 
@@ -2624,6 +2632,10 @@ Aux idées connexes de domination et d'éternité s'associe l'idée de sainteté
 *) Macrob., _Saturn._ 1, 23, 17 ; cf. _CIL._ 3, 3292, une dédicace aux « Dii Magni Majores et Sanctissima Sanctitas. »
 
 *) A Bénévent, dans la première moitié du 3e s. : _CIL._ 9, 1538-1542. A Rome, en 377 : _IGSI._ 1019. De même, dans Clément d'Alexandrie, _Protrept._ 11, 15. Il est à remarquer que l'initié s'intitule « myste d'Attis » : Firm. Mat., _De err._ 18, 2 ; cf. les Attabocaoi de Pessinonte.
+
+[Planche 4. --- 1. _Buste d'Attis_, en marbre. --- A Rome, Musée des Thermes (Collection Ludovisi).](https://cdn.solaranamnesis.com/HenriGraillot/4-1.jpeg)
+
+[Planche 4. --- 2. _Buste de la statue de Cybèle_, en marbre, trouvée à Formies (Ny-Carlsberg).](https://cdn.solaranamnesis.com/HenriGraillot/4-2.jpeg)
 
 Les épithètes judéo-syriennes de Cybèle et d'Attis n'apparaissent que tardivement dans l'histoire. Elles nous sont connues pour la première fois aux dates suivantes :
 
