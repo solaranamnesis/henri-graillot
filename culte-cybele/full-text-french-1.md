@@ -1,6 +1,6 @@
 # Le Culte de Cybèle, Mère des Dieux, à Rome et dans l'Empire Romain.
 
-## Par Henri Graillot.
+## Par Henri Graillot. Ancien Membre de L'École de Rome. Maitre de Conférences a l'Université de Toulouse.
 
 ### Paris, 1912.
 
