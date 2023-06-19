@@ -2625,7 +2625,7 @@ Aux idées connexes de domination et d'éternité s'associe l'idée de sainteté
 
 *) Sur le développement de l'idée de sainteté chez les Sémites, cf. Robertson Smith, _Religion of the Semites_, 2e éd. 1894, p. 446 ss ; Lagrange, _Études sur les rel. sém._, 2e éd. 1905, p. 141 ss. Sur l'épithète rituelle de _Sanctus_ : Baudissin, _Stud. zur sem. Religionsgesch._, 1876, 2, 33 ; Clermont-Ganneau, _Études d'archéol. or._, 1, 1896, p. 104 ; Cumont, _Relig. or._, p. 289.
 
-*)  Ἁγνός : Socrat., _Hist. eccl._ 3, 23.
+*) Ἁγνός : Socrat., _Hist. eccl._ 3, 23.
 
 *) _CIL._ 6, 501 ; 8, 7956 ; Arnob., 1, 41. De même, _Mater Deum Sancta_, 8, 19981.
 
