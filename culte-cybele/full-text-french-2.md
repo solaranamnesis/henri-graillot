@@ -1260,7 +1260,7 @@ A la révélation immédiate les Galles joignent aussi l'interprétation des sig
 
 *) Plin., _H. n._ 2, 37 ; cf. supra p. 192.
 
-*) Cf. le rôle de Mêter Theôn dans les oracles talaires en Asie-Mineure : inscr. d'Attalia, Kaibel dans _Hermès_, 10 p. 193 et Epigr. gr._, 1038 ; d'Anaboura (Pisidie), Sterrett, _Wolfe Expedition_, n° 342, l. 11 ss. La déesse y prend place entre Mên Phosphoros et Zeus Katachtonios ; le voisinage d'Aphrodite Ourania révèle une part d'influence syrienne. Les renseignements fournis par les dés ressemblent tout à fait à ceux que vendent les modernes diseuses de bonne aventure : « courage ! l'occasion est bonne ; tu arriveras à tes fins ; ...procès ; ...justice, etc. »
+*) Cf. le rôle de Mêter Theôn dans les oracles talaires en Asie-Mineure : inscr. d'Attalia, Kaibel dans _Hermès_, 10 p. 193 et _Epigr. gr._, 1038 ; d'Anaboura (Pisidie), Sterrett, _Wolfe Expedition_, n° 342, l. 11 ss. La déesse y prend place entre Mên Phosphoros et Zeus Katachtonios ; le voisinage d'Aphrodite Ourania révèle une part d'influence syrienne. Les renseignements fournis par les dés ressemblent tout à fait à ceux que vendent les modernes diseuses de bonne aventure : « courage ! l'occasion est bonne ; tu arriveras à tes fins ; ...procès ; ...justice, etc. »
 
 *) Cf. l'esclave phrygienne habile en gastromancie, dans Alciphr. 2, 4, p. 37. Mais ce qui caractérise vraiment les Galles, c'est la révélation directe ; cf. Plut., _l. c._, qui les oppose aux devins égyptiens, tireurs de sorts.
 
