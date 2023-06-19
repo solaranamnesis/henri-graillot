@@ -1222,7 +1222,7 @@ La déesse apparaît souvent dans l'Énéide. Elle s'y révèle très puissante 
 
 *) _Aen._ 11, 768-778. Cf. le type du Troyen sur les vases peints.
 
-*) _Aen._ 2, 78S.
+*) _Aen._ 2, 788.
 
 *) Voir tout le passage 9, 77-122.
 
