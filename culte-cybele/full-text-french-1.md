@@ -1096,7 +1096,7 @@ Pendant ce temps, la déesse ne cessait de manifester à Rome même sa toute-pui
 
 *) Dio Cass. 48, 43. C'était en l'année 716/38.
 
-*) Κάτοχοί τέ τινες ἐκ  τῆς τῶν Θεῶν μητρὸς γενόμενοι.
+*) Κάτοχοί τέ τινες ἐκ τῆς τῶν Θεῶν μητρὸς γενόμενοι.
 
 ## 4\.
 
