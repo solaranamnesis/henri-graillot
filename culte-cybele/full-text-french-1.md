@@ -1120,7 +1120,7 @@ Les poètes de la jeune école, grands artisans de rythmes, grands admirateurs e
 
 *) Diomedes dans les _Grammat. latini_, 1, 514 ; Caes. Bass., _ibid._ 6, 262 ; cf. L. Mueller, _De re metrica rom._, p. 108 : Baehrens, _Poet. Lat. Min._ 6, p. 339.
 
-*) Martial. 2, 86. C'est lui qui traite les galliambes de « _difficiles nugae_ ».
+*) Martial. 2, 86. C'est lui qui traite les galliambes de « _difficiles nugae_. »
 
 *) Voir Wilamowitz, _op. l._, et Grant Allen, édition de l'Attis avec commentaire et excursus, Londres, 1892 ; Lafaye, _op. l._, p. 82-90.
 
