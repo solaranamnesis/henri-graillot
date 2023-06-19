@@ -852,7 +852,7 @@ Mais il importait de réduire au minimum le corps sacerdotal et son rôle dans l
 
 *) Cic., _De leg._ 2, 9, 22 : « Praeter Idaeae Matris famulos eosque justis diebus ne quis stipem cogito » ; 16, 40 : « Stipem sustulimus nisi eam quam ad paucos dies propriam Idaeae Matris excepimus ; implet enim superstitione animos et exhaurit domus. » Dion. Hal. 2, 19 ; Ovid., _Fast._ 4, 350.
 
-*) Sur la _stips_ exigée du peuple pour le culte d'Apollon, Liv. 25, 12, 14 ; Fest., _Ep., p. 23 ; Apul., _De magia_ 42 ; d'une façon générale, pour les cultes étrangers, Marquardt, _Culte_, 1, p. 171 ; Wissowa, _Rel. u. Kult. d. R._, p. 363.
+*) Sur la _stips_ exigée du peuple pour le culte d'Apollon, Liv. 25, 12, 14 ; Fest., _Ep._, p. 23 ; Apul., _De magia_ 42 ; d'une façon générale, pour les cultes étrangers, Marquardt, _Culte_, 1, p. 171 ; Wissowa, _Rel. u. Kult. d. R._, p. 363.
 
 *) Par exemple, Macrob. 1, 6, 13 : « Lectisterniumque ex collata stipe faciendum. »
 
