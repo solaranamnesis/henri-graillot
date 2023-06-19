@@ -408,7 +408,7 @@ Ceux-ci n'examinaient les Livres sibyllins que sur réquisition du Sénat, et le
 
 *) Liv. 27, 50.
 
-Cette longue période de crise avait exalté les imaginations, développé dans la masse une religiosité d'un caractère maladif et assombri. Rome s'agitait dans une fièvre de superstition. « On attribuait aux Dieux tous les événements heureux ou malheureux ; on annonçait partout des prodiges. » Tite Live, qui les énumère chaque fois avec une piété si confiante, ne peut s'empêcher d'en trouver quelques-uns bien ridicules Mais le plus sinistre de tous ces prodiges, c'était la présence de « l'ennemi de race étrangère » sur le sol d'Italie depuis bientôt trois lustres. Il y avait là, au sens le plus religieux du mot, une souillure dont on cherchait en vain l'expiation. C'est sous l'empire de tels sentiments que Rome adressa ses premiers vœux à la Grande Mère Idéenne.
+Cette longue période de crise avait exalté les imaginations, développé dans la masse une religiosité d'un caractère maladif et assombri. Rome s'agitait dans une fièvre de superstition. « On attribuait aux Dieux tous les événements heureux ou malheureux ; on annonçait partout des prodiges. » Tite Live, qui les énumère chaque fois avec une piété si confiante, ne peut s'empêcher d'en trouver quelques-uns bien ridicules.* Mais le plus sinistre de tous ces prodiges, c'était la présence de « l'ennemi de race étrangère » sur le sol d'Italie depuis bientôt trois lustres. Il y avait là, au sens le plus religieux du mot, une souillure dont on cherchait en vain l'expiation. C'est sous l'empire de tels sentiments que Rome adressa ses premiers vœux à la Grande Mère Idéenne.
 
 *) Liv. 26, 19 ; 27, 23 ; 28, 11.
 
