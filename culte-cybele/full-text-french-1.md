@@ -2213,7 +2213,7 @@ Cybèle n'est pas seulement déesse « de grand pouvoir* » ; elle est la Dame d
 
 *) Meter Basileia, cf. supra, p. 40. Anassa : Orph., _Arg._, 604, 611 et _Hymn._, 41, 1 et 9. Regina : Firm. Mat., _De err. prof. rel._ 3, 1. Le titre de reine lui est commun avec Demeter, Persephone, Aphrodite, Nemesis, Artémis (cf. à Pergé), Isis, Astartè (Plut., _De Iside et Os._, 15). Mais, de même que Milkat, c'est-à-dire la Reine par excellence, est Astartè, de même la déesse adorée en pays de langue grecque sous le nom unique de Basileia paraît bien être Cybèle, d'après Diodore, 3, 57 ; cf. Loeschke, _Dorpat. Programm_, 1884 et Roscher, _Über Selene_, 1890, p. 96.
 
-*) Orph., _Hymn._ 14, 7. Sur toutes ces épithètes, ref. Bruchmann, _Epitheta deorum quae apud poetas yraecos leguntur, 1893, s. vv. _Kubelè_ et _Rhéa_.
+*) Orph., _Hymn._ 14, 7. Sur toutes ces épithètes, ref. Bruchmann, _Epitheta deorum quae apud poetas graecos leguntur_, 1893, s. vv. _Kubelè_ et _Rhéa_.
 
 *) Orph., _Hymn._ 27, 12 ; Nonn., _Dionys._ 25, 322 ; cf. Pasikrateia, qui paraît être un vocable mystique de Persephonè en Sicile : _IGSI._ 268 (5e s. av. J.-C.).
 
