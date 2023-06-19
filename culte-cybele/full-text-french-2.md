@@ -1430,7 +1430,7 @@ Les Romains de la République et du Haut Empire n'avaient épargné aux Galles n
 
 1\. L'_Aedes Matris Deum Magnæ Idaeæ_, au Palatin. Son emplacement. Matériaux, type, plan et décoration. La pierre noire. Images de la Grande Mère ; statue de Claudia Quinta. Dépendances du temple. --- 2. Autres sanctuaires à Rome. Le _tholus_ du Palatin. Temple de _Mater Deum Salutaris_. _Aedes Matris Deum_ dans la 11e région, _Matris Deum et Navis Salviæ_ dans la 13e. Le culte au Transtévère ; _Phrygianum_. Basilique Hilarienne et _Schola_ des Dendrophores au Cælius. Sanctuaires suburbains ; l'Almo. --- 3. Temples à Ostie et au Port de Trajan. Le Metrôon de la colonie ; emplacement, plan, annexes. _Schola_ des Dendrophores et des Cannophores. Voisinage d'un Mithraeum.
 
-# 1\.
+## 1\.
 
 Le premier temple delà Grande Mère dans la ville de Rome, celui qui fut construit pour la Dame Noire et qui demeura jusqu'à la fin du paganisme le principal sanctuaire de la déesse dans le monde occidental, s'élevait sur le Palatin.* L'œuvre fut mise en adjudication l'année 550/204, conformément à un sénatus-consulte, par les censeurs M. Livius Salinator et C. Claudius Nero. Mais, pour des raisons inconnues, elle fut menée lentement. Alors que les délais normaux, à la même époque, ne paraissent guère avoir dépassé quatre ans, ce temple n'aurait été dédié que treize ans plus tard, en 563/191, par le préteur M. Iunius Brutus.* Une dernière mention du sanctuaire est faite sous Théodose, à la fin du 4e siècle.
 
