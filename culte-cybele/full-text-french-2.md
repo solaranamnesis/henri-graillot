@@ -361,7 +361,7 @@ Athenae. --- Aurelios Dionusios, fils de Callipos, de la tribu de Lamptrai, ἱ�
 Epidavros. --- Diogénès, hiereus (se qualifie ailleurs d'hiérophante, de prêtre do Paieôn, de propolos de Déo). Fin du 3e s. _CIG. Pel._, 1, 1034.  
 Province d'Asie.  
 Attovda. --- Carminios, lils de Carminios Claudianos, prêtre de Meter Adrastos, 3e siècle. Sa mère, Flavia Apphia, était grande prêtresse d'Asie. _Ibid._, p. 189 ; _Bull. Cor. Hell._ 1887, p. 349, 15.  
-Evmeneia. --- Aurelios ? Monimos, fils d'Aristôn, prêtre de Zeus Sôter, Apollon, Mên Ascacnos, Mère des Dieux Agdistis, _CIG._ 3886 add. ; Ramsay, _Cities_, p. 246, 88 .  
+Evmeneia. --- Aurelios ? Monimos, fils d'Aristôn, prêtre de Zeus Sôter, Apollon, Mên Ascacnos, Mère des Dieux Agdistis, _CIG._ 3886 add. ; Ramsay, _Cities_, p. 246, 88.  
 Proconnesos. --- Sôsigénès, fils de Ménéphrôn, ἱερησάμενος τῆς [Mη]τρός. Codratos (même titre), 2e s. --- _J. of Hell. St._ 26, 1906, p. 29 s.  
 Galatie et Lycaonie.  
 Pessinvs. --- Héras, lils de..., tribu Quirina, le dixième Attis après l'Archiereus, le cinquième des Galates, prêtre à vie de la Grande Mère des Dieux à Pessinonte et à Midaion. Fin du 1er siècle. Cagnat, _Ann. épigr._ 1897, 123. Tiberius Claudius, Attis hiereus, fils d'Héras, tribu Quirina, Dejotarus, le neuvième après l'Archiereus, le quatrième des Galates. _Ibid._, 1901, 160.  
