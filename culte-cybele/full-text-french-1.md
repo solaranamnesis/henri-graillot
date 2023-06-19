@@ -2467,7 +2467,7 @@ Attis avait à redouter en Orient la concurrence de Mên, qui était l'un des gr
 
 *) _CIG._ 3886 add. Dans un hymne orphique, _Prooem. ad Mus._ 40, on trouve une invocation à la Mère des dieux, Attis et Mên.
 
-*) Statue d'Attis, provenant du temple d'Ostie, Museo Laterano ; Helbig, _Guide_, 1893, 1, p. 522, n° 700 ; _CIL._ 9, 3146, à Corfinium : « Attini... Iunam argenteam... » Attis prend aussi le croissant à Pessinonte : Imhoof-Blumer, _Griech. Münzen_ dans _Abhandl. Bayer. Akad., phil.-hist. Kl., 18, 1890, p. 750.
+*) Statue d'Attis, provenant du temple d'Ostie, Museo Laterano ; Helbig, _Guide_, 1893, 1, p. 522, n° 700 ; _CIL._ 9, 3146, à Corfinium : « Attini... Iunam argenteam... » Attis prend aussi le croissant à Pessinonte : Imhoof-Blumer, _Griech. Münzen_ dans _Abhandl. Bayer. Akad., phil.-hist. Kl._, 18, 1890, p. 750.
 
 *) _CIL._ 6, 499-501, 508, 511, 512 ; _IGSI._ 913. Sur l'épithète de Turannos donnée à Mên, v. Perdrizet, _l. c._, p. 86 ss ; Zeus porte aussi ce titre en Lydie.
 
