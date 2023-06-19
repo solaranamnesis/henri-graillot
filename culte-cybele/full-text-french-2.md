@@ -1924,7 +1924,7 @@ Sur la côte carienne et dans les îles qui lui font face, à Calymnos, Cos et R
 
 *) Schol. ad. Apoll. Rh. 1, 1126. --- Monnaies au lion couché, ou au mufle de lion, ou à la tête de lion : Babelon, _Traité des monn. gr. et rom._ 2, 1 (1907), p. 21 ss, n°s 17-34, 42-63 ; p. 270, n°s 428-434. --- Statuette du 6e s. _Bull. Corr. Hell._ 13, p. 543 s.
 
-*) _Gr. Inscr. Brit. Mus._ 896 ; _J. of Hell. St._ 16, 1896, p. 234 ; Michel, Recueil_ 854 : inscr. du 3e s. av. J.-C., où sont nommés Zeus Patrôos, Apollon de Telmessos, les Moires et la M. d. D. ; provenance douteuse. --- _Bull. Corr. Hell._ 1880, p. 399 ; Poland, _op. l._ p. 566, B 308 : prêtre des Corybantes. --- Statuette de Cybèle en marbre, fouilles de Breuvery en 1829 : Mus. du Louvre. --- Figurine de Cybèle, en terre cuite, provenant du temple de Demeter : Newton, _Halic._, _Cnidus_ _etc._, p. 328 et pl. 46, 5.
+*) _Gr. Inscr. Brit. Mus._ 896 ; _J. of Hell. St._ 16, 1896, p. 234 ; Michel, _Recueil_ 854 : inscr. du 3e s. av. J.-C., où sont nommés Zeus Patrôos, Apollon de Telmessos, les Moires et la M. d. D. ; provenance douteuse. --- _Bull. Corr. Hell._ 1880, p. 399 ; Poland, _op. l._ p. 566, B 308 : prêtre des Corybantes. --- Statuette de Cybèle en marbre, fouilles de Breuvery en 1829 : Mus. du Louvre. --- Figurine de Cybèle, en terre cuite, provenant du temple de Demeter : Newton, _Halic._, _Cnidus_ _etc._, p. 328 et pl. 46, 5.
 
 *) Relief en t. c., provenant du temple d'Apollon ; au British Muséum (Cybèle assise, lion et prôspolos au caducée) : Conze dans _Ath. Mitt._ 13, 1888, p. 202 et pl. 5. --- Relief en marbre, au Louvre : De Villefosse et Michon, _Catal. Somm._ 2446 (Cybèle debout, entre deux lions).
 
