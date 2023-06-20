@@ -560,7 +560,7 @@ Le tambourin ou tympanon, cercle d'airain couvert de peau tendue, est l'attribut
 
 *) Diod. Sic. 3, 58. Elle aurait inventé de même cymbales et syrinx.
 
-*) _Anth. Gr._, 7, 709 ; Juv. 8, 176,
+*) _Anth. Gr._, 7, 709 ; Juv. 8, 176.
 
 *) _CIL._ 9, 1542 ; elle se nomme Trebulana Iustina ; plusieurs villes d'Italie portaient le nom de Trebula. Elle figure sur un autre autel, daté de 228.
 
