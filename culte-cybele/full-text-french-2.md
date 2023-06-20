@@ -3712,7 +3712,7 @@ Enfin la tradition punique des couples divins exerce sa part d'influence. Elle d
 
 *) Gsell, _Musée de Tebessa_, p. 14 et pl. 1, 4 ; au-dessus du lion, deux personnages à mi-corps : Pluton et Proserpine (Aerecura). Toutain, _op. l._, p. 50 ; cf. _CIL._ 8, 2670 : « Saturno Domino et Opi Reginae. »
 
-*) _Civ. Dei_, 7, 28 : « dicitur caput deorum Janus, caput dearum Tellus, Mater scilicet Magna » : cf. 7, 16, où il établit les relations Janus = Mundus = Jupiter, et Terra = Mater Magna = Ceres = Juno. Proclus, _Hymn._ 6 (Abel, _Orphica_ p. 281) qualifie Janus de Propatôr Zeus et le rapproche d'Hécate = Meter Théôn. Autres références dans la _Rev. archéol._, 1904, 1, p. 344 s
+*) _Civ. Dei_, 7, 28 : « dicitur caput deorum Janus, caput dearum Tellus, Mater scilicet Magna » : cf. 7, 16, où il établit les relations Janus = Mundus = Jupiter, et Terra = Mater Magna = Ceres = Juno. Proclus, _Hymn._ 6 (Abel, _Orphica_ p. 281) qualifie Janus de Propatôr Zeus et le rapproche d'Hécate = Meter Théôn. Autres références dans la _Rev. archéol._, 1904, 1, p. 344 s.
 
 *) _CIL._ 8, 16417 : statue de Janus Pater, dédiée par un prêtre de Caelestis.
 
