@@ -2342,7 +2342,7 @@ Pour nous ramener vers les origines de ce culte essentiellement naturaliste, l'A
 
 *) V. supra, p. 9 n. 4 (Lycaonie et Cappadoce), p. 15 n. 6 (Phrygie), p. 383 n. 7 (Isaurie) ; cf. p. 328 n. 1. Au sommet de l'Ida, il n'y a que les deux bômoi de Zeus et de la Meter. Sur le Dindyme de Cyzique, vieil autel en cailloux, sorte de cairn : Apoll. Rh. 1, 1123. Meter rupestre du Sipyle.
 
-*) Relief votif provenant de la côte mysienne : _Arch. ep. Mitt._ 8, 1884, p. 198. Sur ce nom : Ramsay dans _J. of Hell. St._ 3, 1882, p. 56 ; Kretschmer, _Einleitung in die Gesch. der gr. Sprache_, p. 194 ; Hepding, p. 105
+*) Relief votif provenant de la côte mysienne : _Arch. ep. Mitt._ 8, 1884, p. 198. Sur ce nom : Ramsay dans _J. of Hell. St._ 3, 1882, p. 56 ; Kretschmer, _Einleitung in die Gesch. der gr. Sprache_, p. 194 ; Hepding, p. 105.
 
 *) Mionnet 3, p. 225 n° 1261 (le cippe porte un Eros) ; p. 159, n°s 708 et 710 (Cybèle assise, la g. sur le tympanon, la dr. étendue vers une petite colonne, cf. un naiskos en bronze, provenant de Thessalonique) ; _Suppl._ 6, p. 533 n° 471 (Cybèle ? le cippe porte une Astarté ? ). --- De même en Cilicie, à Mallos, bétyle (Babelon, _Traité_ 2, 1, p. 559, n°s 910, 912 ; 2, 2, p. 867 s, n°s 1385-89), remplacé par une Aphrodite accoudée sur un cippe (_ibid._, 2, 2, p., 882 n° 1410). --- Cf. près de la Meter crétoise debout sur un roc, les colonnes sacrées qui portent les cornes de consécration (= bucrânes du culte phrygien) : Evans, _op. l._, p. 28 fig. 9 ; sur un cachet-cylindre de type cypro-mycénien, déesse assise, la g. tenant un oiseau, la dr. posée sur un pilier derrière lequel rampe un lion : Evans, _Mycenaean tree and pillar cult_, p. 68.
 
