@@ -1,6 +1,6 @@
 # Le Culte de Cybèle, Mère des Dieux, à Rome et dans l'Empire Romain
 
 [French - Plain Text (Github Part 1)](full-text-french-1.md) | [French - Plain Text (Github Part 2)](full-text-french-2.md)    
-[French - PDF](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french.pdf) | [Biolinum](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_atkinson.pdf) | [Cursive](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_frcursive.pdf) | Auriocus  
+[French - PDF](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french.pdf) | [Biolinum](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_atkinson.pdf) | [Cursive](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_frcursive.pdf) | [Auriocus](https://cdn.solaranamnesis.com/HenriGraillot/graillot_cybele_1912_french_aurical.pdf)  
 English - Plain Text  
 English - PDF  
