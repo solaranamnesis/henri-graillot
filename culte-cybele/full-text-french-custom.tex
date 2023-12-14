@@ -6,7 +6,7 @@
 \usepackage[main=french,polutonikogreek]{babel}
 
 \usepackage[T1]{fontenc}
-\usepackage{drm}
+\usepackage{gfsdidot}
 \usepackage{listings}
 \usepackage{shortvrb}
 \usepackage{stfloats}
@@ -27,14 +27,6 @@
 
 \usepackage{setspace}
 \onehalfspacing
-
-% change color of text, example replace all \color{Goldenrod} with \color{lightgray}
-
-\makeatletter % change only the display of \thepage, but not \thepage itself:
-\patchcmd{\ps@plain}{\thepage}{\color{black}{\thepage}}{}{}
-\makeatother
-
-\color{black}
 
 \begin{document}
 \onecolumn
