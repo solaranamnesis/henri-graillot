@@ -6,3 +6,5 @@ English - Plain Text
 English - PDF  
 
 Hemp_paper_in_Japan8.jpeg --- CC BY-SA 4.0 Solar Anamnesis; modified attribution George E. Koronaios, CC BY-SA 4.0, via Wikimedia Commons; タバコはマーダー, CC BY-SA 4.0, via Wikimedia Commons.
+
+cybele01.jpeg --- CC BY-SA 3.0 Solar Anamnesis; modified attribution Carlos Delgado, CC BY-SA 3.0, via Wikimedia Commons.
